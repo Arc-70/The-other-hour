@@ -22669,3 +22669,501 @@ She looked at that for a long time.
 Then, under it, she wrote another line.
 
 <->
+
+## Chapter 37: The Horntail
+
+"Play to your strengths," said Moody.
+
+He said it on the Monday before the task, in his office, with the door shut and the Foe-Glass on the wall behind him full of shadowy shapes that never quite came into focus. He had kept Harry back after Defence. He had looked at him with the ordinary eye and the blue one, both at once, for a long time, and then he had said that.
+
+"I don't know what my strengths are," said Harry.
+
+"Course you do. Everybody does. Most people just don't like the answer." Moody leaned forward on his stick. "You're a flier, Potter. Everybody knows that. And you've got something else, haven't you? Something you don't talk about. I've watched you in my lessons. You look at people before they move. You look at a curse before it's cast." The blue eye spun and stopped. "Use it. Whatever it is. Don't try to be Diggory, or Krum. Be what you are."
+
+Harry read him.
+
+It was the same as always. It was always the same with Moody. The suspicion and the grimness on the top, and under them, aimed straight at Harry, that fierce enormous thing, so large and so steady that it was like standing next to a fire. It wanted Harry to win. It wanted it more than anybody in the castle wanted anything, more than the Slytherin table, more than Hagrid.
+
+Harry thought that it was the strangest thing in the world, to be wanted to win so much by a man he had met eleven weeks ago.
+
+He thought it was because Moody had fought Voldemort, and lost friends to him, and had looked at the boy who survived him and decided something.
+
+"Thanks, Professor," he said.
+
+"Eyes open, Potter," said Moody. "That's all it ever is. Now get out."
+
+* * *
+
+He had his plan by then. He had had it since a clearing in the forest.
+
+He told Evelyn on the Tuesday night, in the study, because he told her first. She listened to all of it on her cushion, with her notebook open on her knee and her pencil not moving, and when he had finished she said, "Two of you."
+
+"Two of me."
+
+"For a dragon."
+
+"It's an animal. It's angry and it's frightened. It looks at things. I can set things in front of things that look." He was at the desk. The lamp was lit, cold and green. "I'll Summon my broom. I'll get in the air. And while I'm getting in the air, there'll be another one of me on the ground, running the other way, and she'll go for him. And by the time she works out he isn't there, I'll be over the eggs."
+
+"How long does it take to Summon a broom from the castle to the enclosure?"
+
+"I don't know. Twenty seconds?"
+
+"Nott says it's nineteen. He timed you. He says the window of the dormitory has to be open." She wrote something. "How long can you hold something that large?"
+
+"I don't know."
+
+"You held a hippogriff for twenty minutes."
+
+"The hippogriff wasn't trying to kill me. And nobody looking at it was angry." He looked at the lamp. "I've never held anything in front of something that wanted me dead. I've never held anything in front of something that big."
+
+Evelyn looked at him.
+
+"Then you'd better be quick," she said.
+
+* * *
+
+They practised every night that week in the fourth-floor classroom.
+
+"Again," said Millicent, from the door.
+
+"I've done it eleven times."
+
+"Twelve's a nicer number."
+
+"Twelve isn't a nicer number," said Evelyn, from her desk. "It's just a larger one."
+
+"It's got more factors," said Theo, from the window. He had the Map open on the sill, so that they would know if Filch was coming. "Six of them. Eleven's only got two."
+
+"There you are," said Millicent. "Theo says. Again, Potter."
+
+Harry raised his wand at the cushion on the far side of the room.
+
+"*Accio cushion*."
+
+It came. It came across the room in a long flat line and hit him in the chest, and he caught it, and Millicent cheered.
+
+"Four seconds," said Evelyn.
+
+"It's a cushion. It's twenty feet away."
+
+"The broom's in the dungeons. It's about three-quarters of a mile, by air, if it goes out through the window and round the east tower and over the trees." She wrote something. "If the window's open. If nobody's shut the window."
+
+"I'll open it," said Theo. "On the morning. I'll stand by it."
+
+"Somebody'll shut it after you've gone to the task."
+
+"Then I'll stay."
+
+Harry looked at him.
+
+"You'll miss it," he said. "The task. You'll be in the dormitory with the window open and you won't see any of it."
+
+Theo turned a page of the Map.
+
+"I'll hear it," he said. "Everybody'll hear it." He did not look up. "I'd rather be the person who kept the window open than the person who watched you get eaten because somebody shut it."
+
+Nobody said anything for a moment.
+
+"Again," said Millicent, a bit gruffly. "Potter. Again."
+
+* * *
+
+The champions waited in a tent on the edge of the enclosure, on the far side of the forest, from half past one on Thursday the twenty-fourth of November.
+
+It was cold. It was grey and cold and still, with a white sky and no wind, and the noise of the crowd came through the canvas of the tent like the sea through a wall. Harry could feel it. He had turned it down to a roar and kept it there, and he did not need to look for Evelyn in it, because he could not find her from inside a tent, and he had known he would not be able to.
+
+He did not like that.
+
+He read the others instead.
+
+Fleur Delacour was sitting on a low stool in the corner, very pale, with her hands clenched in her lap. She was terrified. She was terrified all the way through, and the terror was proud, and she was holding it down so hard that Harry could feel the effort of it from across the tent.
+
+Krum was standing by the entrance with his hands in his pockets and his shoulders hunched, looking at nothing. He was very quiet, inside. He was the same as he had been at the World Cup, high up over the stadium, before he dived. He was alone, and he did not mind it, and he was concentrating on something nobody else could see.
+
+Cedric was walking up and down. He was frightened and he was determined, both, quite plainly, and every time he passed Harry he looked at him and nodded, very slightly, the way he had in the corridor.
+
+Ludo Bagman came in with a small purple silk bag.
+
+"Now," he said. He was very excited. Harry read him and the excitement was large and bright and very slightly greedy, and under it there was something else, worried and small and grubby, like a man who owes somebody money. "Ladies first," he said, and held out the bag to Fleur.
+
+She put her hand in. She brought out a tiny dragon, perfectly made, a little green model, alive, that moved and stretched on her palm. It had a number on a ribbon round its neck. *Two*.
+
+"The Welsh Green," said Bagman.
+
+Krum drew the red one. The Chinese Fireball. Three.
+
+Cedric drew the blue-grey one. The Swedish Short-Snout. One.
+
+Harry knew what was left before he put his hand in the bag.
+
+It was black. It was perfectly made, the size of his thumb, with bronze horns, and a long tail with tiny bronze spikes all down it, and when he held it on his palm it spread its little wings and opened its mouth and hissed at him.
+
+The ribbon round its neck said *Four*.
+
+"The Hungarian Horntail," said Bagman happily.
+
+* * *
+
+Cedric went first.
+
+Harry heard it through the canvas. He heard the whistle, and the crowd roaring, and then a great many things he could not make out at all, roaring and screaming and gasping, and Bagman's voice magnified over the top of all of it saying *Oh, close, very close, oh, he's taking risks, this one*, and the dragon screaming. And under all of it he could feel Cedric, the whole time, through the canvas and across the enclosure, frightened and determined, frightened and determined, and then, all at once, hurt, and then, a moment later, a great flood of something that was mostly relief.
+
+The crowd cheered.
+
+He had got the egg.
+
+Fleur went second. Harry felt her go out of the tent, proud and terrified, and he felt her across the enclosure the whole time, and he felt the Welsh Green go to sleep, slowly, the dragon's fury going down and down and down like a fire being smothered, and he felt Fleur not let herself believe it until the very end.
+
+Krum went third. Harry did not feel much of Krum. He felt the Chinese Fireball. He felt it go from fury to something else, all at once, a great screaming confused blindness, and then he heard the crowd groan, and then he heard them roar. Krum had cursed it in the eyes. It had trampled half its own eggs.
+
+Then the whistle went for Harry.
+
+* * *
+
+He walked out of the tent and through a gap in the enclosure fence.
+
+He did not look at the crowd. He knew where it was. It was all round him, up the sides of a great bowl of wooden stands, a thousand people, more, the whole school and the visitors and half the Ministry, all of them shouting. It came down at him from every side, louder than in the tent, louder than the Quidditch pitch, nearly as loud as the moor.
+
+He turned it down. He did not look for Evelyn. He did not have time.
+
+He looked at the dragon.
+
+She was at the other end of the enclosure, crouched low over her eggs. She was black and enormous, much bigger than she had been in the clearing in the dark, because he was nearer, and she was not chained. She had her wings half open. Her yellow eyes were on him. Her tail was moving, slowly, side to side, beating the ground, leaving yard-long gouges in the earth.
+
+Harry read her.
+
+He had read her in the clearing. He had thought he knew what she was. He did not know.
+
+The fury came up off her at him, all of it, aimed, the whole of it, at the small thing that had just walked into her place. It was hotter than the fire she had in her. It was larger than anything in the stands. It was so large and so hot and so close that for a second it pushed the crowd out of him entirely and there was nothing in the world but a dragon and her fury, aimed at him, and under the fury, under all of it, enormous, the thing that was always under it.
+
+*Eggs. Eggs. Eggs. Mine. Mine.*
+
+He did not hear words. He felt it. It was the plainest thing he had ever felt in anything, plainer than the spider's pain, and larger, and it went all the way down.
+
+He raised his wand.
+
+"*Accio Firebolt!*"
+
+* * *
+
+Nineteen seconds.
+
+Theo had timed it. Harry had practised it every night for a week in the fourth-floor classroom, with Theo at the classroom window and Millicent at the door, and Evelyn at a desk with a watch that was not working and the long-case clock of Selwyn Hall in her head, counting.
+
+He did not have nineteen seconds.
+
+The Horntail had seen his wand move. She was coming. She came up off her eggs onto all four legs and her wings went up and out, and her head came round, and her mouth opened, and Harry could see down it, red, all the way down, to where something very hot was coming up.
+
+So he gave her two of him.
+
+He had held it in his head for a week. He had held it every night in the study until he could see it with his eyes shut, the same way he had held the Galleon and the faces and the hippogriff. It was himself. Himself as Evelyn saw him, which was the only way anybody saw him truly, because she was the only one his faces had never touched. A boy of fourteen, not tall, in Slytherin robes with a number on the back, with black hair that would not lie flat and glasses and a scar.
+
+He set it on the ground beside him.
+
+And then he made it run.
+
+He made it run to the left, fast, across the enclosure, away from him, towards the stands, with its wand up. And he set it in front of the dragon's eyes the way you set a lamp in a window, and he held it there, and he put everything he had behind it.
+
+It was like holding a door shut against a hurricane.
+
+He had held doors before. He had held two faces for six weeks in another world. He had held three people not there and an empty room at the bottom of the Ministry of Magic with his nose bleeding into his mouth. He had held a hippogriff in front of five pairs of eyes for twenty minutes.
+
+None of them had been looking at him like this.
+
+The dragon's attention was the heaviest thing he had ever felt. It came against the door like the whole weight of the sea. It was so large and so hot and so furious that the door bent, and he felt it bend, and he held it.
+
+The dragon's head swung.
+
+It swung to the left. It swung after the running boy. Her mouth was still open and the fire came out of it, and it went left, a great roaring jet of orange and gold, across the enclosure, at the boy who was running away from her, and it went through him, and he kept running, because he was not there.
+
+The crowd screamed.
+
+Harry heard it. A thousand people seeing two Harry Potters. A thousand people seeing one of them burn and not burn. He heard it go up off the stands like a flock of birds off a field, and he did not look, and he held the door.
+
+He heard something behind him.
+
+It was coming over the trees from the castle, very fast, a long thin shape against the white sky, and it was his broom.
+
+Seven seconds. Eight.
+
+He held the door. The dragon was turning after the second Harry, all of her, her great black body coming round, her tail swinging, and the second Harry was nearly at the fence on the far side, and she was nearly round, and when she was round she would be facing the wrong way, and the eggs would be behind her, and he would have his chance.
+
+The broom reached him. He swung his leg over it.
+
+Nine seconds. Ten.
+
+He kicked off from the ground.
+
+Eleven.
+
+The door broke.
+
+He did not let go of it. It broke. It went all at once, the way a dam goes, the way a held breath goes, and it was not him letting it go, it was simply that there was nothing left behind it. The weight of the dragon's attention came through it and through him, and the second Harry by the far fence was not there any more. He flickered, and was gone.
+
+And the Horntail knew.
+
+She knew at once. She did not stop to wonder, the way a person would have. She did not look at the fence where the boy had been and think *where did he go*. She was a dragon. One moment there had been a thing to burn, and then there was not, and there was another thing, behind her, in the air, going up.
+
+She came round.
+
+She came round all at once, faster than anything that size should move, and her tail came round with her, all its length, all its bronze spikes, through the air, at the height of a man on a broom ten feet up.
+
+It caught his shoulder.
+
+He did not see it. He felt it. It was like being hit by a cart. He was thrown sideways, off the broom, nearly, hanging on with one hand and his legs, and there was a pain in his left shoulder that was so large and so sudden that it went white, and something was running down the inside of his sleeve, hot.
+
+He held on.
+
+He held on with one hand, and the broom was going up, because it was a Firebolt and it went where he looked, and he was looking up. He got his other hand back on the handle. He got his leg back over. He was a hundred feet up, and the Horntail was screaming below him, and the crowd was screaming round him, and his shoulder was a single white sheet of pain.
+
+And the eggs were below him, uncovered.
+
+She had turned. She had turned all the way round to get at the thing behind her, and she was looking up now, at him, and she had left them, on the ground, under where she had been.
+
+There was a golden one.
+
+It was among the grey ones, very bright. He had known it would be there since the bag of tiny dragons. It was what they were all looking for.
+
+He dived.
+
+He did it the way he had done it in his first year, for a Remembrall, and in his second, for a Snitch with a broken arm. He did it the way the Firebolt did everything, as though he were falling, only faster, straight down, past her head, past her snapping jaws, so close that he felt the heat of her breath on the side of his face. He did not think. He looked at the egg and he was there.
+
+He put out his good hand.
+
+He had it.
+
+He was up again, and away, out of reach, over the stands, with a golden egg under his arm and his left shoulder pouring blood, and the crowd was making a noise so enormous that he could not read anything in it at all.
+
+* * *
+
+Evelyn had sat beside Varga because there was an empty seat, and because she had decided on the Wednesday night that she would.
+
+He had been at the end of the third row of the Slytherin stand, alone, in his plain black coat, leaning on his stick, when she came up. The Durmstrang students were all on the other side, with Karkaroff, in a block of furs. Varga had not sat with them. Evelyn had looked at the empty seat beside him, and at him, and sat down in it.
+
+He had looked at her.
+
+"Miss Selwyn," he had said.
+
+"Professor."
+
+That was all. He had not said anything else, through Diggory, through Delacour, through Krum. He had sat with both hands on the silver end of his stick and watched the enclosure with an expression of polite attention, like a man at a play he has seen before.
+
+When the whistle went for Potter, he had leaned forward slightly.
+
+Evelyn noted it.
+
+She watched Potter walk out. She watched him look at the dragon. She knew the look. She had seen it every day for three years, across tables and classrooms and the floor of a round stone room under the lake. It was the look he had when he was reading somebody, and she did not need to see what he was reading to know that it was very large.
+
+She watched him raise his wand. She heard him shout.
+
+And then she saw nothing.
+
+She saw Potter on the ground with his wand up, and the dragon coming up off her eggs. She saw the dragon's head swing left, sharply, at nothing, and fire go across the enclosure in a great orange sheet at an empty stretch of grass by the far fence. She saw the crowd round her come to its feet, every one of them, screaming, pointing at the empty grass.
+
+She saw a broom come over the trees.
+
+She did not see a second boy. She did not see anything at the far fence at all. She only saw the dragon turning, and turning, after nothing, and Potter getting on his broom, and the crowd screaming at the place where she could see there was nobody.
+
+Beside her, Varga had gone rigid.
+
+He had come up off the bench. He was not standing. He was half risen, with both hands on his stick and his knuckles white on the silver, and he was staring at the far fence, at the empty grass, and his face had gone the colour of paper.
+
+He said something.
+
+He said it under his breath, in a language she did not know, quickly, three or four words. She thought it was Hungarian. She could not have repeated it.
+
+Then the dragon turned, and the tail came round, and Potter went sideways off his broom and did not fall, and the crowd screamed in a different way, and Evelyn did not look at Varga for some seconds, because she was looking at Potter's left shoulder.
+
+He held on. He went up. He went down. He came up again with the egg.
+
+The stand went mad.
+
+Evelyn sat down. She had stood up at some point. She did not remember doing it. She sat down on the bench with her hands in her lap and found that they were not quite steady, and she put them in her pockets.
+
+Varga had sat down too. He was looking straight ahead.
+
+"Professor," said Evelyn.
+
+He did not answer at once.
+
+"What did you say? Just now. When the dragon turned."
+
+Varga looked at her.
+
+He had very dark eyes behind the small round spectacles, and they were wet, though it was not cold enough for that, and he looked at her for a long moment as though he were deciding something.
+
+"I said," he said, in English, very quietly, "that it was a First Step."
+
+"A first step of what?"
+
+"That," said Varga, "I will not tell you. Not here." He turned back to the enclosure. "I have not seen one in forty years. I had thought I would not see one again."
+
+He did not say anything else.
+
+Evelyn sat beside him while the judges conferred, and the crowd shouted, and Potter was taken into the medical tent at the end of the enclosure with Madam Pomfrey's hand on his good arm. She watched the tent. She sat with her hands in her pockets and watched it for some time.
+
+Then she looked at her watch.
+
+It said what it had said since the second of March. She knew what time it actually was, from the light and the stands and the order of things, which was nearly half past three.
+
+She had agreed to meet Varga at half past three. About Christmas. At the gangway of the Durmstrang ship. He had told her so in the Owlery on Tuesday, when she gave him her reply to take, in one sentence, without looking at her, and gone down the stairs.
+
+She looked at the medical tent.
+
+She looked at Varga, beside her, who had already stood up and was leaning on his stick and was not looking at her at all.
+
+"I'll walk down with you," she said. "Professor."
+
+She did not stay for the marks.
+
+* * *
+
+The medical tent smelled of something green and sharp, and Madam Pomfrey was furious.
+
+"Dragons," she said, pouring something purple into his shoulder. "*Dragons*. Last year Dementors, the year before that a basilisk. They'll be bringing in Lethifolds next year, you mark my words, and I'll be the one sewing everybody back together." She held his arm still. "This will sting."
+
+It stung.
+
+Harry sat on the edge of the camp bed with his shirt off and his left shoulder open in three long ragged cuts where the spikes had gone in, and watched the purple stuff fizz in them, and did not say anything. The pain was large and white and he held it the way he had held the door, and it did not break.
+
+He read the tent.
+
+Cedric was on the next bed, with a long burn down the side of his face covered in thick orange paste. He looked across at Harry.
+
+Harry read him and it was relief. Plain, simple, warm. It was the relief of somebody who has watched a person he decided to trust go up against a dragon and come down again alive, and it had nothing in it about the Tournament at all.
+
+"That," said Cedric, "was mad."
+
+"So was yours."
+
+"Mine was a dog." Cedric touched his face, carefully. "I Transfigured a rock into a Labrador. She went for the Labrador. For about a minute. Then she went for me." He looked at Harry's shoulder. "What was yours? Everybody was screaming. There were two of you. I saw it from the tent flap. There were *two* of you."
+
+"I don't know," said Harry.
+
+Cedric looked at him.
+
+He did not believe it. Harry read him not believe it, and decide, the way he had decided in the corridor, not to say so.
+
+"All right," said Cedric.
+
+Fleur Delacour came in from the other end of the tent with a bandage round her hand and her silver hair singed at the ends. She stopped when she saw him. She looked at him for a long moment, with her chin up, and Harry read her, and she was surprised. She was surprised the way people are surprised when something they have dismissed turns out to be something else, and she did not like being surprised, and she was a little bit impressed, and she did not like that either.
+
+"*Zat*," she said, "was not a Summoning Charm."
+
+"Some of it was."
+
+She looked at him a moment longer. Then she said something in French that Harry did not understand, and went out.
+
+Krum was standing at the tent flap.
+
+He had not come in. He was standing in the opening with his hands in his pockets and his shoulders hunched, looking at Harry. He did not say anything. He looked at Harry the way he had looked at the Snitch at the World Cup, with that same still, solitary concentration.
+
+Harry read him.
+
+There was something in Krum that had not been there in the tent before the task. It was very quiet and very plain. It was respect. It was the respect of a flier for a flier. It had nothing to do with two Harrys. It was for the dive.
+
+Krum nodded, once.
+
+He went.
+
+Harry looked past him, through the tent flap, out at the stands.
+
+He could see the Slytherin stand from the bed. It was full and green and loud. Theo was not in it; Theo was under the lake by an open window. He could see Millicent, with both fists in the air, roaring. He could see Draco Malfoy two rows down, not cheering, with his arms folded, looking at the medical tent.
+
+He reached for the stand. He did it without thinking, the way he always did, the way he had done it at the World Cup and on the Quidditch pitch and in the Great Hall at a hundred breakfasts.
+
+He reached for the still place.
+
+It was not there.
+
+He went along the stand, row by row, the way he went along the Map. He read Millicent, so loud and so glad that it was nearly a shout. He read Draco, frightened and furious and something else. He read the fifth-years and the sixth-years and Pucey and Warrington and a hundred Slytherins cheering his name.
+
+He went along the whole of the stand twice.
+
+There was no silence in it anywhere.
+
+There was a seat at the end of the third row, beside an empty space where an old man in a black coat had been sitting. Harry could see it from the bed. It was empty.
+
+He looked at it for a long time.
+
+"Potter," said Madam Pomfrey. "Lie *down*."
+
+He lay down.
+
+* * *
+
+They gave him forty points.
+
+Krum got forty too, and Cedric thirty-eight, and Fleur thirty-seven. Karkaroff gave Harry four, out of ten, and the Slytherin stand booed him so loudly that Karkaroff went red. Bagman gave him ten. Dumbledore gave him nine. Madame Maxime gave him eight, and looked at him across the enclosure, after, for a long moment, with something in her that Harry read as wariness.
+
+Mr Crouch gave him nine.
+
+Harry read him, from the bed, across the whole enclosure, because he could not help it. Terror and shame and the locked thing, very hard, under the floor. The same as on the moor. The same as in the room off the Hall. It had not moved.
+
+It was harder to reach now, he thought. Crouch looked greyer. He looked ill.
+
+Harry did not think about it for long.
+
+* * *
+
+The Slytherin common room was louder than on Hallowe'en.
+
+He had not thought that was possible. He came through the stone wall at eight that evening with his arm in a sling and his shoulder bandaged and a golden egg under his good arm, and the noise came off the room at him like a wall coming down.
+
+They had the chair out again. They had the Butterbeer out again, and somebody had got food from the kitchens, enormous platters of it, sausages and cakes and pies, and somebody else had charmed a banner over the fireplace that said *POTTER* in green letters three feet high, and the letters changed every few seconds and became a small black dragon that breathed silver fire.
+
+They roared.
+
+He read them. He did not have to. They were adoring. That was the only word. It came off every one of them, a hundred Slytherins, first-years to seventh-years, and it was the old wanting from the second year, and the triumph from Hallowe'en, and something new on top of both that was larger than either.
+
+*Two of him.*
+
+They had seen it. They had all seen it. A whole stand of them, a whole school of them, had seen Harry Potter split into two in front of a dragon, and they did not know how, and they did not care how. They wanted it. They wanted it to be theirs. Under the adoring, very deep, Harry could feel them deciding that it was.
+
+Warrington had him by the good arm. Pucey was shouting something in his ear. A crowd of second-years were standing on a table chanting his name.
+
+He did not enjoy it.
+
+He noticed that, standing in the doorway with a golden egg under his arm and a hundred people roaring at him. He had enjoyed it in the second year, when they gave him the chair. He had enjoyed it in the Leaky Cauldron when he was eleven and a whole room turned to look at him. He had wanted, all his life, to walk into a room and have it turn.
+
+It had turned. It was turning as hard as any room had ever turned to anybody.
+
+He did not enjoy it at all.
+
+He sat in the chair, because they would not let him not sit in it. He drank a Butterbeer, because somebody put it in his hand. He let Millicent hit him on the good shoulder, gently, three times, and say *you absolute idiot, you absolute bloody idiot*, with her eyes wet. He let Theo sit on the arm of the chair, close, saying nothing, which was what Theo did when he had been frightened.
+
+He looked at the chair by the draughty window, at the far end of the room.
+
+It was empty.
+
+He looked at it every few minutes, for two hours. He did not mean to. He found, every few minutes, that he was looking at it, and he looked away, and then he found that he was looking at it again.
+
+At ten o'clock the stone wall opened, and Evelyn came in.
+
+She came in quietly. Nobody noticed her. Nobody ever noticed her. She came in through the wall in her grey cardigan with her hands in her pockets and her face exactly as it always was, and she walked along the edge of the room, behind the crowd, through the noise, to the chair by the draughty window, and she sat down in it, and took out a book.
+
+Harry looked at her across the whole of the common room.
+
+She did not look at him. She opened the book. She turned a page.
+
+He read her. He could not read her. He never could. He looked at her face, the one people forgot, bent over her book in the green light by the draughty window with the lake leaning on the glass behind her, and there was nothing in it, and there was nothing in her silence but silence, and he had no idea at all where she had been.
+
+He did not ask. He did not get up.
+
+He did not go across the room, through a hundred people, and say *where were you*.
+
+He looked at her for a long time.
+
+And then she turned another page, and without looking up, without moving her head at all, she said something. He could not hear it. He was too far away, and the room was too loud. But he saw her lips move, and he knew the shape of it, because he had seen her say it at a library table and a breakfast table and on the floor of a round stone room under the lake, a hundred times, in three years.
+
+*Potter.*
+
+Then she said something else. Three words. He knew the shape of those too.
+
+*You looked. Didn't you.*
+
+He did not answer.
+
+She did not look up. She turned another page.
+
+<->
