@@ -14107,7 +14107,7 @@ The thing in the doorway drew a long, slow, rattling breath.
 
 And Harry heard a woman screaming.
 
-She was a long way off and she was very close. She was screaming *not Harry, please, not Harry*, and somebody was laughing, high and cold, and there was a green light, and the cold was coming up over his head like water over a stone, and he was going down into it, and he did not mind, and he was gone.
+She was a long way off and she was very close. She was begging somebody for something, for him, for Harry, and somebody was laughing, high and cold, and there was a green light, and the cold was coming up over his head like water over a stone, and he was going down into it, and he did not mind, and he was gone.
 
 * * *
 
@@ -14678,5 +14678,644 @@ Then she looked across the round room at Potter, standing at the black desk in t
 She did not tell him about the scratches yet.
 
 She wrote one more line, and underlined it, and closed the book.
+
+<->
+
+
+## Chapter 23: Slytherin's Study
+
+"This one's Latin," said Evelyn. "This one's Latin. This one's Latin with something else in the margins, which I think is English, but not English anybody has spoken for about eight hundred years. This one's in a language I don't know at all." She put it down. "This one's a list of what he ate in the winter of nine hundred and eighty-something. Mostly eel."
+
+"Eel," said Harry.
+
+"Eel. Every day. For a month." She turned a page, very carefully, with the end of her pencil. "He didn't like it. He says so. Twice."
+
+It was the Tuesday after they had first come down, a quarter past eleven at night, and they were sitting on the floor of the round room in the light of the lamp that came on for Harry and not for her. Evelyn had brought a cushion. She had brought a cushion and a flask of tea and a Latin dictionary that weighed as much as a cat, and she had arranged all three on the floor beside the shelves in an order that meant something to her, and she had been there, reading, for an hour and ten minutes.
+
+Harry had been watching her do it.
+
+He had tried, on the first night, to read the books himself. He had got about four lines into the first one and stopped, because Latin at Hogwarts was a thing you met in the middle of spells, in pieces, and he knew what *lumos* meant and what *accio* meant and not much else. The Latin in Slytherin's books went on for whole pages and did not stop to explain itself.
+
+Evelyn had done Latin with a tutor at Selwyn Hall from the age of seven, three mornings a week, because her father thought it was what one did.
+
+"He was the only thing Father ever chose for me that I liked," she had said, on the first night, sitting down with the dictionary. "Mr Pelham. He smelled of cough sweets. He used to say Cicero was a bore and Catullus was a scandal and Tacitus was the only one worth reading, and then he'd make me read Cicero."
+
+"Why?"
+
+"Because it was what Father was paying for."
+
+Now she turned another page of the eel book and put it aside, and picked up the next one. It was small and thick, bound in black leather that had gone hard as wood, and there was no title on it anywhere.
+
+She opened it.
+
+Harry watched her read the first page. He watched her stop, and go back to the top, and read it again.
+
+"Potter," she said.
+
+"What?"
+
+"Come here."
+
+He came and sat beside her on the stone floor. She put her finger under the first line. It was written in a small, upright, crowded hand, in faded brown ink, with the letters very close together, as though the person writing had wanted to fit as much as possible on every page and had not much minded whether anybody else could read it.
+
+"*De lectione cordium*," said Evelyn. "*On the reading of hearts.*" She moved her finger down. "*Few are born to it, and fewer know what they are born to. I write for them, so that the next of us may not be as long alone as I have been.*"
+
+Harry did not say anything.
+
+"There's more," said Evelyn. She was reading ahead, very fast, her lips moving slightly. "He says he could feel what other people felt from the time he was a child. He says he thought everybody could, until he was nine, and then he found out that nobody could, and that it frightened people, and so he stopped telling them." She turned the page. "He says he calls it reading because that's what it is. He says the heart is written in a language and most people can't see the letters."
+
+"He calls them hearts," said Harry.
+
+"*Corda*. Yes. Hearts. He means feelings. He means what you call the weather." She looked at him. "He was one of you."
+
+Harry looked at the small, crowded, brown handwriting.
+
+He had always thought he was the only one. He had thought it at six, at nine, at eleven. Quirrell had told him there were others, very occasionally, and Ware's book had said that in a whole life the author had met only two, one of whom was mad and the other of whom wished she were. But he had never seen one. He had never seen anything one of them had written.
+
+And here was a man who had sat at that black stone desk a thousand years ago, and eaten eel all winter, and not liked it, and felt everybody, and written this so that the next one would not be as long alone.
+
+"Read me some more," said Harry.
+
+Evelyn read him some more.
+
+She read it slowly, a line of Latin and then a line of English, and when she did not know a word she looked it up in the dictionary that weighed as much as a cat, and wrote it in pencil in the margin of her notebook. She did not say anything about the fact that she was the only person in the castle who could have done this. She did not say anything about the fact that she had been doing it for an hour and twenty minutes now and had not once been asked to stop.
+
+She did not say she was pleased.
+
+Harry could not read her. He had never been able to read her. But he watched her turn the pages, and he noticed that she turned them a little faster than she needed to, and that she had stopped looking at her watch.
+
+* * *
+
+There were exercises.
+
+They were in the third book, the small black one, from about a third of the way in. Slytherin had written them down the way a man writes down a recipe, in numbered lines, with notes in the margin where he had changed his mind.
+
+*First, that the reader learn to be quiet in himself, for a loud mind cannot hear another.*
+
+*Second, that he read a single heart in a crowd, and then another, and then return to the first, and know it again.*
+
+*Third, that he learn the depth, for every heart is a house of many floors, and most readers stop upon the stair.*
+
+There were nine of them. Harry could already do the first three. He had been doing them since he was six, without knowing they had numbers.
+
+The fourth was harder.
+
+"*Fourth*," read Evelyn, on the second Thursday. "*That he learn to read not only what the heart feels but what the mind beholds. For the two are joined, and where the heart is strongest, the mind's pictures stand close behind it, as a man stands behind his shield. And the way in is through the eye.*" She looked up. "There's a note in the margin. It says *not as Aldric taught, which is clumsy, but gently, as one opens a book*."
+
+"Who's Aldric?"
+
+"I don't know. Somebody clumsy." She went on. "*Look upon the eye, and let the heart guide thee, and go behind the feeling to what stands behind it. Thou shalt see what they see. Do not stay long. Do not go where thou art not asked. It is a discourtesy, and it will be remembered.*"
+
+Harry thought about it.
+
+He thought about the Hufflepuff girl on the stairs last winter, the one with the long plait and the books held against her chest, whose fear had got so loud that a word had come out of it into his head. *Murderer.* He had not been trying. It had happened.
+
+And Ware had written, in the book under his pillow, that a man who heard the Words would begin, in time, to want them.
+
+"I could try it," he said.
+
+"On whom?"
+
+"I don't know."
+
+"You can't try it on me," said Evelyn. "You can't even feel me."
+
+"I know."
+
+"So it'll have to be somebody else." She closed the book. "Somebody who knows what you're doing. Somebody who agrees."
+
+Harry looked at her.
+
+"You're thinking of Nott," she said.
+
+"I wasn't."
+
+"You were. He's the only one who'd say yes and mean it." She put the book back on the shelf, exactly where it had been. "Ask him properly. Tell him what it is first. Tell him he can say no."
+
+"He'll say yes."
+
+"Then he'll have said it," said Evelyn.
+
+* * *
+
+Theo said yes.
+
+He said it at once, without looking up from the chessboard, on the Sunday afternoon in the empty classroom on the fourth floor where they had practised shields the winter before.
+
+"What do I have to do?"
+
+"Look at me," said Harry. "That's all. Just look. And think about something. Anything. Something you don't mind me seeing."
+
+"How will I know if it's working?"
+
+"I don't know," said Harry. "I've never done it."
+
+Theo did look up then. He looked at Harry with his calm, pale, clever face, and Harry read him: curiosity, steady and bright, the kind he had always liked in Theo because it never wanted anything back. And under the curiosity, the sadness that was always there, still and deep, like water at the bottom of a well.
+
+"All right," said Theo. "I'm thinking of something."
+
+Harry looked into his eyes.
+
+He did it the way the book said. He did not push. He let the reading come first, the way it always did, curiosity on the top and the old sadness underneath, and then he went a little further, behind the curiosity, into the place where the book said the pictures stood.
+
+He saw a chessboard.
+
+It was Theo's board, this one, with the pegged pieces, and it was set up in the middle of a game, and Harry knew without knowing how that it was the game against Evelyn on the train, the one that had taken an hour and ten minutes. He could see the pieces. He could see where Evelyn's bishop was. He could see, somehow, that Theo had been worried about the bishop for twenty minutes and had not let it show.
+
+"Bishop," said Harry.
+
+Theo's face changed.
+
+"Yes," he said.
+
+"Her bishop. On the train. You were worried about it."
+
+"Yes." Theo leaned back. His curiosity had gone up, very sharp. "That's… yes. That's exactly what I was thinking of. Do it again. Something else."
+
+Harry did it again.
+
+He did it too fast. He knew that afterwards. He was pleased with himself, and the pleasure made him careless, and he went in quickly, behind the curiosity, and the curiosity was thin now because Theo was excited and not paying attention to what he was holding up. And behind it, instead of the next thing Theo had chosen, there was the thing Theo had not chosen, the thing that was always there underneath everything, like the water in the well.
+
+It was a room with the curtains drawn.
+
+There was a bed in it. There was a woman in the bed, very thin, with dark hair spread on the pillow, and she was smiling, and her hand was on the blanket, and the hand was very white. There was a smell of something sweet and medical. There was a chessboard set up on the blanket by her hand. It was a game that was not finished. A small boy was sitting on the edge of the bed, very still, waiting for her to move.
+
+She did not move.
+
+Harry pulled back.
+
+He did it so fast that he knocked his chair over. It went down on the stone floor with a bang that went round the empty classroom and came back.
+
+Theo was looking at him.
+
+"Sorry," said Harry. "Sorry. I didn't mean to. I went too far. I'm sorry."
+
+"What did you see?"
+
+Harry did not answer.
+
+"You saw her," said Theo.
+
+"Yes."
+
+Theo looked down at the chessboard in front of him. He moved a pawn, one square, very carefully, and put it back where it had been.
+
+"It's all right," he said.
+
+Harry read him.
+
+It was not all right. Theo was not angry, and he was not hurt, exactly. But something in him had gone very small and very still and pulled itself in, the way a snail does when you touch it, and it was not going to come out again for a while. It was the place where he kept her. And somebody had been in it.
+
+"It's all right," said Theo again. He set the pieces back to the start, one at a time. "You said you'd never done it. I said yes."
+
+"I shouldn't have gone there."
+
+"No," said Theo. "But you didn't know it was there."
+
+He looked up, and smiled, and the smile was quite real, and Harry read under it that Theo meant to forgive him, had already decided to, and that the deciding had cost him something.
+
+"Your move," said Theo. "We're playing chess now. That's all we're doing."
+
+They played chess. Harry lost in twenty-two moves. He did not try to read Theo again that day, or for a long time after.
+
+* * *
+
+He did not tell Evelyn about the room with the curtains drawn. He told her it had worked, the first time and the second, and that the second time he had seen something private and stopped.
+
+"Did you say sorry?"
+
+"Yes."
+
+"Did he say it was all right?"
+
+"Yes."
+
+"Was it?"
+
+Harry looked at her.
+
+"No," he said.
+
+Evelyn nodded, slowly, as though that were the answer she had expected and she was filing it somewhere.
+
+"*Do not go where thou art not asked*," she said. "*It is a discourtesy, and it will be remembered.*"
+
+"I know."
+
+"He wrote it in the margin twice. The second time he underlined it." She turned a page. "I think somebody did it to him."
+
+* * *
+
+It was the sixth exercise that changed everything.
+
+They came to it at the end of October, on a Tuesday, in the round room, with the lamp lit and the flask of tea between them and Evelyn's notebook half full of Latin.
+
+"*Sixth*," she read. "*When the reader has learned to see what the mind beholds, let him learn to show it. For if a heart may be read it may be written, and if a picture may be seen it may be set. Let him take a thing he has seen, and hold it in his own mind until it is as clear as the thing itself, and then let him set it before another's eye, as a man sets a lamp in a window. And they will see it, though it is not there.*"
+
+She stopped.
+
+"There's a note," she said. "It says *begin with a small thing. A coin. A cup. A thing that will not be missed. Never begin with a face.*"
+
+Harry was very quiet.
+
+He was thinking about Lockhart. He was thinking about a gold-lined cape and a man in a bazaar in Lahore. *People see what you show them, Harry. Nearly everyone. Nearly always.* He was thinking about how he had pushed shame into Aunt Marge, which was a feeling, and how a feeling was a thing you could push. And how, if you could push a feeling, perhaps you could push a picture.
+
+"A coin," he said.
+
+* * *
+
+He tried it on Millicent at breakfast on the Thursday.
+
+He did not tell her first. He knew that he ought to, after Theo, and he did not, because he thought that if Millicent knew there was supposed to be a coin she would see one whether he managed it or not, out of loyalty, and then he would never know.
+
+So he sat at the Slytherin table with his toast, and he took a Galleon out of his pocket and looked at it, very carefully, under the table, for a long time. He looked at the gold of it and the little dragon stamped on one side and the number round the edge. He held it in his head the way the book said, until he could see it with his eyes shut. Then he put it back in his pocket.
+
+Then he looked at the empty place on the table beside Millicent's plate, between her plate and the marmalade, and he set the Galleon there.
+
+He did not know how. That was the strange thing. He did it the way he had pushed shame into Aunt Marge, by deciding to, and reaching, and putting it. Only he did not put it into her. He put it in front of her. He put it on the table, in her eyes, the way the book said, like a lamp in a window.
+
+Millicent looked down.
+
+"Somebody's dropped a Galleon," she said.
+
+Harry did not breathe.
+
+"Is it yours, Theo?"
+
+"No," said Theo, looking at it. "Not mine."
+
+He could see it too. Harry had not set it for Theo. He had set it on the table, for whoever looked.
+
+Millicent picked it up.
+
+She reached for it, quite naturally, and her fingers closed on the place where it was, and closed on nothing, on the wood of the table, and she frowned and looked down, and the Galleon was still there, between her plate and the marmalade, shining. She tried again. Her fingers went through it again and touched the table again.
+
+"What," said Millicent.
+
+Harry let it go.
+
+He did not do anything. He stopped holding it, the way you stop holding a door, and when Millicent looked down a third time the Galleon was gone.
+
+Millicent looked at the table. Then at Theo. Then, slowly, at Harry.
+
+"Potter," she said. "What did you just do?"
+
+"Nothing," said Harry.
+
+He found that he was grinning. He could not stop.
+
+"Do it again," said Theo, very quietly.
+
+"I'll do it tonight," said Harry. "Not here."
+
+* * *
+
+He did it that night in the round room, and Evelyn was there.
+
+He had told her about breakfast. He had told her in the corridor on the way down, very fast, the way he had not told anybody anything since he was small, and she had listened all the way to the bathroom without saying anything and then said, "Show me."
+
+Now she sat on her cushion on the floor of Slytherin's study with her back against the shelves and her hands in her lap and watched him.
+
+Harry took out the Galleon. He looked at it. He held it in his head until it was perfectly clear, every line of the dragon. He put it back in his pocket.
+
+He set it on the black stone desk, in the middle, under the lamp.
+
+He could see it. He knew it was not there, and he could see it anyway, the way you can see a picture you are remembering with your eyes open. It shone in the cold green light.
+
+"Well?" he said.
+
+Evelyn looked at the desk.
+
+She looked at it for quite a long time. She tilted her head. She looked at it from her cushion, and then she got up and walked to the desk and looked at it from directly above, and then she looked at it from the side, with her eye level with the stone.
+
+"There's no coin, Potter," she said.
+
+Harry kept holding it.
+
+"It's right there," he said. "In the middle. Under the lamp."
+
+"There's nothing in the middle." She put her hand flat on the stone, in exactly the place where the coin was. Her hand went through it, or it did not go through it, because for her there was nothing there to go through. "There's the desk. There's the lamp. There's some sort of mark on the stone, there, that looks like a ring from a cup, which I'd have thought was impossible after a thousand years. There's no coin."
+
+Harry let go of it.
+
+He tried again. He tried harder. He held the Galleon in his mind until it was so clear that it was almost more real than the real one in his pocket, and he set it on the desk again, and then he set it in her hand, and then he set it on the floor at her feet.
+
+She did not look down.
+
+"Potter," she said. "I can see you doing it. Your face does a thing. But there isn't anything there."
+
+He stopped.
+
+He stood by the desk in the cold light and looked at her, and she looked back at him, and her face was the same as always, the face people forgot, and there was nothing behind it, the way there had never been anything behind it.
+
+He had made Millicent reach for a coin three times. He had made Theo see one that he had not even set for Theo. He would have bet, standing there, that he could have set that coin on the desk for anybody in the castle, for Snape, for McGonagall, for the Bloody Baron.
+
+Not for her.
+
+"Does it bother you?" she said.
+
+He thought about it.
+
+He had expected it to. He had expected to be angry, or frustrated, or to feel the way he had felt on the first day in the Great Hall when he had found that he could not read her and had spent nine days trying.
+
+He did not feel any of that.
+
+He felt something he did not have a word for. It was the feeling of putting your foot down in the dark and finding the floor exactly where you had thought it would be.
+
+"No," he said.
+
+Evelyn nodded. She went back to her cushion and sat down and picked up the black book.
+
+"Good," she said. "Because I don't think I'm going to be able to help it."
+
+* * *
+
+Slytherin played Hufflepuff on the first Saturday in November, in the worst storm anybody could remember.
+
+The rain came sideways off the lake. The wind was so strong that the players had to lean into it to walk out onto the pitch, and the stands were a blur of umbrellas and hoods, and Lee Jordan's commentary blew away in pieces over the forest. Harry could not see the far goalposts. He could not see Cedric Diggory, the Hufflepuff Seeker, who was tall and fair and in his fifth year and whom Harry had read once in a corridor and found decent all the way down, which had irritated him.
+
+He could feel everybody, though.
+
+That was the strange thing. He could not see anything, and the noise of the rain was so loud he could not hear the crowd. But the crowd was there, in the stands, the whole school, cold and wet and excited, and he could feel all of it, a great grey roar of weather under the real weather. He turned it down. He found Evelyn in the Slytherin stand, the one still place in all of it, and rested on her.
+
+He flew.
+
+He flew for an hour and a half. He was soaked to the skin within a minute, and his glasses were useless, and Flint called a time-out in the middle and Hermione Granger, of all people, came down from the Gryffindor stand and did something to his glasses with her wand that made them repel water, and went back up without a word. Harry read her as she went. She had done it because it was raining and he could not see. That was all. She did not like him any better.
+
+Then the cold came.
+
+He felt it before he saw anything. He felt the crowd change. The great grey roar of weather went out, all at once, the way a radio goes dead when the plug is pulled, and something flat and endless came up under it.
+
+He looked down.
+
+There were Dementors on the pitch.
+
+There were a hundred of them, at least. They were standing on the grass in the rain, their hooded faces turned up towards him, and more were gliding in from the edge of the forest, and they were all looking at him. And the cold was coming up from them like water rising in a flooded room.
+
+He read them, because he could not help it.
+
+Appetite. Appetite. Appetite, a hundred times over, all of it flat and grey and endless, all of it turned up towards him like a field of grey flowers turned up towards the sun.
+
+And the woman began to scream.
+
+She was begging. She was begging somebody to leave her son alone, to take her and leave him, and a cold high voice was telling her to get out of the way, almost patiently, the way you might tell a dog to get off a chair.
+
+He knew the voice now. He knew whose it was. He did not know how he knew, but he knew, and he did not want to know, and the green light came, and the cold rose over his head, and the last thing he felt before he went was a hundred faces turned up towards him in the rain, hungry, hungry, hungry.
+
+* * *
+
+"…fifty feet," Millicent was saying. "Fifty feet, at least. I counted the stands. He went off his broom like a sack."
+
+"Forty-three," said Evelyn's voice. "Approximately. Dumbledore slowed him down."
+
+"Dumbledore ran onto the pitch," said Theo's voice. "I've never seen him run. He did something with his wand and you slowed down, and then he turned round and did something silver at the Dementors, and they went. I've never seen him angry. He was angry."
+
+Harry opened his eyes.
+
+He was in the hospital wing. It was dark outside, and the rain was still hammering on the high windows, and the lamps were lit. Theo and Millicent were at the end of his bed, and they were both still in their wet cloaks, and Millicent's hair was stuck to her head in a fringe that went all the way down to her eyebrows. Evelyn was on a chair by the window with a book that she was not reading.
+
+He read them.
+
+He read Millicent first, because she was loudest. She was relieved, and the relief was so large it had pushed everything else out, and under it, still there, a fright that would take days to go down.
+
+He read Theo. Relieved. Quiet. Under it, a small, sharp worry, aimed at Harry, that was not about the fall.
+
+"We lost," said Harry.
+
+"Diggory got the Snitch," said Theo. "He didn't know you'd fallen. When he found out he wanted to have it played again. Flint said no."
+
+"Flint said no," said Harry.
+
+"Flint said a win was a win, and that it wasn't Hufflepuff's fault the Ministry let a hundred Dementors onto the pitch, and that he wasn't going to have it said that Slytherin was a bad loser." Theo paused. "Then he kicked a bench over."
+
+"What happened to my broom?"
+
+They looked at each other.
+
+"It blew away," said Millicent. "When you fell. It blew away in the wind. Across the grounds." She stopped.
+
+"Into the Whomping Willow," said Evelyn.
+
+Millicent bent down and lifted something from beside the bed. It was a bag. She tipped it out on the blanket. There were a lot of splinters of wood, and some twigs, and a long piece of polished handle that still said *imbus Two Thou* on the side in gold.
+
+Harry looked at it.
+
+He did not say anything.
+
+He thought that it was the broom Lucius Malfoy had bought, to put his son on the team, and that it was the broom Harry had taken because it was the better broom, and that he had known exactly what he was doing when he took it.
+
+He found that he minded it more than that.
+
+"Potter," said Evelyn, from the window.
+
+"What?"
+
+"When they came onto the pitch. Everybody in the stand went quiet. Everybody. Bulstrode was crying. Nott looked like he'd seen something. The girl next to me was sick." She closed her book. "I was cold. That was all. I was cold, and I didn't like it. And then I looked round the stand and I was the only person in it who wasn't somewhere else."
+
+She looked at him across the dark ward.
+
+"What did you hear?" she said.
+
+Harry looked at the ceiling.
+
+"My mother," he said.
+
+Nobody said anything after that for a long time.
+
+* * *
+
+Professor Lupin had been ill on the day of the match. He came back to the castle on the Monday, looking greyer than ever, and Harry went to his office after Defence on the Tuesday and knocked on the door.
+
+"Harry," said Lupin. "Come in. I heard about Saturday. I'm sorry about your broom."
+
+Harry came in.
+
+Lupin's office was small and untidy and full of things in tanks. There was a Grindylow in one of them, green and sharp-horned, pressed against the glass. There was a kettle. Lupin put it on.
+
+Harry read him.
+
+The kindness was there on top, as always, and it was worried, and it was very tired. The guilt was there underneath. It was as smooth as ever, and it was still pointed at Harry, and Lupin still had no idea that Harry could feel it.
+
+Harry thought about that.
+
+He thought about it while Lupin made the tea and found a chipped mug and apologised for not having any milk. He thought about the Boggart in the staffroom and the way Lupin had stepped in front of him. He thought about the guilt, old and smooth as a doorstep, and what it might be for.
+
+He had come to ask a question. He had planned it in the corridor. It was a good question and it would have worked, most likely.
+
+He decided to ask a better one.
+
+"Sir," he said. "Did you know my father?"
+
+Lupin put the teapot down.
+
+Harry read him, very carefully, the whole of him at once. And the guilt came up. It came right up, past the kindness, past the tiredness, all the way to the top, and it stayed there for about two seconds, quite naked, and then Lupin put it away again.
+
+"Yes," said Lupin. "I did. We were at school together. We were friends." He poured the tea. His hand was steady. "How did you know?"
+
+"You look at me as though I remind you of someone."
+
+That was true, and it was not the reason. Lupin did not need to know the reason.
+
+"I suppose I do," said Lupin. He gave Harry the chipped mug. "You're very like him. Except for the eyes. You've got your mother's eyes." He smiled, a little crookedly. "Everybody tells you that, I expect."
+
+"Nobody tells me anything," said Harry.
+
+Lupin's smile went.
+
+Harry read him. It had gone in. He had known it would. It had gone straight into the place where the guilt was and pressed on it, and Lupin felt it, and did not know why it hurt so much, and did not know that Harry had chosen it for exactly that.
+
+Harry did not feel bad about it.
+
+He noticed that he did not.
+
+"The Dementors," he said. "On the train, and on the pitch. Why do they affect me worse than anyone else?"
+
+Lupin looked at him for a while.
+
+"Because you have more for them to take," he said quietly. "They feed on the good things in us. Happiness. Hope. And they leave us with the worst things. The worst things that ever happened to us. And the worst thing that ever happened to you…" He did not finish.
+
+"I could hear her," said Harry. "My mother. She was saying not Harry. And then somebody laughed."
+
+Lupin closed his eyes.
+
+"Teach me," said Harry. "To fight them. You did something on the train. Dumbledore did something on the pitch. Something silver. Teach me how."
+
+"It's very advanced magic, Harry. It's well beyond Ordinary Wizarding Level. Most fully qualified wizards can't…"
+
+"Teach me," said Harry again, quite quietly.
+
+He did not push. He did not have to. He only looked at Lupin with his father's face and his mother's eyes, and waited, and read the guilt in Lupin rise up and look at him, and look away, and come to a decision.
+
+"Thursday evenings," said Lupin. "Eight o'clock. The History of Magic classroom. Binns doesn't use it after dark." He picked up his own tea. "I can't promise anything, Harry. It's very hard."
+
+"Thank you, sir."
+
+He went out.
+
+He stood in the corridor outside Lupin's office for a while, in the cold, with his hands in his pockets.
+
+He thought about the way the guilt had come up. He thought about how he had known exactly where to press, and how it had been easy, and how Lupin was a kind man who had stepped in front of him in a staffroom to stop him being frightened in front of his class.
+
+He thought that he could have asked for the lessons without any of that, and that Lupin would probably have said yes.
+
+He thought that probably was not certainly.
+
+He went down to supper.
+
+* * *
+
+The first lesson was on the second Thursday in November.
+
+The History of Magic classroom was cold and empty, and the desks had been pushed back against the walls, and Lupin was waiting in the middle of it with his wand.
+
+"It's called the Patronus Charm," he said. "Think of it as a guardian. You make it out of the one thing a Dementor can't stomach, which is a person who is, for a moment, genuinely glad to be alive." He turned his wand in his fingers. "It goes and stands between you and them. They can't get through it, because there's nothing in it for them to eat. To make one, you need a memory. The happiest you have. You let it fill you up, and then you say the words. *Expecto patronum*."
+
+"A memory," said Harry.
+
+"A happy memory. Not a pleasant one. A happy one. There's a difference."
+
+Harry thought.
+
+He thought about the sky above the Quidditch pitch, the very top of it, where he could not feel anybody. He thought about the Leaky Cauldron in August, Fortescue's and the sun. He thought about Lockhart in a white ward full of singing flowers saying *Eat a grape*.
+
+He chose the first time he had flown.
+
+"*Expecto patronum*," he said.
+
+Nothing happened. A wisp of silver came off the end of his wand, very thin, like the steam off a cup of tea, and then it was gone.
+
+"Again," said Lupin. "Don't think about the memory. Feel it."
+
+Harry stopped.
+
+He stood in the middle of the cold classroom with his wand in his hand, and he thought about what Lupin had just said.
+
+Don't think about it. Feel it. Fill yourself up with it. And then put it outside you, in a shape, between you and the thing that wants to eat you.
+
+It was a feeling. That was all a Patronus was. It was a feeling, a very large one, made larger, and sent out of you.
+
+He had done that before.
+
+He had done it on the floor of a stone room with his parents in a mirror, with a man's hands round his throat. He had found a feeling and made it larger and put it into somebody, and the somebody had picked up his wand and turned it on the back of his own head. And he had done it again in August, at a dinner table, with a fork in his hand, quite calmly, and a woman had wept for an hour.
+
+He had always put it into someone.
+
+This was the same thing. It was exactly the same thing. Only it went out, and not in. It did not go into anybody. It went out into the air, clean, and stood there, and kept the dark off.
+
+He lifted his wand.
+
+He did not think about flying. He felt it. He let it come up in him and fill him, the wind and the height and the quiet, the whole school a long way down and not one feeling in it reaching him, and then he took hold of all of it, the way he had taken hold of the shame at Aunt Marge's table, and he made it larger, and he pushed.
+
+"*Expecto patronum*."
+
+Silver came out of his wand.
+
+This time there was a great bright rush of it, like breath on a cold morning, and it hung in the air in front of him for nearly five seconds, shapeless and shining and as wide as a door, and then it went.
+
+Lupin was staring at him.
+
+"Well," he said, after a moment. "Well. Harry. That was… on a first lesson. That was really very good indeed."
+
+Harry read him. He was astonished. He was pleased, really pleased, the way teachers are pleased. And under that there was something new, very small and very quick, there and gone. It was the feeling of a man who has handed somebody a tool and seen him pick it up by the wrong end and use it better than he can.
+
+"How did you do that?" said Lupin.
+
+"I don't know," said Harry. "I just did what you said."
+
+He did not tell him the rest.
+
+* * *
+
+"*Here the hand changes*," said Evelyn.
+
+It was very late, the last Tuesday in November, and they were at the end of the small black book. It had taken them five weeks. Evelyn had filled her notebook and started another. Harry had learned the first seven exercises and could do six of them, and he could set a Galleon on a table in front of anybody in the castle except her, and he could see into Theo's eyes, when Theo let him, and see the chessboard there and nothing else, because he did not go further any more.
+
+"What do you mean, it changes?"
+
+"The handwriting. Look." She held it out. "All the way through it's him. Small, crowded, upright. And then, for the last six pages, it's somebody else. Bigger. It slopes. It's in different ink. It's still Latin, but the Latin's worse." She turned the book back towards her. "I think somebody finished it for him. Afterwards."
+
+"Read it."
+
+She read it.
+
+"*He was the first of us, and the greatest, and he did not reach the top, for he did not wish to. He said that a man who reads hearts and stands too high will forget that he has one. He walked his road all his life and was content to walk it.*" She stopped. "*Walked*. *Ambulavit.* It's a strange word to use."
+
+Harry thought, for no reason he could have given, of a story about an old man on a wall at Tengboche who looked at an avalanche as though it were a cow in the wrong field.
+
+"Go on," he said.
+
+"*The roads are open to many, but no divided thing may stand upon a summit.*" She frowned. "*Nihil divisum.* No divided thing. *In fastigio.* On a summit. On a height. On the top of something."
+
+"What does it mean?"
+
+"I don't know. It doesn't say. It just says it, as though anybody would know." She read it again under her breath. "*The roads are open to many, but no divided thing may stand upon a summit.* I don't know what a road is, here. Or a summit. Or what's divided."
+
+"Neither do I," said Harry.
+
+They sat with it for a moment. The lamp burned cold and green and steady over the desk.
+
+"There's one more bit," said Evelyn. "On the last page. It's a list. Names. People who studied with him, I think. Pupils." She ran her finger down it. "*Wulfric, who returned to the north. Edith of the Fens, who would not learn. Aldric*, that's the clumsy one, *who was sent away.*"
+
+"What does it say about Aldric?"
+
+"Just that he was sent away." She went on. "And the last one. *Oswin, his own apprentice, who walked the way of seeming, and was the most gifted of all of us, and at the height of it could not find the door back to himself.*"
+
+She stopped.
+
+Harry did not say anything for a while.
+
+"The way of seeming," he said at last.
+
+"*Via simulationis.* Seeming. Showing. Making things look like what they're not." She looked at him. "Like a coin."
+
+He did not answer that.
+
+He was looking at the lamp. He was thinking about a Galleon between a plate and a pot of marmalade, and Millicent's fingers closing on nothing, three times. He was thinking about how he had grinned, and not been able to stop.
+
+"Read it again," he said.
+
+Evelyn looked at him for a moment. Then she looked down at the page and read it again, in the same flat voice, exactly as before, without changing a word.
+
+"*Oswin, his own apprentice, who walked the way of seeming, and was the most gifted of all of us, and at the height of it could not find the door back to himself.*"
 
 <->
