@@ -20935,3 +20935,685 @@ She held it in her hand for a moment, closed, not ticking, the ivy leaves worn s
 "I don't know," she said. "I intend to find out."
 
 <->
+
+## Chapter 34: The Letter in the Will
+
+The will was read on the fourteenth of July, a Thursday, at eleven o'clock in the morning, in the long drawing room at Selwyn Hall, under the portrait of Evelyn's great-great-grandfather, who sniffed.
+
+He sniffed at the solicitor when the solicitor came in. He sniffed at Father. He sniffed at Lucan, who was wearing a new grey suit and had come down by the Floo from London that morning and was looking at his watch. He did not sniff at Mother, because Mother had not come in yet, and he did not sniff at Evelyn, because he never had. She had decided some years ago that this was not a compliment. He did not sniff at the hatstand either.
+
+The solicitor was a Mr Aldous Prynne, of Prynne, Prynne and Hollis, Chancery Lane. He was very old and very dry and very thin, like something that had been pressed in a book, and he had a black leather case with brass corners, and he sat at the end of the long table and opened it and took out a document tied with pink tape and did not look at any of them.
+
+Evelyn counted the people in the room.
+
+Father, at the head of the table, very still, with his hands folded. Lucan beside him. Herself, at the far end, by the window, in black. Two of the elves, at the door, because Grandmother had left them something and the law said they had to be present to hear it. Mr Prynne. The portrait.
+
+Mother came in at four minutes past eleven.
+
+She was in black too, a long black dress that had been made for her own father's memorial in nineteen sixty-something, Evelyn thought, and taken in since. She had powdered over something. She sat down next to Evelyn instead of next to Father, which she did not usually do, and she put her hand on the table, and Evelyn could see that it shook slightly.
+
+It was a quarter past eleven before Mr Prynne began.
+
+He read in a voice like a dry leaf being turned over. *I, Isadora Margaret Hale, of Selwyn Hall in the County of Shropshire, being of sound mind.* Mother made a small sound at *sound mind*. Father did not look at her.
+
+The bequests were small. Grandmother had not had much that was her own, Evelyn knew. She had come to England in nineteen forty-five with a daughter and a trunk, and married nobody, and lived for forty-nine years in the east wing of her son-in-law's house, and had never once in Evelyn's hearing asked for anything.
+
+Her clothes to be given away. Her books to Evelyn. Her furniture to remain in the east wing, as it was the property of the house. A sum of money to each of the elves, which the elves were not, by law, permitted to take, and which Mr Prynne read out anyway, in the same dry voice, as though it were the most ordinary thing in the world, and which made the older elf, who was called Pinch and was a hundred and forty, cover her face with her ears. A small sum to Marguerite. A smaller sum to Lucan, *in the hope that he will spend it on something he does not need to be seen with*. Lucan smiled at that, very white. The portrait sniffed.
+
+Nothing to Father.
+
+Father did not change his expression at all.
+
+Then Mr Prynne put down the document, and took something else out of the black case, and turned it over in his long dry fingers, and for the first time that morning he looked up.
+
+He looked at Evelyn.
+
+"There is a further item," he said. "A letter. Sealed. It is addressed to Miss Evelyn Selwyn and to nobody else, and the instructions of the deceased are that it is to be placed in Miss Selwyn's hand, unopened, and that nobody else present is to ask her its contents." He paused. "Those were the words. *Nobody else present is to ask her.*"
+
+He held it out down the length of the table.
+
+Father did not move. Lucan looked at it with interest. Mother's hand, on the table, went flat.
+
+Evelyn got up and walked the length of the long table, eleven steps, and took the letter from Mr Prynne's fingers. It was a plain cream envelope, the good paper from the writing desk in the east wing, and on it, in her grandmother's hand, very upright, very black, it said *Evelyn*.
+
+The seal was grey wax. There was no crest in it. There was a thumbprint.
+
+"Thank you," said Evelyn.
+
+She did not open it. She put it in the pocket of her black cardigan, the left one, where the watch was not, and buttoned the pocket, and went back to her chair, eleven steps, and sat down.
+
+Nobody asked her.
+
+* * *
+
+She read it on the yew walk, at twelve minutes to one, sitting on the stone bench at the far end, between the hundred and eleventh and the hundred and twelfth yews on the left.
+
+She had chosen the bench because nobody ever came to it. She had chosen the time because Father would be in the study with Lucan, and Mother would be in the small sitting room with the decanter, and the elves would be laying lunch, and there was nobody else.
+
+It was a hot day. The yews were very dark and very still and the gravel was white in the sun. A blackbird was turning over leaves at the foot of the hedge.
+
+She broke the seal.
+
+There were two sheets. They were covered on both sides in her grandmother's hand, upright and black and very even, every line the same distance from the one above it. Evelyn had been reading that hand since she was four. She had read it on the flyleaves of books and on the backs of envelopes and on a note in *The Nine Tailors* that said *bells are also a kind of clock*.
+
+She read the first line.
+
+*Your grandfather is alive, and his name is Gellert.*
+
+She read it again.
+
+Then she put the two sheets face down on the stone bench beside her and sat with her hands in her lap and looked at the yews.
+
+There was only one Gellert.
+
+She had known that from the moment her eyes reached the end of the line. She had read every history book in the library at Selwyn Hall and most of the ones at Hogwarts, and there was only one Gellert in any of them, and he had a chapter to himself in all of them, and in most of them the chapter had a photograph, and in the photograph he was young and fair and smiling at something just outside the frame.
+
+She sat on the bench and looked at the yews for some time.
+
+She did not know how long. She did not count. She noticed that afterwards, and it was the thing she noticed most: that for some minutes, sitting on a stone bench on the yew walk with two sheets of her grandmother's paper face down beside her, she had not counted anything at all.
+
+Then she picked up the letter and read the rest of it.
+
+*I am sorry to tell you like this. I am sorry to tell you at all, and sorrier that I did not tell you when I was alive to answer for it. I had a great many reasons. Most of them were good. You may decide for yourself, when you have read the rest, which of them were not.*
+
+*I went to the Continent in nineteen thirty-three. I was twenty-one. I met him in Paris in the autumn of that year and I stayed with him for eleven years. I knew what he was. You will hear, all your life, that nobody knew what he was until it was too late. That is a lie that a great many people found convenient. I knew. I stayed. You may make of that what you like. I have made a great deal of it, in fifty years, and I have not yet finished.*
+
+*Your mother was born in nineteen forty-three. In nineteen forty-four I saw something that made me leave him. I will not tell you what it was. He will, if you ask him. He will tell you it was the only argument he ever lost. That is very nearly true.*
+
+*I came home in nineteen forty-five with your mother and a new name. Nobody asked. In nineteen forty-five nobody asked anybody anything. I married nobody. I lived quietly. Your mother married Corvin Selwyn in nineteen seventy-two because she was frightened and he was not, and I let her, because I was tired. He does not know whose daughter she is. He must never know. You will understand why, when you have known your father a little longer.*
+
+*The lessons were for this.*
+
+*You have asked me, I think, in your head, every morning since you were five, what the lessons were for. You never asked me aloud. I was grateful, and a little ashamed of being grateful.*
+
+*They were so that nobody could ever find this in you. Not your father. Not the Ministry. Not any of the people who will one day want very much to find it. A lady's thoughts are her own, Evelyn. That is not a family saying. My mother never said it. I invented it the morning I began to teach you, so that you would have a reason that sounded like a family's, and not a reason that sounded like a fugitive's.*
+
+*He is in a tower in Austria. He has been in it since nineteen forty-five. He will write to you. He told me so, the last time I heard from him, which was in nineteen seventy-nine, in March, a week after you were born. He said that he had seen you. He said a great many other things. He was always a great deal too fond of saying things.*
+
+*You may answer him, or not, as you like. I will not tell you which. I have never told you what to do with anything that was yours, and I will not begin now that I am dead.*
+
+*Wind the watch.*
+
+*I.*
+
+That was all.
+
+She read it three times.
+
+The third time, she read only the line about the lessons, and the line after it, and then she folded the two sheets along their creases, exactly, and put them back in the envelope, and put the envelope back in the left pocket of her cardigan, and buttoned it.
+
+She put her hand on the right pocket.
+
+The watch was there. Small and round and hard, under the wool. It was not ticking. It had not ticked since a room full of clocks in a world she could not get back to, and she had tried it every morning for four months, and the crown went round and round and nothing caught.
+
+*He will write to you.*
+
+She thought: *I'm going to find out who made it.*
+
+She thought: *I intend to find out.*
+
+She thought about an old man in a goat-smelling pub, going still, turning the watch over with one finger, looking at a mark on the back of the case. *I've seen that mark more than I'd ever want to.*
+
+She took the watch out.
+
+She turned it over and looked at the mark on the back of the case, under the ivy leaves. It was very small and worn almost smooth. A triangle. Inside it, a circle. Through both, a line.
+
+She had seen it before. She had seen it in a book in the library at Hogwarts, in her second year, in a chapter with a photograph of a young fair man smiling at something just outside the frame. It had been carved on a wall in Austria. She had looked at it and turned the page.
+
+Evelyn sat on the stone bench with the watch in her hand and the sun on the gravel and the blackbird turning over leaves, and she did not move for a long time.
+
+* * *
+
+Mother was in the small sitting room.
+
+She was in the chair by the window with the decanter on the table beside her and a glass in her hand, and the curtains were half drawn against the sun, and she was looking at nothing. It was eleven minutes past one. She had changed out of the black dress into a green one.
+
+Evelyn stood in the doorway.
+
+"Darling," said Mother. "There you are. Come and sit. Lunch is going to be dreadful, I can tell, your father's in one of his…"
+
+Evelyn held up the envelope.
+
+She did not say anything. She held it up, so that Mother could see her grandmother's hand on the front, very upright, very black, *Evelyn*, and the broken grey seal with the thumbprint in it.
+
+Mother looked at it.
+
+Evelyn watched her face. She could not do what Potter did. She had never been able to do anything of the kind and had never wanted to. But she had been watching her mother's face since she was old enough to sit up, and she knew it the way she knew the yews, and she watched it now, and she saw the moment when her mother understood.
+
+It was very small. It was a kind of settling. As though something that had been held up for a very long time, fifty years, had been put down at last, and the arms that had held it had not known until that moment how tired they were.
+
+Then Mother began to cry.
+
+She did it quite quietly. She did not put the glass down. She sat in the chair by the window with the glass in her hand and the tears running down over the powder, and she looked at Evelyn, and she said, "Yes."
+
+Evelyn did not move.
+
+"Yes," said Mother again. "Yes, darling. It's true. All of it. Whatever she's said. It's true." She wiped her face with the back of the hand that held the glass, and some of the gin went on her dress. "I'm sorry. I'm so sorry. I wanted to tell you. I always wanted to tell you. She said not to. She said you'd be safer. She said, when she's old enough, she'll know, and I'll tell her, and not before, Marguerite, not before. And I was so…" She stopped. "I was so frightened, darling. All my life. I've been so frightened all my life."
+
+"I know," said Evelyn.
+
+She did know. She had always known. She had not known of what.
+
+"You mustn't tell your father," said Mother. She leaned forward suddenly and caught Evelyn's wrist. Her hand was very hot. "Evelyn. You mustn't. Not ever. Not Lucan either. Corvin must never, ever know. Promise me. Promise me, darling."
+
+Evelyn looked at the hand on her wrist.
+
+"I promise," she said.
+
+Mother let go. She sat back in the chair. She looked at the glass in her hand as though she did not know how it had got there, and then she drank what was left in it, and put it down on the table beside the decanter, very carefully, with a small click.
+
+"She used to say I took after my father," said Mother. She laughed. It was a dreadful little laugh, high and thin. "Can you imagine? Me. I could never decide anything." She looked at the window. "He decided everything. Whole countries. And I can't decide whether to have lunch."
+
+Evelyn looked at the clock on the mantelpiece.
+
+It was fourteen minutes past one.
+
+She noted it. She did not know why. She thought afterwards that it was because it was the first time in her life her mother had told her the truth about anything, and she had wanted to know what time it was when it happened.
+
+* * *
+
+She did not tell anybody.
+
+She wrote to Potter on the Saturday. She had written to him every eleven days since June, the way she had every summer, and she did not see why this summer should be different. She sat at the desk in her room in the west wing with the window open and the yews dark below it, and she wrote him a letter.
+
+*Potter,*
+
+*It is very hot. The thermometer outside the kitchen door said eighty-four on Thursday, which the elves say is the hottest since 1976. Pinch says 1976 was worse because of the ladybirds. I don't remember the ladybirds. I was not born.*
+
+*I am reading* Gaudy Night *again. It is the best of them. You will disagree when you read it, which you won't. Harriet Vane spends four hundred pages deciding whether to marry somebody, which you will find tiresome, but the real thing is the college, and the people in it, and somebody writing poison-pen letters, and nobody being able to work out who because they are all too clever. It is about what happens when clever people lie to each other. I recommend it.*
+
+*Father has asked whether you would like to come to the World Cup. He has a box. I expect he will write to you himself. I expect you will say yes.*
+
+*The watch still does not work. I try it every morning.*
+
+*E.S.*
+
+She read it over twice.
+
+There was nothing in it that was not true. It had been hot. Pinch had said that about the ladybirds. She was reading *Gaudy Night*. Father had asked.
+
+She looked at the line about clever people lying to each other.
+
+She thought about crossing it out, and did not, because crossing things out made a letter look as though there were something under it.
+
+She sealed it and gave it to Cato.
+
+* * *
+
+Corvin Selwyn's invitation came on the second of August, by a large Ministry owl with a band on its leg, and Harry read it at the kitchen table in Privet Drive with Uncle Vernon watching him over the top of the *Daily Mail*.
+
+It was on very thick paper. It was written in a small, upright, perfectly even hand, in grey ink, and it said that Mr Corvin Selwyn would be honoured if Mr Harry Potter would join him as his guest at the final of the four hundred and twenty-second Quidditch World Cup, Ireland against Bulgaria, on the twenty-second of August, in his box. It said that Mr Selwyn's son would call for Mr Potter on the morning of the twenty-first, if that was convenient. It said that Mr Selwyn's daughter had mentioned that Mr Potter might enjoy it.
+
+Harry read it twice.
+
+He could not read the paper, of course. He never could read paper. But he read the hand, the way Evelyn had taught him to read hands without ever meaning to, and it was the hand of a man who had never once in his life written a word he had not meant to be read by somebody else.
+
+He thought about Lucan in the Slytherin common room, by the far window, adding something to the total.
+
+He thought about a man who had sat in Fudge's office for a whole day, not saying anything, when his daughter was Petrified, which Fudge said was worse than shouting.
+
+He thought that a Wizengamot member did not invite a fourteen-year-old to the World Cup final because his daughter had mentioned that he might enjoy it.
+
+He thought that it would be a very good place to be seen.
+
+"Well?" said Uncle Vernon. "What is it? Another one of your lot?"
+
+"It's an invitation," said Harry. "To a sporting event. From a friend's father. He's on a sort of… parliament."
+
+Uncle Vernon's eyes narrowed. Harry read him. The fear was there, the old fear that had come back on the night of Aunt Marge and had not gone down since, and on top of it, smaller, a flicker of something else. It was the thing in Vernon that had always been impressed by men who were on things.
+
+"Parliament," said Vernon.
+
+"Sort of."
+
+"Hmph," said Vernon, and went back to the *Daily Mail*, and Harry read him think about it for the rest of breakfast, and decide that it would get Harry out of the house for the last ten days of the holidays, and that this was worth any amount of parliament.
+
+* * *
+
+Lucan Selwyn came for him on the twenty-first, at ten in the morning, in a Ministry car.
+
+It was long and black and very polished and it pulled up outside number four Privet Drive and sat there with its engine purring, and every curtain on the street moved. Lucan got out of the back of it in a grey suit, Muggle cut, very good, and walked up the path, and rang the bell, and when Petunia opened the door he smiled at her with all his teeth and said, "Mrs Dursley. How do you do. Lucan Selwyn. I've come for Harry."
+
+Petunia stared at him.
+
+Harry, behind her in the hall with his trunk, read her. She was frightened, as she always was now when anything from his world came to the door. But on top of the fright, quite clearly, there was something else, and Harry had never felt it in her before. She was dazzled. She was dazzled by the car and the suit and the teeth and the voice, which was the voice of a man who had been to the sort of school Dudley's school pretended to be.
+
+"Oh," she said. "Yes. Of course. Do come… would you like…"
+
+"I won't, thank you. We're rather pressed." Lucan looked past her at Harry. "Morning, Potter. All set?"
+
+"Yes."
+
+"Splendid." He picked up the end of Harry's trunk as though it weighed nothing and carried it down the path to the car, and the driver got out and put it in the boot, and Lucan held the back door open, and Harry got in.
+
+He looked back once.
+
+Petunia was standing on the doorstep with her hand on the door, watching the car. Behind her, in the hall, Uncle Vernon had come out of the sitting room and was standing very still, looking at the car too, with his newspaper in his hand.
+
+Harry read him.
+
+Vernon was afraid. He was more afraid than he had been since Marge. The car did not frighten him, and Lucan did not. The thought did: that Harry had friends who sent cars like this, and that there were men in Harry's world who were on things, and that one day, perhaps, the boy who had lived in his cupboard would come back to Privet Drive in a car like this himself.
+
+The car pulled away.
+
+"Charming woman, your aunt," said Lucan. "Was that your uncle? Big chap?"
+
+"Yes."
+
+"He looked as though he'd seen a ghost." Lucan smiled. "People do, when they see Father's car. I used to think it was the car. It isn't." He looked out of the window at Privet Drive going past, the neat lawns and the washed cars. "Father's very pleased you could come, Potter. He'll want to introduce you to a great many people tomorrow. You'll be very kind about it, won't you?"
+
+Harry read him.
+
+He was pleasant. He was always pleasant. Under the pleasantness there was the calculation, the one that never stopped, that had been going since Harry was eleven and Lucan was a sixth-year with a prefect's badge starting the applause at the Sorting. And under the calculation, today, there was something Harry had not felt in Lucan before.
+
+It was tiredness.
+
+It was very small and very well hidden. It was the tiredness of a young man who had been working for his father for a year and had found that it was not what he had thought it would be.
+
+"Yes," said Harry. "I'll be very kind about it."
+
+"Good man," said Lucan.
+
+* * *
+
+Evelyn was in black.
+
+Harry had known she would be. He had known since March, since an owl at breakfast and a letter folded twice. But he had not seen her in it at Selwyn Hall, in the long cold hall with the portrait sniffing over the fireplace, and he stopped in the doorway when he saw her coming down the stairs.
+
+"Potter," she said.
+
+"Hello."
+
+She came down the last six stairs. She was in a black dress and a black cardigan, and her hair was tied back very tightly with a black band, and she had her hands in her cardigan pockets, both of them.
+
+She looked the same.
+
+She looked exactly the same as she always looked. She had the same face, the one people forgot. She walked the same way, at exactly her own pace. She stood at the bottom of the stairs and looked at him, and he could not read her, and he had never been able to read her, and nothing about that was different.
+
+And something was different.
+
+He did not know what. He stood in the doorway of the hall at Selwyn Hall with his trunk on the step behind him and Lucan saying something to the driver, and he looked at her, and he thought that it was like the moment in the entrance hall in February, when she came back from the funeral, and he had thought she had closed a second door behind the first.
+
+He thought she had closed a third.
+
+"How are you?" he said.
+
+"I'm fine," said Evelyn.
+
+"Are you?"
+
+"Yes," she said. "I'm fine. Thank you." She took one hand out of her pocket and held it out for his bag, which he did not need carrying, and which she did not usually offer to carry. "You're in the blue room again. Next to the Blue Lady. Lunch is at one. Father's in London until tonight. Mother will be down." She paused. "She's been looking forward to meeting you properly. She'll call you darling. Don't mind it."
+
+She went up the stairs with his bag.
+
+Harry stood in the hall and watched her go.
+
+He thought about her letter. *It is about what happens when clever people lie to each other.* He had read it three times in Privet Drive, at the kitchen table, and he had not known why he read it three times.
+
+He did not ask.
+
+He had learned, in three years, that if he asked Evelyn something she did not want to tell him, she would tell him so. She had said she was fine. She had said it precisely.
+
+He went up the stairs after her.
+
+* * *
+
+The World Cup stadium stood in the middle of a moor, in a fold of brown hills somewhere so far from anywhere that Harry never found out its name, and it held a hundred thousand people, and every one of them was feeling something.
+
+He had known it would be bad.
+
+He had been in the Great Hall at the Sorting, and on the Quidditch pitch with the stands full, and in Diagon Alley on the Saturday before term. He had stood on the edge of the Slytherin stand at a match and felt it come off the crowd like heat off a road. He thought he knew what a crowd was.
+
+He did not know what a crowd was.
+
+He came up the long stairs into the top of the stadium behind Corvin Selwyn, with Evelyn on his left and Lucan behind, and the sound came up at him first, a great dull roar like the sea in a storm. And then the rest came up under it.
+
+It was not weather. Weather was something you could stand in.
+
+It was the sea.
+
+It came up over him all at once, a hundred thousand people, and every one of them was excited, and every one of them was excited in the same direction at the same time, and it hit him the way a wave hits a child who has gone too far out. It went over his head. For about four seconds he did not know where he was or who he was or whether he was standing up. He did not have any feelings of his own at all. He was a hundred thousand people waiting for a match to start.
+
+Then he turned it down.
+
+He turned it down harder than he had ever turned anything. He did it the way you slam a door in a gale. He found the stillest thing within reach, the way Quirrell had taught him, and the stillest thing within reach was on his left, at his elbow, as it always was, and it was Evelyn's silence.
+
+He rested on it.
+
+It was the only thing in the whole stadium that was not shouting. He put his whole weight on it, the way you put your weight on a wall when you have been sick, and the sea went back, slowly, to a roar he could stand in.
+
+"Potter," said Evelyn, very low.
+
+"I'm all right."
+
+"You went white."
+
+"I said I'm all right."
+
+She did not say anything else. She did not move away from his elbow either. She stood there, beside him, on his left, at exactly the distance she always stood, and she did not move for the whole of the match.
+
+* * *
+
+The box was at the top of the stadium, on the west side, two boxes along from the Minister's.
+
+It had purple cushions and a velvet rope and a little gold plate on the door that said *SELWYN*, and there were twenty seats in it, and by the time Harry sat down every one of them had somebody in it whom Corvin Selwyn wished to be seen with or wished to be seen not to need.
+
+Corvin introduced him to all of them.
+
+He did it very well. Harry read him do it, and it was like watching a man play a game he had played every day of his life and could play in his sleep. He was lean and grey and very still, Corvin Selwyn. He did not move his hands when he talked. He did not smile very often. He stood at the front of his box with his hand very lightly on Harry's shoulder, so lightly that Harry could hardly feel it, and he said, "Harry Potter. My daughter's friend," and stopped.
+
+That was all. He did not say anything else. He did not need to.
+
+And the person he was introducing Harry to would look at the scar, and at the hand on Harry's shoulder, and at Corvin, and Harry would read them, every one, and every one of them would add something up.
+
+Harry read Corvin.
+
+It was very hard. He was not closed, not the way Evelyn was closed, smooth and complete. But he was very quiet. Everything in him was quiet. Harry had to go a long way down to find anything at all, and when he found it, it was less a feeling than a sort of attention. It was the attention of a man watching the board, all the time, every piece on it, and he did not seem to feel anything about any of the pieces. He did not like Harry or dislike him. He did not like the people he introduced Harry to. He wanted them to see Harry's shoulder under his hand. That was all.
+
+Under that, so far down that Harry nearly missed it, there was one small thing.
+
+It was aimed at his daughter. It was not love. Harry did not know what it was. It was a sort of watchfulness, a sort of puzzlement, the attention of a man who has a piece on his board that he has never been able to place.
+
+Harry did not like it.
+
+"And this," said Corvin, "is my brother."
+
+A man had come into the box behind them. He was younger than Corvin and bigger, with a broader face and a heavier jaw and the same grey eyes, and he was smiling, and the smile was nothing like Lucan's. It was easy and wide and a little lazy, the smile of a man who has never in his life had to try.
+
+"Thaddeus Selwyn," he said, and held out his hand. "Well, well. Harry Potter. In a Selwyn box. Father would have turned in his grave." He shook Harry's hand. His grip was very hard. "There we are, then. There we are."
+
+Harry read him.
+
+He was pleased. He was pleased with everything, with the box and the match and the day and himself. He was pleased in a large, lazy, comfortable way, like a big dog in the sun. And under the pleased there was something else, and there was nothing lazy about it, and Harry did not like it. Something very cold and very interested, and it was aimed at the scar.
+
+"Evelyn," said Thaddeus, over Harry's head. "Little Evie. In black. Poor girl. Poor Isadora." He did not sound sorry. "There we are. Sit by me, Potter. I want to hear all about Hogwarts. Your Head of House is Severus, isn't he? Tell me. Does he still wear those boots?"
+
+Evelyn had gone very still.
+
+Harry felt it. He could not feel her, he never could. But she was at his elbow, as she always was, and he could feel her silence, and her silence was always still, and it was stiller now than he had ever known it. As though something had stopped moving that he had not known was moving.
+
+He looked at her.
+
+She was looking at her uncle with her face perfectly blank.
+
+"Hello, Uncle Thaddeus," she said.
+
+* * *
+
+He did not remember much of the match afterwards. He remembered pieces.
+
+He remembered the leprechauns raining gold on the crowd, and Lucan picking a handful of it off the floor of the box and laughing and saying, "It'll be gone by morning," and putting it in his pocket anyway. He remembered Theo, two boxes along with his very old father, lifting a hand to him and not smiling.
+
+He remembered Viktor Krum.
+
+Krum was the Bulgarian Seeker. He was eighteen. He was dark and sallow and hunched, with a great curved nose and thick black eyebrows, and on the ground he walked like a duck. In the air he was the most beautiful flier Harry had ever seen.
+
+Harry read him.
+
+He was too far away to read properly. He was a hundred feet up and across the whole stadium. But there were moments, when Krum dived, when he came close enough, and Harry caught them. Krum was not excited. He was not frightened. He was not anything a hundred thousand people were feeling. He was very quiet, inside, very still, the way Harry was at the top of the sky over the Quidditch pitch, and he was alone.
+
+Harry knew that feeling. He had felt it in himself.
+
+Krum caught the Snitch. Ireland won, by a hundred and seventy to a hundred and sixty, because the Irish Chasers had been so much better than the Bulgarians for so long that it did not matter. Krum caught it anyway. He knew it would not matter. Harry read him catch it, and he was not glad, and he was not sorry. He had caught it because it was there and he was the Seeker and that was the end of a thing that should be finished properly.
+
+Harry liked him at once.
+
+* * *
+
+The Selwyns had a tent.
+
+From the outside it looked like a very plain grey canvas tent with a flap for a door.
+
+Inside, it was Selwyn Hall.
+
+It had a stone-floored hall and a staircase and a drawing room with a fire, though it was August, and a small portrait over the fireplace that sniffed at him. It had a long-case clock at the foot of the stairs.
+
+"Father had it made," said Evelyn, when he asked. "In nineteen seventy-eight. For the World Cup in Argentina. He doesn't like camping."
+
+"He hasn't done any camping."
+
+"No," said Evelyn. "That was the idea."
+
+It was the first thing she had said all day that sounded like her.
+
+"Your uncle," said Harry.
+
+"What about him?"
+
+"He kept saying *there we are*."
+
+"He always says it." Evelyn did not look away from the clock. "He said it at my christening, Mother says. He said it at Grandmother's funeral, at the graveside, when they lowered her. *There we are.*" She was quiet for a moment. "He was at school with Lucius Malfoy. They were in the same year."
+
+"Do you like him?"
+
+"No," said Evelyn.
+
+"Why not?"
+
+"He calls me Evie. Nobody calls me Evie." She took her hand out of her pocket, looked at it, and put it back. "And he likes things too much. He liked the match too much. He liked the box. He liked you." She turned away from the clock. "Goodnight, Potter."
+
+"Goodnight."
+
+"Don't go out tonight. Whatever happens. Father says the Irish will be up till dawn."
+
+"Why would I go out?"
+
+"You always go out," said Evelyn, and went up the stairs.
+
+He looked at her. She was standing in the hall of the tent by the long-case clock with her hands in her pockets, in black, and she was looking at the clock, and he could not tell what she was thinking. He thought that she had been looking at clocks a great deal, since March. He thought that she still had her hand in her right-hand pocket. She had had it there all day.
+
+They went to bed at midnight.
+
+The celebrations went on outside. Harry lay in a small room off the landing of a tent that was a house, in a narrow bed, and listened to the Irish singing on the moor, and read them, a long way off, drunk and happy and loud. He turned them down. He did not need Evelyn's silence for it. They were only a few thousand now, and they were only happy.
+
+He fell asleep.
+
+* * *
+
+He woke because the singing had changed.
+
+He did not know how long he had been asleep. It was still dark. He lay in the narrow bed in the tent and listened, and the Irish were not singing any more. There was something else outside. Shouting. It was a great many people shouting at once, far off across the moor, and under the shouting there was screaming, and under the screaming there was laughter.
+
+He read it.
+
+He did not have to try. It came in through the canvas of the tent and the walls of the house that was a tent, and it was so loud and so many and so sudden that it was the stadium again, the sea, only this time the sea was fear. Thousands of people, all frightened at once.
+
+And in the middle of the fear, coming across the campsite towards them, there was a knot of something else.
+
+It was glee.
+
+Harry was out of bed. He was in the hall. Lucan was there in a dressing gown with his wand out, and the door of the tent was open onto the dark, and Harry could see out of it. He could see the moor, and the tents, and fire. Some of the tents were on fire. People were running, in their nightclothes, across the dark grass between the tents, away from something.
+
+"Get dressed," said Lucan. He was very pale. Harry read him and the pleasantness had gone, all at once, and the calculation had gone, and under where they had been there was something that Harry did not expect at all. It was fright, and it was aimed down the corridor, at the door of a room on the landing. At his sister. "Potter, get dressed, get Evelyn, get into the trees. *Now*. Father's gone to the Ministry tent. Get into the trees and stay there till somebody comes."
+
+"What is it?"
+
+"Get into the *trees*."
+
+* * *
+
+They went into the trees.
+
+There was a wood at the edge of the campsite, on the side of the hill, and they went up into it in the dark, Harry and Evelyn, with their wands lit, and then not lit, because the light made them a target. Evelyn had dressed in eleven seconds. She had come out of her room on the landing in her black dress with her black cardigan buttoned over it and her shoes on and her hair tied back, and she had not said anything, and she had gone down the stairs of the tent and out of the door and into the dark at exactly her usual pace, and Harry had followed her.
+
+They stopped at the edge of the wood, behind a holly bush, and looked down at the campsite.
+
+There was a crowd coming across it.
+
+A march. A tight knot of people, perhaps thirty of them, walking all together, slowly, across the moor between the tents, and they were hooded, and they were masked, and they all had their wands pointing straight up into the air.
+
+And above them, high in the air, floating, there were four people.
+
+They were very small. They were a man and a woman and two children, and they were upside down, and they were turning in the air above the hooded heads of the marchers like puppets on strings. One of the children was crying. The woman's nightdress had fallen down over her face. The man was struggling, and every time he struggled one of the marchers flicked his wand and the man spun round in the air like a top, and the marchers laughed.
+
+Muggles.
+
+Harry knew it at once. He had read them as they came near, and they were nothing but terror, the man and the woman and the two children, and it was a Muggle terror. It did not understand anything. It did not know what was happening or why. It only knew that it was upside down in the air in the dark and it was going to die.
+
+He read the marchers.
+
+He made himself. He went down into them, one after another, thirty of them, and it was all the same, and it was glee.
+
+It was not anger. There was nothing angry in it. There was nothing hot in it at all. It was the plain, happy, comfortable glee of men who had not been allowed to do this for thirteen years and had been told, by a few pints and a crowd and a dark night, that tonight they were. It was the glee of a man kicking a dog who has been told the dog is his. It went up off them like steam off a horse.
+
+Harry had felt it once before, in another world, in a hall full of falling glass, from a dozen people in masks chasing children through the dark. He had thought that was another world's. He had not thought he would feel it in his own.
+
+Beside him, Evelyn had gone absolutely still.
+
+He felt it. He felt her silence go still the way it had in the box, when her uncle came in. Only more. It was so still now that it was like the silence at the bottom of the Chamber, before the door opened. Like the inside of the room of clocks.
+
+He looked at her.
+
+She was not looking at the Muggles. She was looking at the marchers. She was looking at one of them, near the front, a big one, broad-shouldered, walking with his wand up and his masked face turned up to the family turning in the air above him.
+
+He was laughing.
+
+Harry could hear him. Across the dark grass, over the screaming, it was very clear. It was a big easy lazy laugh, and when it stopped, the man said something, quite loudly, to the man beside him. Harry could not hear the words.
+
+He could hear two of them.
+
+*There we are.*
+
+Harry did not know why that was the bit he heard. It was not important. Lots of people said it. It came across the dark grass in a big easy lazy voice, and he heard it, and then he heard nothing else, because the man flicked his wand and the father of the family spun round in the air, and the crowd of marchers laughed, and the man laughed with them.
+
+Evelyn did not move.
+
+She did not say anything. She stood beside him behind the holly bush with her face turned to the march and her face told him nothing. It never had. He could read three hundred people from a hundred feet away and he could not read the person standing at his left elbow. He looked at her face in the light from the burning tents and there was nothing in it.
+
+He looked at her hand.
+
+Her right hand was out of her pocket. She had taken it out at some point, and he had not seen her do it. It was hanging at her side, and it was closed.
+
+It was closed very tightly. The knuckles were white. And in it, round it, he could see the edge of something gold and small, and the ivy leaves on the lid.
+
+She was holding the watch.
+
+She was holding the stopped watch so tightly that he thought the lid might bend.
+
+"Evelyn," he said.
+
+She did not answer.
+
+* * *
+
+Then the sky went green.
+
+It happened over the wood. It happened so suddenly that the marchers stopped, all of them at once, and looked up. Somebody in the trees, not far from Harry and Evelyn, perhaps fifty yards along the edge of the wood, had shouted a word, and there was a green light, and the light went up into the sky over the moor and burst and hung there.
+
+It was a skull. It was enormous, made of green stars, like smoke, and a serpent came out of its mouth like a tongue.
+
+Harry did not know what it was. He read the campsite as it went up, and he knew at once that everybody else did.
+
+The glee went out of the marchers.
+
+It went out of them like a candle in a draught. All thirty of them at once. It was there, happy and warm, and then it was not, and in its place, in every one of them, there was fear. Not the Muggles' fear, which did not understand anything. It was a fear that understood exactly. It was the fear of men who had been playing at something, and had looked up, and seen that somebody was not playing.
+
+They ran.
+
+They broke and ran in every direction, and the four Muggles fell out of the sky, and somebody, Harry did not see who, caught them before they hit the grass. And the screaming on the campsite changed, and became something else, and the whole moor was looking up at the green skull over the wood.
+
+"Potter," said Evelyn. Her voice was perfectly flat. "Somebody's in the trees. Near us."
+
+"I know."
+
+"Is it one of them?"
+
+He reached. He reached into the dark along the edge of the wood, fifty yards, towards where the word had come from.
+
+There was somebody there.
+
+There was a very small person, very close to the ground, and the person was terrified. Nothing like the marchers' fear: smaller and higher and more desperate, like an animal's, only it was not an animal. He knew the shape of it. He had felt it once before in his bedroom in Privet Drive, with bat ears and tennis-ball eyes.
+
+A house-elf.
+
+And there was somebody else. Further off. Somebody who had been there, and was not now, and was going away very fast through the trees, and Harry could not catch them.
+
+* * *
+
+The Ministry came in about a minute.
+
+They came out of nowhere, twenty of them, with a series of cracks, all round the edge of the wood, with their wands up, and Harry and Evelyn were in the middle of them.
+
+"*Stupefy!*"
+
+Harry pulled Evelyn down. Twenty jets of red light went over their heads and crossed in the air and hit each other and the trees and the holly bush and nothing else. Harry lay flat on the leaves with his arm over Evelyn's back and heard a man shout "*Stop!* Stop, that's my son's friend, that's Harry Potter," and recognised the voice, and it was Mr Weasley.
+
+They got up.
+
+There was a great deal of shouting. There were wands pointed at them. There was a man Harry had never seen before, thin and stiff, with a toothbrush moustache and very short grey hair parted with a ruler, who came through the trees towards them with his face white and his wand out, and said, "Which of you? Which of you did it?"
+
+"Did what?" said Harry.
+
+"Don't play the fool with me." The man was shaking. "You were found at the scene of the crime."
+
+"Barty," said Mr Weasley. "They're kids. They were hiding."
+
+Somebody had found the house-elf.
+
+They brought her out of the trees, a tiny elf in a tea towel, shaking from head to foot, with her huge eyes streaming. She had a wand in her hand. Harry looked at the wand and knew it before anybody said anything, because it was holly, and eleven inches, and he had last felt it in the pocket of his robe when he went to bed in a tent that was a house.
+
+He put his hand in his pocket. It was empty.
+
+"Winky," said the thin man.
+
+He said it very quietly.
+
+Harry read him.
+
+He had been reading everybody, all night, because he could not stop. He had read thirty marchers and a family upside down in the air and a hundred thousand people in a stadium. He read the thin man with the toothbrush moustache, Barty, Mr Crouch, because he was standing three feet away and looking at the house-elf in the tea towel, and he expected to find anger, and something like a Ministry man's hunger to have somebody to blame.
+
+He found terror.
+
+It was enormous. It was much larger than anybody's on the moor. The marchers had not felt this, nor the Muggles. This was the fear of a man who has been carrying something heavy for a very long time and has just felt it slip.
+
+Under the terror, there was shame. It was very old. It was hard and iron-coloured and it had been there for years, the way Hagrid's grief had been, and it had been beaten into a shape and made to hold something up.
+
+And under the shame, so far down that Harry could only just reach it, so hard and so tight that it was almost not a feeling at all, there was something hidden.
+
+He could not see what it was. It was too far down. It was locked away under the shame the way a man might put something in a box and put the box in a cellar and stand on the trapdoor for the rest of his life.
+
+It was the hardest thing Harry had ever felt anybody hide.
+
+"You," said Mr Crouch to the elf, and his voice did not shake at all now. "You have disobeyed me. You were told to stay in the tent. You have been found with a wand in your hand at the scene of a crime. You know what that means."
+
+Winky wailed.
+
+Harry stood among the Ministry wizards with his wand in the elf's hand and his hand in his empty pocket, and he read Mr Crouch decide to give her clothes, and he read the decision cost him nothing at all, and he read the thing under the shame stay exactly where it was, locked, very hard, not moving.
+
+* * *
+
+It was nearly four in the morning when they got back to the tent.
+
+It was full of people. Corvin had come back from the Ministry tent, and he was in the drawing room with the fire lit, talking to two men from the Department of Magical Law Enforcement in a voice that did not change at all. Lucan was there, in his dressing gown still, white-faced, with a glass of something. Mrs Selwyn had come down in a green silk wrap and was sitting on the sofa holding Evelyn's hand and saying, over and over, "Darling, darling, you're all right, darling," in a voice that had gin in it.
+
+Thaddeus was not there.
+
+Harry noticed that. He noticed it the way he noticed most things, without deciding to. He read the tent, from the hall, and there were eleven people in it, and none of them was large and lazy and pleased with everything.
+
+"Where's your uncle?" he said to Lucan.
+
+Lucan looked at him.
+
+Harry read him, and something in Lucan went very still for a moment, the way his sister's silence went still, only it was a feeling, and Harry could read it, and it was a kind of careful nothing. A man deciding not to know something.
+
+"Gone home," said Lucan. "After the match. He doesn't like crowds."
+
+He drank what was in his glass.
+
+Harry went to the doorway of the drawing room.
+
+Evelyn was on the sofa with her mother. Mrs Selwyn had both arms round her and was crying into her hair. Evelyn was letting her. She was sitting very straight, with her mother's arms round her shoulders, and she was looking at the fire, and her face told Harry nothing.
+
+Her hands were in her lap.
+
+The left one was open, flat on her knee.
+
+The right one was closed. It was closed very tightly, the knuckles white. It had been closed, Harry thought, since a voice had said *there we are* across the dark grass, and it was still closed now, in her lap, on her mother's sofa, in a tent that was a house, at four in the morning.
+
+He could see the edge of gold between her fingers.
+
+He stood in the doorway and looked at her hand for a long time.
+
+He did not ask.
+
+<->
