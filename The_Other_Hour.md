@@ -26058,3 +26058,547 @@ His feet left the ground. He could not take his hand off the Cup. It was pulling
 There was dark.
 
 <->
+
+## Chapter 43: Bone, Flesh, Blood
+
+His feet hit the ground.
+
+His knee gave and he went down on it, and his hand came off the Cup, and the Cup fell on its side in long grass, and for a moment he did not know where he was or which way was up. Then he did. He was on his knees on wet grass in the dark, and it was cold, and it was not the Quidditch pitch.
+
+Cedric was beside him. Cedric was on his feet already, with his wand out, turning round, his leg bleeding, looking.
+
+"Where are we?" said Cedric.
+
+Harry looked.
+
+It was a churchyard. It was a dark, overgrown churchyard, with a small church behind it, black against a sky with no moon, and old gravestones in crooked rows going away into the dark, and a great yew tree to the right, and beyond the yew, on a hill, the shape of a large old house. There was nobody. There was no sound at all. There were no stands, and no crowd, and no maze, and no Evelyn at the end of the third row.
+
+He reached.
+
+He did it the way he did it everywhere, at once, before he had decided to. He reached out into the dark of the churchyard as far as he could go.
+
+There was a village, a long way off, down the hill. Sleeping people. Very faint. A dog.
+
+There was somebody in the churchyard.
+
+He was coming between the graves, from the direction of the yew. He was small, and he was carrying something, and he was frightened. He was very frightened. He was frightened the way a man is frightened who has been made to do something and is doing it, and he had a busy, small, cunning thing under the fear that Harry knew, that he had read on the floor of a shack.
+
+And the thing he was carrying.
+
+It was cold.
+
+It was the cold. It was the cold from the forest and from the back of Quirrell's head and from a high-backed chair by a low fire in a dream. It was very small. It was smaller than it had been in the chair. It was the size of a bundle a man could carry in his arms, wrapped up. But it was there, and it was awake, and it was pleased.
+
+"Cedric," said Harry. "Get back to the Cup."
+
+"What?"
+
+"Get back to the Cup. *Now*. Both of us. Take it. Go."
+
+Cedric looked at him. He did not move. He was looking past Harry, at the figure coming through the graves.
+
+"Who's that?"
+
+"Cedric…"
+
+Harry's scar split open.
+
+It went white. It went all the way through his head, front to back, the worst it had ever been, worse than the Chamber, worse than the dream in Divination, and his wand fell out of his hand and he put both hands over his face and went down on his knees in the long grass.
+
+He heard the voice.
+
+It was high and cold, and it came from the bundle, and it said, without any hurry at all, *Get rid of the spare.*
+
+And Harry heard another voice say two words, and he saw the green light through his fingers, and he heard something fall.
+
+* * *
+
+He read Cedric go.
+
+He could not help it. He would never be able to help it. He was on his knees with his hands over his face and his scar burning and he was reading Cedric, because Cedric was three feet away and was the person he had been reading all night, and he read him go.
+
+It was very fast.
+
+There was surprise. That was all there was time for. Cedric was surprised. It was the plainest surprise Harry had ever felt, the surprise of a boy who has looked up at a stranger in a churchyard and not had time to be frightened.
+
+And then there was nothing.
+
+It did not go quiet. It did not fade, the way Hermione Granger had faded in another world. It was there, and then it was the place where it had been, the way there is the place where a candle was.
+
+He took his hands away from his face.
+
+Cedric was lying on his back in the grass beside him with his arms out and his eyes open.
+
+His eyes were open and they were looking at the sky, and there was nothing behind them. Harry read them. He read them as hard as he had ever read anything. He went into the place where Cedric was and there was nobody there. There was no decency all the way down and no nod in corridors and no laugh that went all the way up. There was no silence either. Silence was what Evelyn had, and the Petrified. This was not silence.
+
+It was the place where a person had been.
+
+Cedric's leg was still bleeding, very slowly, into the grass.
+
+* * *
+
+Somebody had him by the collar.
+
+He did not fight it. He thought afterwards that he should have, and that he could not have, and that both were true. He was dragged across the grass, past the yew, to a marble headstone, very large, and thrown against it, and somebody was tying him to it with ropes that came out of a wand, very tight, round his chest and his arms and his legs, and the ropes cut.
+
+He saw the name on the headstone over his own shoulder, upside down, in the dark.
+
+*TOM RIDDLE.*
+
+He knew it. He did not need to see the rest. He had seen that name in faded gold inside the cover of a small black book.
+
+The man who had tied him stepped back.
+
+He was short and round, and he was going bald, and he had a cloak on and a hood up, but Harry did not need to see his face. He read him. Terror, self-pity, cunning. The empty floor. He had read him on the floor of the Shrieking Shack while two men he had betrayed stood over him with their wands up. He had stopped them. *He's worth your whole life alive.*
+
+Wormtail.
+
+His right hand had a finger missing. His left hand was holding a wand, and it was shaking, and he was not looking at Harry.
+
+There was a cauldron.
+
+It was enormous. It was big enough for a man to sit in. It was on the grass between the graves, full of something that steamed in the cold, and there was a fire under it that Wormtail had lit, and the stuff in it was beginning to bubble and throw off sparks.
+
+And on the grass by the cauldron there was the bundle.
+
+It was moving. It was wrapped in robes, and it was moving, as though there were something inside it that wanted to get out, and Harry could feel it, and it was cold, and it was very pleased.
+
+Then the snake came.
+
+It came out of the long grass by the yew. It was very large. It was the snake from the hearthrug in the dream, green and long and thick as a man's leg, and it went round the headstone where Harry was tied, slowly, round and round, and he could not read it, because he could never read snakes. But he could hear it.
+
+He did not want to hear anything it said.
+
+* * *
+
+He would remember it afterwards in pieces, and only ever in his own words, because the words that were said that night were not words he ever wanted to say again.
+
+The bundle went into the cauldron. Wormtail put it there. He unwrapped it first, with his face turned away, and what was inside it was a thing like a child, but not a child, hairless and scaly and red-raw, with a flat snake's face and red eyes, and it held up its thin arms, and Wormtail lifted it and put it into the cauldron, and it sank.
+
+Harry hoped it would drown.
+
+He thought that very clearly, tied to the headstone, with the ropes cutting into him and his scar a sheet of white. He hoped it would drown. He had never in his life hoped that anything would die. He hoped it now.
+
+It did not drown.
+
+Wormtail went to the grave. The one Harry was tied to. He pointed his wand at the ground in front of it and said something, and the ground cracked, and a fine grey dust came up out of the crack, out of the grave, and went through the air and into the cauldron. Wormtail was saying words. They were old and they were very simple. Harry heard them. A father's bone, given without his knowing. A father who had been in that grave for a long time, and had not been asked.
+
+The cauldron went blue.
+
+Wormtail took out a knife.
+
+He was crying. He was crying so hard he could barely hold the knife, and his terror was enormous, and his self-pity was enormous, and under them, at the bottom, there was nothing, there was the floor he had emptied a long time ago. He was saying words through his crying. A servant's flesh, given of his own will. He held his right hand over the cauldron.
+
+Harry shut his eyes.
+
+He did not shut his reading. He could not. He read Wormtail do it. He read the pain and the self-pity and the terror, all of them going up together like a scream, and the scream was real, and then there was a splash.
+
+He did not open his eyes for some time.
+
+When he did, the cauldron was red. Wormtail was on his knees beside it, holding the stump of his arm in his other hand and moaning. And he was getting up. He was getting up with the knife in his left hand. And he was coming towards Harry.
+
+"Blood of the enemy," said Wormtail, very low, through his teeth, through his crying. "Taken by force."
+
+Harry could not move. The ropes held him.
+
+Wormtail cut him.
+
+He did it in the crook of Harry's right arm, quite quickly, a short deep cut, and blood came, and Wormtail held a small glass phial under it, and caught it. He did not look at Harry. Harry read him not look. Harry read the cunning in him, at the bottom of the terror, small and busy, notice that Harry was reading him, and go very still, and then go on.
+
+*He's worth your whole life alive.*
+
+Harry had said that. In a shack. To Sirius.
+
+Wormtail went back to the cauldron and poured in the blood.
+
+* * *
+
+The cauldron boiled.
+
+It went white. It went so white that it lit the whole churchyard, every grave, every crooked stone, the yew and the church and the great dark house on the hill, and the sparks that came off it were white too, and so many that it was like looking into a firework, and then it went dark.
+
+Steam came up out of it.
+
+It came up in a great cloud, thick and white, and it hid the cauldron, and Wormtail, and the snake, and for a moment Harry could see nothing at all in front of him but white.
+
+And something stood up in the steam.
+
+He felt it before he saw it. He had felt it before. He had felt it in the forest when he was eleven, kneeling over a dead unicorn with its hood up. He had felt it on the back of a man's head. He had felt it in a high-backed chair. He had felt a sliver of it at the bottom of a boy in a red and gold scarf, in another world, and a smaller sliver than that at the bottom of himself, which he had decided was a stain.
+
+It was the cold.
+
+But it had stopped being small. No sliver, no bundle, no thing on the back of somebody else's head. It was whole. It was standing up in the steam in a body of its own, and it was enormous, and it was loud.
+
+He had never felt it loud before.
+
+In the forest it had been greedy and in the chair it had been pleased. Now it was everything. It filled the churchyard the way the dragon's fury had filled the enclosure, the way the Hall had filled at the Sorting, only there was no fury in it and nothing a crowd felt. It was pleasure. It was so much pleasure that there was nothing else in it. And Harry went down into it the way he went down into everybody, looking for the top of it and the floor under it and the thing under that, the true thing, the small old thing at the bottom that did not quite agree with the rest.
+
+There was nothing at the bottom.
+
+There was only more of it. All the way down. Pleasure, cold, huge, pleased with itself, pleased with the night and the churchyard and its own new hands, and nothing in it anywhere that Harry recognised. Not grief. Not fear. Not loneliness, the way there had been in the diary, in a sixteen-year-old boy who had stood outside a lit window and worked out there was no door. Not even envy.
+
+It had been a person once. Harry had talked to it every night for six weeks.
+
+There was nothing in it now that had ever been a person.
+
+"Dress me," said Lord Voldemort.
+
+* * *
+
+He was tall and thin and he was whiter than a skull. His face was flat, with slits for a nose, like a snake's. His eyes were red. His hands were long and white and he held them up in front of his face in the light of the dying fire and looked at them, and Harry read him look, and the pleasure went up and up.
+
+He did not look at Harry for a long time.
+
+He looked at his hands. He took his wand from Wormtail, who was on the ground, whimpering, holding his arm, and he looked at that. He walked a little way between the graves, barefoot, and he looked at the church and the house on the hill and the sky.
+
+Then he turned round.
+
+And for the first time, he looked at Harry.
+
+Harry read him. He did not have to try. The pleasure was there, everything, all of it, and it turned, the whole of it, the way the dragon had turned in the enclosure, and it was aimed at Harry.
+
+It was a very particular kind of pleasure. Harry knew it. He had felt it, smaller and humbler, in Aunt Marge over a plate of roast beef. He had felt it in Umbridge. He had felt it, once, in himself, in a pink office, with a cat on a desk.
+
+It was the pleasure of somebody who has been waiting a long time to deal with something, and is about to.
+
+* * *
+
+Voldemort held out his arm to Wormtail.
+
+He did not hold out the right one. Wormtail had no right hand any more. He held out his left, and Wormtail's left forearm was bare, and there was a mark on it, a dark red tattoo, a skull with a snake coming out of its mouth. The thing that had been in the sky over the moor.
+
+Voldemort put the tip of one long white finger on it.
+
+Wormtail screamed.
+
+And Harry's scar burned, and burned, and on the far side of the churchyard, and between the graves, and under the yew, there were cracks in the air, one after another, a great many of them, and the churchyard filled with people.
+
+They were hooded. They were masked. They were wizards, a great many of them, coming out of the dark between the graves on every side, and they were all going towards the thing standing by the cauldron, slowly, and as they reached it they went down on their knees.
+
+Harry read them.
+
+He read every single one of them. He could not help it. He was tied to a headstone with nothing else to do and his scar was a sheet of white and he read them all, one after another, as they came out of the dark and knelt.
+
+Fear. That was what most of them were. It was the first thing in nearly all of them, and it was enormous, and it was the fear of men who had not expected this, who had been called in the night by the burning of a mark they had thought was dead for thirteen years, and had come because they did not dare not to.
+
+Greed. That was under the fear, in a great many of them. Greed for what came next. A seat at a table that had been empty for thirteen years.
+
+And devotion.
+
+Not in many. In a few. In a very few, under the fear, the same fierce shapeless worship Harry had felt in a laughing woman on a stone step by an arch in another world. Aimed at the thing by the cauldron. Aimed at it the way a compass needle is aimed at north.
+
+Voldemort walked down the line of them.
+
+He spoke to them as he went. He spoke very softly. He named them. Harry heard the names.
+
+"Lucius," said Voldemort.
+
+Harry knew him without the name. He had felt him in Flourish and Blotts, putting a diary into a cauldron. He had felt him in a hut on a night in May, triumphant. He read him now.
+
+Lucius Malfoy was terrified. He was more terrified than Harry had ever felt him. Under the terror there was calculation, very fast, very busy, the calculation of a man working out what he could say. And under the calculation, a long way down, there was something that Harry had felt in his son, at a Slytherin table, in a common room, on a Quidditch pitch. It was the fear of not being good enough.
+
+"Nott," said Voldemort.
+
+Harry went still against the headstone.
+
+The man was very old. He was much older than the others. He was bent and he moved stiffly, and he knelt slowly, painfully, with a hand on a gravestone to lower himself.
+
+Harry read him.
+
+He was frightened. He was frightened the way old men are frightened, deeply, with the whole of their lives behind it. And under the fear, Harry read something that made him want to close his eyes.
+
+It was a boy. A thin pale clever boy with a chessboard. It was very small and very far down and the old man did not want it there. He was thinking about his son.
+
+Harry did not look away. He did not let himself.
+
+"Crabbe," said Voldemort. "Goyle."
+
+Two big blank men, frightened, stupid, greedy. Harry had read their sons at every breakfast for four years.
+
+"Macnair," said Voldemort.
+
+A big man with a thin black moustache. Harry had last seen him in a pumpkin patch, swinging an axe into a fence post. He was frightened and he was eager, both, and the eagerness was larger.
+
+And then, near the end of the line, there was a big man.
+
+He was broad-shouldered. He was bigger than the others. He knelt easily, the way a man kneels who has never had to try, and his mask was pushed up very slightly, and Harry could not see his face.
+
+He did not need to.
+
+"Ah," said Voldemort. "And you."
+
+"My lord," said the big man.
+
+And then, very quietly, to the man beside him, under his breath, in a big easy lazy voice that Harry had heard in a box at the World Cup and across a moor at night, he said:
+
+"There we are."
+
+Harry read him.
+
+He was pleased. He was pleased with everything. He was pleased with the churchyard and the night and the mark burning on his arm and the thing by the cauldron, in a large, lazy, comfortable way, like a big dog in the sun. And under the pleased, cold and interested, there was something that was aimed at the headstone.
+
+At Harry.
+
+At the scar.
+
+*Thaddeus Selwyn.*
+
+Harry thought about a tent at four in the morning. He thought about a girl on a sofa with her mother's arms round her, with her right hand closed on a watch so tightly that her knuckles were white.
+
+He thought: *she knew.*
+
+He thought: *she's known since the moor.*
+
+* * *
+
+Voldemort talked.
+
+He talked for a long time. Harry heard it, but he did not listen to most of it. He was tied to a headstone and his scar was burning and Cedric was lying on his back in the grass twenty feet away with his eyes open.
+
+"Thirteen years," said Voldemort. He walked up and down in front of the kneeling men, barefoot on the cold grass. "Thirteen years, and not one of you came looking. Not one." He stopped in front of Lucius. "Lucius. You were at the Ministry within a week, I hear. Telling them I had bewitched you."
+
+"My lord, I was always ready. Had there been the smallest sign…"
+
+"There were signs. You chose not to read them." Voldemort moved on. "You all chose. And yet here you are. Because the mark burned, and you were more afraid of what would happen if you did not come than of what would happen if you did." He turned his head. "That is a kind of loyalty, I suppose. It is the only kind I have ever found I could rely on."
+
+Nobody said anything.
+
+"Wormtail came back," said Voldemort. "Wormtail, who is a coward and a fool and has never done a brave thing in his life. He came back because he had nowhere else to go. And he has given his hand." He looked down at the man on the ground, whimpering. "He will have it back. Better than it was. I reward those who are useful."
+
+He walked back towards the headstone.
+
+"You will want to know how I did not die," he said. "That night. At Godric's Hollow. When the curse I sent at the child came back at me." He stopped in front of Harry and looked at him with his red eyes. "So do I, a little. I had taken steps. I had gone further than anybody, along the road that leads away from death. And still, when it came back, I was less than the meanest ghost. Less than a spirit. I was nothing, for thirteen years, in a forest in Albania, living in snakes."
+
+Harry read him. The pleasure was there, but under it, now, for the first time, something old. Something that remembered being nothing, and hated it.
+
+"And the reason," said Voldemort softly, "was his mother."
+
+He looked at Harry.
+
+"She stood in a doorway. I told her to move. I offered her her life. She would not take it. She stood there, a silly girl with no wand in her hand, and died for him, and in dying she put something in him that I could not touch." He said it with contempt, and under the contempt, very faint, Harry read something that might once have been surprise. "Old magic. The oldest. I overlooked it. I have thought about it a great deal since." He held up his right hand and turned it in the dark. "And tonight I have his blood. In me. Her protection, in me. The same blood, and the same old foolish magic." He turned the hand over. "I can touch him now."
+
+He walked across the grass to the headstone.
+
+He reached out one long white finger, and he put it on Harry's forehead, on the scar.
+
+Harry screamed.
+
+He did not decide to. He had not screamed since he was very small. He had not screamed in the Chamber with the fang in his arm or on the floor of a stone room with Quirrell's hands round his throat. He screamed now. The pain went through him like a wire through cheese, all the way, and he could not do anything but scream, and Voldemort held his finger there, and Harry read him, through the pain, through all of it.
+
+He was delighted.
+
+* * *
+
+They untied him to duel.
+
+Voldemort wanted it. Harry read that. He wanted it the way you want the last good bite of something you have been eating slowly. He wanted the men in the masks to see. He wanted them to see the Boy Who Lived bow to him and die.
+
+Wormtail untied him. Somebody threw him his wand. It landed in the grass at his feet.
+
+"Pick it up," said Voldemort pleasantly.
+
+Harry picked it up.
+
+"You have been taught how to duel, Harry Potter?"
+
+Harry did not answer.
+
+He had been. He had been taught by a man in a turban in a small warm office with a rug from Albania. *When does a duel begin?*
+
+*When one of them decides to.*
+
+He looked at Voldemort and tried to read the moment of decision, the way Quirrell had taught him, the small hard bright thing like a coin turned over. He had disarmed Quirrell into that moment. He had disarmed Snape into it in a shack.
+
+He could not find it.
+
+There was nothing to find. There was no moment. There was only the pleasure, enormous, all the way down, the same, and it did not decide anything, because it had already decided everything, a long time ago, and was only waiting.
+
+"We bow to each other," said Voldemort. "Come. The niceties must be observed."
+
+Harry did not bow.
+
+"*Crucio*," said Voldemort.
+
+* * *
+
+He did not remember the next part. He did not let himself. He knew it had happened. He knew that it was the spider on the desk, and Cedric screaming in the maze, and that it was him. He knew it went on. He knew that when it stopped he was lying in the grass and the men in masks were laughing, and that some of them were not laughing, and that he read which ones.
+
+He did not remember the rest.
+
+He got up.
+
+He did it because his body did it. He found that he was standing, and that his wand was in his hand, and that Voldemort was looking at him across ten feet of grass with the pleasure all the way up, waiting.
+
+He did not think about anything.
+
+He did not think about Quirrell, or Lupin, or the stag on the water. He did not think about illusions. He thought about nothing at all except the wand in his hand, holly, eleven inches, phoenix feather, *the wand that made that came out of this shop as well*.
+
+Voldemort raised his wand.
+
+Harry raised his.
+
+"*Avada Kedavra!*"
+
+"*Expelliarmus!*"
+
+* * *
+
+The two spells met.
+
+A jet of green light from Voldemort's wand, and a jet of red from Harry's, and they met in the air between them, and something happened that Harry did not understand and would not understand for a long time.
+
+His wand began to tremble in his hand, as though something alive were running through it. And there was a line of light between the two wands, not red, not green, but deep gold, and it held. It held them together. And then the line of light split into a thousand threads, and the threads arched over and round the two of them and came down to the ground on every side, and there was a dome of golden light, a cage, over them, and the men in masks were outside it, shouting.
+
+Harry read Voldemort.
+
+He did not have to try. For the first time that night something had come up in the pleasure that was something else.
+
+Surprise.
+
+And under the surprise, very quickly, something else.
+
+It was fear.
+
+It was small. It was very small. It was the smallest thing Harry had felt in him all night. But it was there.
+
+There was music.
+
+It came from the threads of the golden cage, all round them, and it was the most beautiful sound Harry had ever heard. He had heard it once before, in a Chamber under a castle, with a fang in his arm and a basilisk dying beside him. It was a phoenix's song.
+
+He felt it the way he had felt it in the Chamber. A clean wind. Like weather. He could not have said where it was coming from. He thought it was coming from the wand in his hand.
+
+The line of gold between the wands had beads on it. Great beads of light, and they were moving, sliding along the line, towards Harry, and he knew, without knowing how, that if one of them reached his wand, something terrible would happen.
+
+He pushed them back.
+
+He did not push with his hands. He pushed with the thing he pushed with. He took the music, and the clean wind, and everything he had, and he pushed it down his wand and along the gold line, and the beads stopped. They trembled. They began, very slowly, to slide the other way.
+
+Towards Voldemort.
+
+The first bead reached the tip of Voldemort's wand.
+
+Something came out of it.
+
+* * *
+
+It was smoke. It was a shape of grey smoke, like the shapes that came out of the broken glass in a hall in another world, and it came out of the end of Voldemort's wand and stood on the grass, and it was Cedric.
+
+He was grey and he was not solid, and he was there.
+
+Harry read him. He could not help it. He read the shape of smoke with Cedric's face and there was something there. It was very faint. It was fainter than the courtroom in the Pensieve. It was like the ghosts, one thin grey note. But it was Cedric's note. It was decent all the way down.
+
+"Hold on, Harry," said the shape of Cedric. Its voice was very far off. "Hold on."
+
+More came.
+
+An old man Harry did not know, a Muggle, with a walking stick, who looked round the churchyard in astonishment and said, "Well. I always knew there was something about that one," in a voice like a gardener's. A woman with a round face Harry did not know either, who looked at Voldemort and her grey face was furious.
+
+And then a woman with long hair.
+
+She came out of the end of the wand and stood on the grass and she was grey, all of her, smoke, but Harry knew her hair. He had seen it in a mirror in a disused classroom, dark red, a long time ago. He had seen her face wet, smiling at him. He had felt her love, quiet and steady and everywhere, the way the lake was everywhere.
+
+She looked at him.
+
+Harry read her.
+
+He read the shape of smoke that was his mother and there was a note in it. It was very faint, one thin grey note. And it was the same. It was the same as in the mirror. It was quiet and steady and everywhere and it was aimed at him and there was nothing underneath it but more of it.
+
+"Here's your dad," she said, very quietly, as though they were in a kitchen somewhere and he had just come in. "Look. Here he is. Stay on your feet, love."
+
+He came. A tall man with untidy hair, smoke, grey, and he stood beside her and looked at Harry, and Harry read him, and it was the same as the mirror too. Proud. Nearly funny. The same love.
+
+"Listen," said the shape of his father, very low. "When you pull away, we'll get in his road. We can't do it for long. A second or two. You run for that cup and you don't look back. All right?"
+
+"Yes," said Harry.
+
+"Don't leave me here," said the shape of Cedric. "Dad'll want… Don't leave me here, Harry."
+
+"Yes."
+
+"Now," said his mother. "Harry. *Now*."
+
+He broke it.
+
+He pulled his wand upwards, hard, the way you pull a fishing line, and the gold line snapped, and the cage of light vanished, and the music stopped, and the shapes of smoke went at Voldemort all at once, and closed round him, whispering, and Harry ran.
+
+* * *
+
+He did not run straight.
+
+He did not think about it. He thought about it afterwards, a great many times, lying awake under the lake. He thought that if he had run straight for the Cup, across twenty feet of open grass, with the shades round Voldemort and forty men in masks turning round all at once with their wands coming up, he would have died. He thought that he had not decided anything. He thought that it had come out of him the way the stag had come out of him on the lake shore, and the coin on the breakfast table, and two Harrys in front of a dragon.
+
+He made more of himself.
+
+He did not make two. He did not make three. He did not count. He reached into every mind in the churchyard at once, the way he had reached into the dragon's, all forty of them, the masked men, all of them, the fear and the greed and the devotion and the pleasure, and he set himself in front of every one of them.
+
+Over and over.
+
+He set a Harry Potter running between the graves to the left. He set one running to the right. He set one going over the wall by the church and one going round the yew and one going straight at the masked men with his wand up and one going down the hill towards the village and one lying flat in the long grass and one standing perfectly still by Cedric's body and one running for the house on the hill. He set them everywhere. He set them so fast that he did not know how many there were. Twenty. More. Every one of them in Slytherin robes with a number on the back, every one of them a boy of fourteen with untidy hair and glasses and a scar. Every one of them himself, as Evelyn saw him.
+
+And he held them.
+
+He held them the way he had held the door against the dragon. Only there were forty doors now, not one, a door in every head in the churchyard, and a wind against every one of them, and he held them all, with his nose pouring blood, with his scar a white sheet, with his body still burning from the curse, and he ran.
+
+The men in masks fired.
+
+They fired at everything. They fired at the Harrys going over the wall and the Harrys going round the yew and the Harry going down the hill. Red light and green light went everywhere, across the churchyard, in every direction, and hit graves and trees and the wall of the church and each other. A man screamed. Somebody fell. Somebody shouted *which one, which one is he*, and somebody else shouted *all of them, kill all of them*, and the churchyard was full of light and noise and Harry Potters, running.
+
+He held it for three seconds.
+
+He could not have held it for four. He felt that very clearly, running, with forty doors and forty winds. Three seconds was everything he had.
+
+It was enough to get to Cedric.
+
+* * *
+
+Voldemort did not fire.
+
+Harry saw him, as he ran. He saw him through the shades of smoke that were round him, whispering, fading. He was standing very still by the cauldron with his wand at his side.
+
+He was not firing at anything.
+
+He was looking at the Harrys.
+
+He was looking at them the way he had looked at his own new hands in the light of the fire. He was turning his head, slowly, from one to the next, the one going over the wall, the one by the yew, the one lying in the grass. He was not looking for the real one. Harry read him as he ran past, and he was not hunting.
+
+He was interested.
+
+That was the thing that came up through him, through the surprise, through the small thing that had been fear. It came up all the way to the top and filled him, and there was no anger in it and no frustration. Only interest. It was enormous. It was the interest of a collector who has walked into a junk shop and seen, on a shelf at the back, under the dust, something he has been looking for all his life.
+
+"That," said Lord Voldemort softly, to nobody, in the middle of the screaming, "is not a spell."
+
+Harry reached Cedric.
+
+"That," said Voldemort, and he sounded, for the first time that night, quite simply delighted, "is a *Path*."
+
+* * *
+
+Harry dropped to his knees beside Cedric.
+
+He did not look at the face. He had looked at it once. He did not need to read it. He knew what was there, which was the place where somebody had been.
+
+He took hold of Cedric's hand.
+
+It was still warm. That was the worst thing. It was a warm hand, a big hand, a Seeker's hand, that had pulled him up off the grass in a maze an hour ago and gone over his shoulder on the way to the plinth. *On three.*
+
+The Harrys were going.
+
+He felt them go. He had held them three seconds, and now he could not hold them, and they were going out one after another all over the churchyard, like lamps in a house, and the masked men were turning, and somebody shouted *there, there, by the body*, and somebody else shouted *Accio*, and Harry heard the high cold voice say, quite calmly, *Leave him. He is mine to finish.*
+
+The Cup was six feet away.
+
+He pointed his wand at it.
+
+"*Accio!*"
+
+It flew into his hand.
+
+And the hook caught him behind the navel, and the churchyard went, and the graves, and the cauldron, and the shapes of smoke, and the man in the masks shouting, and the cold voice, and the yew, and the dark.
+
+He held on to the Cup.
+
+He held on to Cedric's hand.
+
+He did not let go of either.
+
+<->
