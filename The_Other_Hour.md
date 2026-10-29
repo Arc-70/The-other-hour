@@ -18419,3 +18419,529 @@ Then she took her hand out of her cardigan pocket. There was a thin gold chain w
 "I'll come," she said.
 
 <->
+
+## Chapter 30: The Hall of Prophecy
+
+They waited four weeks.
+
+They waited because there was nothing else to do. Aberforth would not take them to London, and they could not go on their own, and the Ministry was the most watched building in the country, and the room full of clocks was somewhere at the bottom of it, behind doors that nobody in this world was allowed through. Evelyn went through every way in that she could think of, on her blankets in the room above the bar, with her notebook. There were eleven. She crossed out all eleven.
+
+"We need somebody to open it for us," she said, on the Sunday. "Or somebody to break it open, and us to be behind them."
+
+"Who'd break into the Ministry?" said Harry.
+
+Nobody answered that.
+
+The other Evelyn came to the Hog's Head every night. She came at eleven, by the passage and the back lane, and she stepped over the third stair without swearing, and she sat on the end of the lumpy bed with her bag on her knees, and she talked to Evelyn. Harry sat on the window seat and listened. He did not read them. There was nothing to read. There were two silences in the room now, side by side, and he found that he could sit between them for an hour without reaching for anything at all.
+
+They talked about books, mostly. About Allingham and Tey and Marsh. About which of Sayers's was best, which they disagreed on, and which they found, after forty minutes, that they did not really disagree on, but had each been taking the other side to see what would happen.
+
+They talked about Mr Pelham, and Cicero.
+
+They did not talk about their grandmother.
+
+Once, on the second Wednesday, the other Evelyn asked about Theo and Millicent. Evelyn told her. The chess and the fudge and the punch in the entrance hall and Summerby's nose. The other Evelyn listened to it the way she listened to everything, quite still, and when it was finished she said, "Bulstrode. In my year here she sits with Parkinson's lot. She doesn't say much. They laugh at her." And then she did not say anything else for a while.
+
+Harry thought about the Hallowe'en bathroom, and the troll, and a girl who had been crying in it until he came in.
+
+He thought that he had gone in because he could feel her from the Great Hall.
+
+He thought that, here, nobody had.
+
+* * *
+
+On the night of the eighteenth of June, at ten to six, the other Evelyn came early.
+
+She did not come by the back lane. She came in through the front door of the Hog's Head, at a run, in her school robes, and Aberforth looked up from the bar and said "We're…" and she went past him without stopping and up the stairs two at a time, and jumped the third step, and came through the door of the room with her bag in her hand and her breath short.
+
+She was not frightened. Harry could not feel her, but he could see it, the way he had learned to see things in Evelyn. Her face was white and her hands were steady and she was holding the bag very tightly.
+
+"They've gone," she said. "Potter. Your Potter. The other one. He's gone. Six of them."
+
+Harry stood up.
+
+"Gone where?"
+
+"London. I think." She put the bag down. "There was something in Umbridge's office this afternoon, after the last exam. Shouting. The Squad had them. Him and Weasley and Granger and the youngest Weasley and Longbottom and the Lovegood girl. Malfoy had Granger by the arm. And then Umbridge took Potter and Granger into the forest, on her own. And she didn't come back. And the other four got loose from the Squad, I don't know how, there was something with a lot of bogies, Malfoy's face is covered in…" She stopped. She took a breath. "Then all six of them went into the forest. I watched from the Astronomy Tower. And then something came up out of the trees. Things. With wings. You can't see them. You could see the six of them. Sitting on nothing, going up, over the trees, south."
+
+"South," said Evelyn.
+
+"South. Towards London." The other Evelyn looked at her. "There's only one thing in London anybody would fly to at six o'clock at night from a school in the middle of exams, on something with wings you can't see, looking like that."
+
+"The Ministry," said Harry.
+
+He did not know how he knew. He thought it was the way she had said *looking like that*. He thought about a tall boy in a red and gold scarf whose anger had worn a groove in him, and he thought that if that boy had got on something with wings and flown south in the middle of his exams, it was not to go shopping.
+
+"Somebody's going to break into the Ministry," said Evelyn.
+
+She was already on her feet. She had her notebook in her cardigan pocket and her watch in her hand, stopped. Harry looked at her and could not read her and did not need to.
+
+"And we can be behind them," she said.
+
+* * *
+
+Aberforth did not want to do it.
+
+He stood behind the bar with both hands flat on it and looked at the three of them, two plain brown-haired girls with the same face and a thirteen-year-old boy with a scar, and he said no four times. Harry read him all four times. The bitterness was up, and the gruff thing under it was up, all the way up, frightened and furious, and it was aimed at all three of them, and it did not want them to go anywhere.
+
+"You're children," he said. "You're three children. You don't know what's down there. I don't know what's down there. Half the Death Eaters in Britain are out of Azkaban since January and if those six have flown down there on thestrals it's because somebody's made them, and if somebody's made them, it's a trap, and you're going to walk into the back of it."
+
+"Yes," said Evelyn.
+
+"Yes, she says." Aberforth looked at her. "Yes."
+
+"It's the only way home," said Evelyn. "You said so. A room full of clocks. Same blood, forwards. We can't get in. They're getting in. We go in behind them while the doors are open." She did not change her voice. "If we don't go tonight we don't go. Nobody's going to break into the Ministry for us twice."
+
+Aberforth looked at the other Evelyn.
+
+"And you," he said. "You know what happens to the watch?"
+
+"No."
+
+"Neither do I." He was quiet. "Neither do I. That's the truth."
+
+"I know," said the other Evelyn. "I'm coming anyway."
+
+Aberforth looked at her for a long time.
+
+Then he took his hands off the bar.
+
+"There's a fire in the back," he said. "It's on the Floo. It's on the Floo because forty years ago I had a reason, and I've never had it taken off. It'll go into the Atrium. The visitors' end. There'll be nobody on the desk at this time." He looked at Harry. "You'll go after them. Straight down. There's a lift. And then you'll be on your own, and God help you."
+
+"Thank you," said Harry.
+
+"Don't thank me," said Aberforth. "I'm going to send word to my brother the second you're through."
+
+Harry looked at him.
+
+"I'm not going to tell him about you," said Aberforth. "I'll tell nobody about you. You were never here. You were two Hufflepuffs I saw on the high street and a goat called Mabel. But six children have just flown to the Ministry on thestrals, and my brother's the only man in England who might get there before they're killed, and I've hated him for ninety years, and I'm going to send for him anyway." He said it quite flatly. "I'm too old for this. I'm too old for any of it. Go on. Get in the fire."
+
+* * *
+
+The Atrium was dark, and enormous, and empty.
+
+Harry came out of a fireplace into it on his hands and knees, and the cold stone of the floor was under his palms, and the first thing he did, before he stood up, before he looked, was reach.
+
+There was nobody in the Atrium.
+
+There was a fountain in the middle of it, gold, very large, with figures in it, and the water was running and splashing in the dark. There were fireplaces all along both walls, dozens of them, dead. There was a desk at the far end by a set of golden gates, and nobody at it.
+
+And there was something below.
+
+It was a long way down. It was further than he had ever reached. He could not have reached it on an ordinary day, he thought. It was through a great deal of stone and a great many floors. But it was so loud.
+
+It was fear.
+
+It was six people's fear, and it was very young, and it was all at once, and it was coming up through the floors of the Ministry like heat coming up through a grating. He knew one of them. He knew the shape of it. He had read it every morning at breakfast for a week before he decided not to read it any more.
+
+The tall boy was terrified.
+
+And there was something else down there, round the fear, in a ring. There was no fright in it at all. It was pleased. It was a dozen people, perhaps more, and every one of them was pleased in the same way, the way the Slytherin seventh-years had been pleased in the common room when they gave him the best chair. They were pleased the way people are pleased who have been waiting for something for a long time, and have got it, and are about to enjoy it.
+
+Evelyn came out of the fireplace behind him. Then the other Evelyn.
+
+"They're down there," said Harry. "A long way. Six of ours." He did not know why he said *ours*. "And a lot of others. Round them."
+
+"Death Eaters," said the other Evelyn.
+
+"I think so."
+
+"How many?"
+
+"Twelve. More. I can't count from here." He stood up. "They're enjoying it."
+
+* * *
+
+They went down in the lift.
+
+It was a golden lift with a grille, and it went down and down, past floors with names called out by a cool woman's voice that came from nowhere, *Department of Magical Law Enforcement*, *Department of International Magical Co-operation*, and it did not stop at any of them, and Harry stood in it with the two silences beside him and held three illusions shut.
+
+He had decided in the Atrium.
+
+He could not make them three Hufflepuffs. Not here. There was nobody here to fool with a face. There were a dozen people at the bottom of this building who would kill anybody they did not expect, and six children who would be confused by anybody they did not expect, and either way a face would not help.
+
+So he had made them nothing.
+
+He had thought about the Galleon he had taken off the desk in the study. He had thought about how, when he stopped holding it, it was simply not there. He had thought about the cat on the window sill in Umbridge's office, going away. And he had taken the three of them, himself and Evelyn and the other Evelyn, and set them, for everybody who might look, as not there. As empty air. As the place in a corridor where nobody is standing.
+
+It was much harder than a face.
+
+A face was a thing. You could hold a thing. This was the absence of three things, and he had to hold it everywhere, for everyone, all the time, and it was like holding a door shut against a wind that came from every side at once.
+
+He held it.
+
+His nose had begun to bleed. He wiped it on his sleeve.
+
+"Potter," said Evelyn.
+
+"I'm all right."
+
+"You're bleeding."
+
+"I know." The lift stopped. "Department of Mysteries," said the cool woman's voice. The grille slid back. "Stay close. Stay right behind me. If you can't see me, you can't see me, I'm still there. Touch my back if you need to."
+
+"I can see you," said Evelyn.
+
+"I know you can," said Harry. "That's the point."
+
+* * *
+
+There was a corridor, very plain, with black walls, and a door at the end of it. There was a round room with a great many doors in it, all the same, and blue candles in the walls, and as they came in, the room began to spin.
+
+When it stopped, one door was standing open.
+
+Harry read through it.
+
+It was very loud now. It was right there, through that door and the rooms beyond it. The six children were a long way in, and they were running, and the fear in them had gone up and up until it was nearly all they were. And round them the pleased ones were closing, slowly, the way you close your hand round something small.
+
+He went through the door.
+
+He did not remember most of it afterwards. He remembered pieces. He remembered a long dim room full of shelves that went up into the dark, higher than the shelves in any library, and on every shelf, row after row, there were small glass balls. Thousands of them. Dusty. Glowing very faintly, the way a candle glows behind a curtain. He remembered numbers on the ends of the shelves. Ninety-four. Ninety-five. Ninety-six.
+
+He remembered the noise.
+
+They were in it already. The fight. It was happening all round them, between the shelves, up and down the long rows, and it was very loud, and it was very fast. Spells went past. Somebody screamed. Somebody laughed. A jet of red light came down the row towards Harry and he did not move, because he was not there, and it went past his shoulder and hit a shelf behind him, and the shelf began, very slowly, to lean.
+
+He read it all. He could not stop.
+
+He read the six children he had felt from the Atrium, and they were terrified, all of them, every one, the youngest Weasley, Longbottom, the Lovegood girl, Granger, the tall red-haired boy, and the tall dark one at the front of them, who was more frightened than all the rest put together, and who was not frightened for himself.
+
+He read a dozen people in black, with masks, and they were enjoying themselves.
+
+They were enjoying it enormously. That was what he remembered most. Not hate. Not anger, mostly. Pleasure. It came off them the way warmth comes off a fire, and it was the pleasure of grown men and women chasing children through the dark with wands, and it was the plainest, simplest, most awful thing Harry had ever felt. There was one of them, a woman, laughing in a high wild voice, whose pleasure was so large and so loud that it drowned the others, and under the pleasure there was something else, aimed far away, at somebody who was not in the room, that was so much like worship that Harry could not look at it.
+
+The shelves came down.
+
+They came down in a long slow crash, one after another, row after row, like dominoes, and the glass balls fell off them in thousands and broke on the floor. They broke all round. They broke in front of him and behind him and on both sides. And as each one broke, something came out of it, a shape like smoke, pale, and spoke a few words in a voice like somebody talking in their sleep, and was gone.
+
+Hundreds of them. All at once. Voices everywhere. Nobody could have heard any one of them.
+
+Harry stood still in the middle of it, holding three people not there, with his nose bleeding into his mouth.
+
+The tall boy came round the end of the row.
+
+He was running. He had something in his hand, a glass ball, a little dusty, like all the others, and he was holding it tight against his chest, and he came round the end of the row twenty feet from where Harry stood and somebody's spell caught the shelf beside him and it came down. It came down on top of him. He threw himself sideways, and rolled, and came up again with his wand out, and the glass ball was not in his hand any more.
+
+It rolled.
+
+It rolled across the floor between the shelves, through the broken glass, through the noise, quite slowly, the way a marble rolls across a kitchen floor when somebody has dropped it, and nobody saw it, because everybody was looking at something else, and it came to rest against the side of Harry's foot.
+
+Harry looked down at it.
+
+The tall boy was gone. He was running again, the other way, shouting a name.
+
+Harry bent down. He did not decide to. He bent down to pick it up, because it was against his foot, the way you would pick up anything, and his fingers touched it, and he had not closed them on it when a boot came down out of the dark, somebody's boot, a Death Eater running past, and stepped on it.
+
+It broke under the boot.
+
+The man did not stop. He did not notice. He ran on down the row after the children, and the glass ball lay broken on the floor at Harry's feet, and out of it came a shape of pale smoke, and the shape was a woman.
+
+She was thin. She had large spectacles that made her eyes enormous. She wore a great many shawls. She hung in the air over the broken glass, about as tall as Harry's knee, and her face was not looking at anything, and her voice, when it came, was not her own. It was harsh, and deep, and slow, the voice of something talking through her.
+
+Nobody else heard it.
+
+There were a hundred other voices in the room, and spells, and screaming, and the woman in black laughing her high wild laugh, and nobody else in all of it was standing still, and nobody else had their face eight inches from the broken glass.
+
+Harry heard it.
+
+He would remember every word of it for the rest of his life. He would never once say it aloud the way she said it. When he told it afterwards, he told it in his own words, and quickly, because he did not like the voice.
+
+It said that the one who had the power to vanquish the Dark Lord was coming. It said he would be born to those who had defied the Dark Lord three times, and that he would be born as the seventh month died. It said that the Dark Lord would mark him as his equal. It said that he would have a power that the Dark Lord did not know.
+
+And it said that in the end one of them would have to die at the hand of the other. Because neither of them could go on living, not really, not properly, for as long as the other one was still alive.
+
+The smoke went.
+
+The woman was gone. There was broken glass on the floor, and dust, and nothing else.
+
+Harry stayed bent over it for about two seconds.
+
+He thought: *the seventh month*.
+
+He thought: *the thirty-first of July*.
+
+He thought about a man at Godric's Hollow on Hallowe'en, fifteen years ago in this world and thirteen in his, coming into a house that somebody had given away. He thought about a cut on a baby's forehead in the shape of a lightning bolt. *The Dark Lord will mark him as his equal.* He thought about a face on the back of a man's head saying *we are alike*.
+
+He thought: *it was made before.*
+
+It was made before any of it. Before the Sorting. Before a hat had sat on a boy's head and the boy had said, or not said, *not Slytherin*. Before the worlds had gone two ways. Somebody had said it, in a room somewhere, in a voice like that, years before he was born, and it had been said about a boy who was not yet in Gryffindor or Slytherin or anywhere at all.
+
+It was about the tall boy, running.
+
+It was about Harry, too.
+
+"Potter."
+
+Evelyn had hold of his sleeve. He could not see her. He could see her, he was not holding her for himself, he had never been able to hold anything for her. She was right beside him, with her face white, and the other Evelyn was behind her.
+
+"Potter, we have to go. Now. They're coming back this way."
+
+He stood up.
+
+He wiped his nose on his sleeve. It was still bleeding.
+
+He did not tell her what he had heard. Not then. He held three people not there, and he went on.
+
+* * *
+
+There was a room between the hall of shelves and the room of clocks. It was small and dark and full of desks, like an office that nobody had worked in for years, and its door was open, and they had to go past it.
+
+Harry looked in because it was there.
+
+There were people in it. The bushy-haired girl, Granger, was in it, and Longbottom, and a man in a mask who had taken his mask off. He had a long pale twisted face. He was standing in the middle of the desks with his wand raised, and Granger was in front of him with hers, and Longbottom was on the floor holding his face, and there was blood coming through his fingers.
+
+Harry read the man. He was enjoying himself.
+
+He read Granger. She was terrified, and the terror was all for the boy on the floor beside her, and she was going to stand in front of him anyway, and Harry had felt that once before, in a mirror, from a woman with red hair. She was going to stand there.
+
+The man moved his wand. It was a short slashing movement, not a word, and there was a streak of purple flame, and it went across the front of her, and she made a small surprised sound, the sound of somebody who has missed a stair, and crumpled onto the floor.
+
+Harry read her go.
+
+She did not go silent. That was the first thing, and he held on to it. She did not go silent the way a statue goes silent, or the way Evelyn had gone silent in a hospital bed with a page in her fist. She went faint. Very faint. Like a lamp at the far end of a long corridor, still lit, but so far off he could hardly see it.
+
+He stopped in the doorway.
+
+He could have done something. He knew it at once. The man was pleased with himself and he was turning towards Longbottom, and Harry could have set something in front of him, anything, a second Granger getting up, a wand coming at his back, a cat on a desk, and the man would have turned, and Longbottom would have had a second. It would not have been hard. He had done harder. He had done it to a headmistress with her eyes open.
+
+He was holding three people not there.
+
+He was holding them with his nose running blood into his mouth and his shoulder against a door in a wind that came from everywhere, and if he let go of one of them for a picture of a cat, the man in the dark office would turn round and see three children in a doorway who were not supposed to exist, and so would everybody else.
+
+"Potter," said Evelyn, behind him. Very low. "We can't."
+
+"I know."
+
+"We can't. You can't hold it. If you let go…"
+
+"I know."
+
+He did not move.
+
+Longbottom took his hand away from his face. His nose was broken. Harry could see it from the door. He picked up his wand from the floor, where it had fallen, and he pointed it at the man with the twisted face, with his hand shaking, and said something that came out thick and wrong through the blood, and the man laughed.
+
+And then the tall boy came through the far door of the office at a run, with the red-haired girl behind him, and the man turned, and there were spells, and Harry did not see the rest, because Evelyn had his sleeve and was pulling him on, past the door, down the dark passage, away.
+
+He went.
+
+He went because there was nothing else to do. He thought about the purple flame for a long time afterwards. He thought about the small surprised sound. He thought about how easy it would have been, and how he had not.
+
+He never found out whether the bushy-haired girl lived.
+
+
+
+* * *
+
+The room of clocks was through a door at the end of the long hall, past the last fallen shelf.
+
+He felt it before he reached it. Not the room. The room was nothing. But there was a kind of stillness through the door that he had never felt anywhere in his life, a stillness like the inside of Evelyn's silence, only made of something else entirely, and it was so large and so steady that the fight behind him seemed for a moment very far away.
+
+He went in.
+
+It was full of light.
+
+It was full of clocks. They were on the walls and on the tables and standing on the floor, hundreds of them, large and small, and they were all ticking, every one, and the ticking filled the room like rain on a roof. In the middle of the room there was a bell jar, enormous, taller than Harry, and inside the bell jar there was a sparkling wind, and in the wind a small bright egg rose up and up, and cracked, and became a bird, and rose, and became an egg again, and fell, and cracked, and became a bird.
+
+Harry did not look at it for long.
+
+He turned round and faced the door.
+
+"Do it," he said. "Now."
+
+Behind him he heard the other Evelyn take her watch out.
+
+He heard the small sound of the chain coming off the button of her cardigan. He heard Evelyn take out hers. He did not turn round. He was looking at the doorway. Through it, at the far end of the long hall of fallen shelves, he could see figures in black, three of them, coming this way. Not running. Walking. Looking.
+
+He held the door.
+
+He did not hold it shut. He could not. He held it empty. He set the doorway of the room of clocks, for anybody who looked through it, as a doorway into a room with nobody in it. Clocks. A bell jar. A bird. Nobody. It was a picture of the room as it would have been if three children had never come through the door. He held it in front of every eye in the long hall. He held it the way he had held the coin, and the two faces, and the three people not there, and he held all of them at once now, the three people and the empty room, and the wind came from every side.
+
+His nose was running blood down his chin.
+
+"Forwards," said the other Evelyn, behind him.
+
+She said it to herself. He heard her say it.
+
+He heard the crown of a watch turn.
+
+One.
+
+Two.
+
+Twenty turns. He knew it would be twenty. He did not know whether it would need twenty, but he knew she would do twenty, because she did twenty every morning, and so did the girl beside her.
+
+He counted with her.
+
+At twenty, nothing happened.
+
+And then, a long way above him, so far above that it was almost out of reach, something changed.
+
+It was in the Atrium. Harry felt it the way you feel a door open somewhere in a big house, by the change in the air, not by the sound. There was somebody in the Atrium who had not been there before. He could not read them. They were closed, the way Dumbledore at home was closed when he did not want to be read, smooth and complete.
+
+But he could read what it did to the pleased ones.
+
+It went through them all at once, down every floor of the Ministry, through every one of them in their masks in the rooms behind him: a single sharp cold drop of something that was not pleasure. Harry felt it go through a dozen people in the same second, like a stone through a dozen panes of glass.
+
+They were afraid.
+
+All of them. Every one of them who had been enjoying themselves a moment ago was suddenly, quite plainly, afraid, and the fear was aimed upward, at the Atrium, at the closed thing that had come out of a fireplace into it.
+
+Aberforth had sent word.
+
+And his brother had come.
+
+* * *
+
+Nothing happened for a long time.
+
+That was what he thought afterwards. That it was a long time. When he made Evelyn tell him, later, she said it was fourteen seconds. She had counted at the pace of the long-case clock in the hall at Selwyn Hall, the pace she had been taught when she was four, and it was fourteen seconds, and she was sure.
+
+It felt longer.
+
+He stood in the doorway holding everything, and the three figures in black came down the long hall, looking at the doorway, looking through it, and seeing nothing, and turning away. They turned away. They did not come in. Harry read them as they turned and they were bored and pleased and in a hurry, and they went off to the left, through a door Harry had not seen, and left it open behind them.
+
+It was open onto a corridor.
+
+He looked down it because it was there.
+
+The corridor was short. At the end of it there was another door, also open, and beyond the door there was a room, and the room went down.
+
+It went down in stone steps, rows of them, like the seats of a theatre or the inside of a great stone bowl, all the way down to a floor at the bottom. And in the middle of the floor, on a raised stone platform, there was an arch.
+
+It was very old. It was cracked and crumbling, and it stood on its own, holding up nothing, and in the opening of it there hung a black veil, ragged and still.
+
+No. Not still.
+
+It was moving. Very slightly. As though somebody had just walked through it, or as though there were a wind on the other side, where there could not be any wind.
+
+And there were people on the platform.
+
+They were fighting.
+
+There were people from the room of shelves, the masked ones. There were other people now, new ones, who had not been there before, who had come in from somewhere, and they were fighting the masked ones. A man with a wooden leg. A young woman with bright pink hair. A tall black wizard with a gold hoop in his ear. A thin tired man in mended robes whom Harry knew, with a jolt that went all the way through him, from a train and a staffroom and a classroom full of desks pushed back against the walls.
+
+Lupin.
+
+And on the platform, by the arch, there was a man with long black hair, laughing.
+
+Harry knew him.
+
+He knew him from a goat-smelling room above a bar, and a missed third stair, and a story about a stag in a dormitory. He knew the laugh. It was the bark, the real one, the young one, and the man was duelling, quick and reckless and delighted, with the woman in black who laughed so high and wild, and his face was alight.
+
+Sirius.
+
+The other Sirius. This world's Sirius. Who was not supposed to be out. Who had come anyway, because he could not stand being told to sit still, because there were children in the building and one of them was his.
+
+He was enjoying himself. Harry read him and he was enjoying himself. He was out of the cage. He was fighting, at last, at last, after a year in a house he hated, and the despair had gone right down to the bottom of him where Harry could hardly feel it, and on the top, filling him up, was the delight, and the love, aimed at the tall boy on the steps. And the recklessness. Like a horse nobody had ever broken.
+
+He laughed at the woman in black. He said something. Harry could not hear what.
+
+She stood three steps up from the platform, on the left side, by the arch. Harry would remember that. Three steps up, on the left. She had her wand raised. She was not laughing now.
+
+There was a light. It came from her wand. It was red.
+
+It hit him in the chest.
+
+The laugh did not stop. That was what Harry remembered. It did not stop at once. It had not finished leaving his face, and his face was still alight, and still surprised, and his body went backwards, quite slowly, the way a body goes backwards when it has been pushed and has not yet understood that it is falling.
+
+It went through the veil.
+
+The veil moved, the way a curtain moves in a draught. It moved for a moment, and then it hung still again.
+
+There was nobody on the other side of it.
+
+Harry read him go.
+
+He was reading him. He could not stop. He had been reading him all along, the laugh and the delight and the love, and it was all there, all of it, loud, aimed at the boy on the steps, all the way up to the veil.
+
+And then it was not there.
+
+It did not fade. It did not go quiet. It was there, and then there was the place where it had been, the way there is the place where a candle was, when you have blown it out, and you can still see where the flame stood.
+
+And then the scream.
+
+It was the tall boy. He was on the steps, on the far side of the room, and he was screaming. He was screaming a name, over and over. He was trying to get down the steps to the arch, and somebody had him round the middle, the thin tired man in mended robes, Lupin, holding him back, holding him with both arms, and he was fighting him, and screaming.
+
+Harry read him.
+
+He could not help it. He had decided in a bare room in the Room of Requirement that he would never read the tall boy again, and he had kept it for six weeks, and he could not keep it now. The scream came up the corridor and through the door of the room of clocks and into him, and it was not a scream, it was what was under it, and it was so loud that it was the only thing in the world.
+
+There was no word for it. Harry had words for most things. He had been finding words for what people felt since before he could remember. He did not have a word for this.
+
+He stood in the doorway and held three people not there and an empty room and he could not do anything.
+
+He could not do anything at all.
+
+He could not go down the corridor. He could not go to the boy on the steps. He could not stop the red light, because it had already come. He could not pull the man back out of the veil. He could not even stop reading, and he stood in the doorway of the room of clocks with blood running down his chin and he watched, and he felt it, all of it, and he did not do anything, because there was nothing in the whole of the world that he could do.
+
+* * *
+
+"Potter."
+
+The other Evelyn's voice.
+
+"Potter. It's going."
+
+He turned round.
+
+The other Evelyn was standing in the middle of the room of clocks, in the light from the bell jar, with her watch in her open hand.
+
+It was coming apart.
+
+It was coming apart quite quietly, the way a sandcastle comes apart when the sea reaches it. The gold of the lid was going first. The ivy leaves were going soft at the edges, and then they were not leaves, and then they were not anything. They were dust. Fine bright gold dust, like the dust in a sunbeam, running through her fingers, and the face of the watch was going after the lid, and the hands after the face, and the fine silver third hand, which had never moved, went last.
+
+And at the same moment, beside her, in Evelyn's hand, the other watch, the stopped one, gave one small sound.
+
+Smaller than a tick: the sound of something catching.
+
+And the whole room began, very slowly, to turn.
+
+Not the room. The room stayed where it was. It was the next moment that turned. Harry felt it turn. He felt it the way he had felt it in the study, in March, a lifetime ago, with his hand on Evelyn's: the stair that was not there. It was coming under his feet. He could feel the edge of it.
+
+He reached out and took Evelyn's hand.
+
+He did not think about it. He took it, the way he had in the study, and her hand was cold and her fingers were round the watch, and he held on.
+
+The other Evelyn was looking at her hand.
+
+There was nothing in it now. There was a little gold dust in the creases of her palm, very fine, catching the light from the bell jar. That was all. The chain was hanging from her fingers, with nothing at the end of it.
+
+She looked at it for a moment.
+
+Then she looked up, at Evelyn.
+
+Outside, in the long hall of fallen shelves, there were footsteps. Harry heard them. They were coming this way, fast now, not walking, and there were voices with them, and Harry was not holding the doorway any more. He had let it go when he turned round. He had let everything go. There was nothing between the room of clocks and the hall but an open door.
+
+The footsteps came nearer.
+
+The other Evelyn heard them too. Harry saw her hear them. He saw her face, which was Evelyn's face, two years older and a little thinner, and plain, the face people forgot, and he could not read it, he had never been able to read either of them, and he did not know what was behind it and he never would.
+
+She looked at Evelyn.
+
+She did not look frightened. She looked the way Evelyn looked at the end of a book she had enjoyed, when she closed it and put it square to the edge of the table.
+
+"It's all right," she said. "Nobody will notice I've gone."
+
+And the stair was not there.
+
+* * *
+
+There was no sound.
+
+There was no light. There was nothing. There was the hand in his, cold, and the watch inside it, and the edge of a step that had been taken away, and his whole body going down into the place where it should have been and not finding it.
+
+The last thing he saw, before there was nothing to see, was her face, quite still, in the light from the bell jar.
+
+The last thing he heard was the footsteps.
+
+* * *
+
+He was lying on stone.
+
+It was cold, and it was wet, and it was dark, and it smelled of old water and the inside of the earth. There was dim green light. There were pillars, going up into the dark, carved with snakes.
+
+He did not move.
+
+He lay on the floor of the Chamber of Secrets with his cheek on the wet stone and Evelyn's hand still in his, and he did not open his eyes for a long time, because he did not want to see whether the snake down the hall was bones or grey meat, and he could not, just yet, find out.
+
+<->
