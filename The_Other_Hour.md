@@ -36514,3 +36514,517 @@ He sat very still, so as not to disturb her, and looked at the dark too, and let
 They stayed like that until the owls went out to hunt.
 
 <->
+
+## Chapter 62: Lockhart Returns
+
+Gilderoy Lockhart came to Grimmauld Place on the Thursday before Easter, at a quarter past three in the afternoon, and he came by the front door, and he knocked on it with the silver lion's head of his stick, seven times, in a rhythm.
+
+Sirius opened it.
+
+Harry was in the hall. He read Sirius open the door, and he read what came up in Sirius when he saw who was on the step, and it was dislike. It was immediate and total and very loud, the dislike of a man who has spent his whole life being the most handsome person in any room he walked into, finding a man on his doorstep who had very clearly spent his whole life believing the same thing about himself.
+
+"Sirius Black!" said Lockhart. "The man himself. The famous innocent! I've read all about you. May I say, you look *much* better than your photographs."
+
+"Thank you."
+
+"Not that that would be difficult. That prison one. Dreadful. Nobody should be photographed in those conditions. The lighting alone."
+
+Sirius looked at him.
+
+Lockhart was wearing a cloak.
+
+It was a very long cloak, down to his ankles, and it was a colour Harry had never seen on a cloak before, or on anything. It was a soft, warm, glowing orange, the colour of the inside of a peach in sunlight, with something golden in it, and there was gold embroidery at the cuffs and the hem, and when Lockhart moved, the cloak moved after him a moment late, in a long slow ripple, as though it had been rehearsing.
+
+"Do you like it?" said Lockhart, seeing Harry look. "The colour's called sugared apricot. Madam Malkin had it made up specially. I said to her, my dear girl, I said, I have been in a hospital bed for four years in a nightgown the colour of porridge, and I would like, please, to be *seen* again." He swept into the hall. "Harry, my dear fellow. Look at you. Taller! Again! You must stop."
+
+He held out his arms.
+
+Harry let himself be embraced. He read Lockhart while it was happening, and it was all there. The vanity, huge and warm and generous. The pleasure in being looked at. The courage, standing up behind the vanity as always, waving. And under all of it, enormous, like a sun coming up, there was joy. It was the joy from the tea room in St Mungo's, a year and three months ago, the joy of a man who had been told he might be useful again. It had not gone down at all.
+
+"No stick," said Harry.
+
+"Oh, I've got the stick." Lockhart lifted it and the silver lion caught the light. "I don't *need* the stick. I haven't needed it since November. But it's a very good stick, and Desmond said I'd earned it, and I think a man should carry something with a lion on it into a room. It sets the tone." He looked round the dark hall, at the troll's-leg umbrella stand and the moth-eaten curtains over the portrait. "Oh, this is *grim*. This is wonderfully grim. Who did your decorating, Black? Was it a Dementor?"
+
+"My mother," said Sirius.
+
+"Ah," said Lockhart. "Well. I'm sure she was a very fine woman in other respects."
+
+Behind the curtains, the portrait began to scream.
+
+* * *
+
+Sirius could not stand him for exactly ten minutes.
+
+Harry timed it, afterwards, in his head. It was ten minutes from the front door to the kitchen table, and in those ten minutes Lockhart told Sirius what was wrong with the hall, the stairs, the kitchen, the kettle, and the portrait, which he addressed directly, through the curtains, as *my dear lady*. He told a story about a vampire in Transylvania that involved a great deal of garlic and a borrowed hat. He signed a copy of *Year with the Yeti* that he had brought with him, for Sirius, without being asked, and wrote in it *To Sirius, from one handsome man to another, with very great respect for your hair*.
+
+Sirius read the inscription.
+
+Harry read him read it. The dislike was there, still, enormous. And under it, coming up slowly, very much against Sirius's will, there was something else, and Harry knew what it was before Sirius did.
+
+It was delight.
+
+"You've got the stick," said Sirius. "With a lion on it."
+
+"I have."
+
+"I've got a coat," said Sirius, "that I think you'd appreciate."
+
+He went upstairs and fetched it. He came back down the stairs in the mustard-and-plum check with the brass buttons, all eleven of them, and stood in the kitchen doorway, and Lockhart looked at him for a long moment in total silence.
+
+"Oh, my *dear* fellow," said Lockhart at last, in a voice of very deep feeling. "Where did you *get* it?"
+
+"Man on the Holloway Road. Two Galleons and a bone."
+
+"It's *dreadful*."
+
+"I know."
+
+"It's the most dreadful coat I have ever seen. And I have been to a goblin wedding." Lockhart's eyes were shining. "May I touch it?"
+
+And after that it was hopeless.
+
+Harry sat at the end of the kitchen table and watched it happen, and read it happen, and did not say anything. He watched the two of them go from the coat to the cloak, and from the cloak to a long, loud argument about whether it was ever acceptable to wear a hat indoors, and from the hat to Azkaban, which Lockhart wanted to hear about in detail and Sirius, to Harry's astonishment, told him. And from Azkaban to a Himalayan Walker called Tenzin Norbu, whom Lockhart had once spent a winter with, and who had taught him to sit still for nine hours, which, he said, was the hardest thing he had ever done, including the yeti.
+
+Sirius laughed until he had to hold on to the table.
+
+Harry read him. The dislike had gone. Not down. Gone. And what had come up in its place was the delight of a man who has been loved all his life by loud warm reckless people, and has just found, at his own kitchen table, another one.
+
+By six o'clock they were drinking firewhisky and Lockhart was teaching Sirius the correct way to sweep a cloak, and Sirius was doing it in the coat, up and down the kitchen, and Kreacher was watching from the door of the boiler cupboard with an expression of total despair.
+
+"It's in the wrist," Lockhart was saying. "And a little in the shoulder. And a great deal in the *attitude*."
+
+* * *
+
+Lockhart told them why he had come at seven, over a fish-and-chip supper that Sirius had fetched from the Caledonian Road, eaten out of the paper at the kitchen table.
+
+"Cornwall," he said. "St Just. Do you know it? Right at the end of everything. Granite and gorse and the sea on three sides. There are tin mines all over that coast, old ones, Victorian and older, closed for a hundred years, holes going down into the rock and out under the sea." He put a chip in his mouth. "There's one called Wheal Penrose. Out on the cliff, west of the village. Closed in eighteen ninety-six. Flooded in the lower galleries."
+
+"And?" said Sirius.
+
+"And there's a family in it." Lockhart was not smiling now. "A witch called Annie Treloar, Muggle-born, who used to work in the Floo Network Authority. Her husband, who's a Muggle. Two children. They ran in February, when the Registration rumours started. They've been hiding in the upper galleries of Wheal Penrose for six weeks. The Order's been getting food to them." He put down his chip. "Three days ago Kingsley's contact stopped hearing from them."
+
+"Death Eaters?"
+
+"Not Death Eaters. Not inside. There are two of them outside, at the mine head, watching, which is how we know something's wrong. But they're not going in." Lockhart looked at Sirius across the table. "They don't need to. Somebody's put Inferi in the lower galleries. A great many. Down in the flooded part, under the water, where nobody would see them. And they've started coming up."
+
+Nobody said anything for a moment.
+
+"The family's above them," said Lockhart. "In the upper galleries. Trapped. They can't come out the top because of the two at the mine head, and they can't go down because of what's coming up." He picked up the chip again and looked at it and put it down. "I'm going tomorrow night. Kingsley can't, he's at the Ministry, and Moody's in Scotland, and Remus is…" He stopped. "Remus is not in a state to go anywhere. So I'm going."
+
+"Alone?" said Sirius.
+
+"No," said Lockhart. He turned to Harry. "I'd like to take Harry."
+
+* * *
+
+Sirius said no.
+
+He said it at once, and loudly, and then for twenty minutes, in a great many different ways. He said Harry was sixteen. He said Harry was supposed to be on holiday. He said that if Lockhart wanted somebody to go down a mine full of dead people with, he would go himself, and Lockhart said he could not, because Sirius had been seen on the front page of the *Prophet* every week since July and every Death Eater in the country knew his face and would be on him in an hour.
+
+"Then why Harry?" said Sirius. "Everybody knows his face too. He's the *Chosen One*."
+
+"Because Harry can make them not see it," said Lockhart. "And because of the children."
+
+He looked at Harry across the table.
+
+"There are two children in that mine," he said. "A girl of nine and a boy of six. They've been in the dark for six weeks, and for three days they've been hearing something coming up from below. When we get to them, they're going to have to run. Up through the old galleries, in the dark, past things they don't want to see, fast, and not stop." He was quite serious. "I can make a grown man run. I've done it a great many times. I'm very good at it. I don't know how to make a child run. I've never had to." He paused. "Harry knows what people feel. I'd like him there."
+
+Sirius looked at Harry.
+
+Harry read him. Fear. Large and plain and aimed at Harry. And fury, at the walls, at the house, at Lockhart, at the war. And under both of them, at the bottom, very quiet, the thing that had been in him since a funeral in Devon. The question. *Why me.*
+
+"Ask Dumbledore," said Sirius at last, very short. "If Dumbledore says yes…"
+
+They asked Dumbledore.
+
+He answered through the kitchen fire at nine o'clock that night, his old white head in the green flames, and Harry knelt on the hearth and read him through the fire. He was tired. He was always tired now. And under the tiredness, at the bottom, there was the fear, the small plain fear Harry had read in a ruined shack in November. It had not gone away.
+
+"Gilderoy is a very good field operative," said Dumbledore. "Better than most people know. Better than he lets them know." He looked at Harry through the flames. "It is your decision, Harry. I will not make it for you. I will say only that there are two children in that mine who will not get out without help, and that you are very good at help, of a certain kind." He paused. "And that I would rather you went with Gilderoy than with anyone else I can think of, if you go at all."
+
+"I'll go," said Harry.
+
+Behind him, Sirius said something very short and very rude, and went upstairs, and Harry heard him go into Buckbeak's room and shut the door.
+
+* * *
+
+They went on the Friday night, Good Friday, the twenty-eighth of March, by Portkey to a cliff a mile west of St Just.
+
+It was very dark and very windy. The Portkey was a broken lobster pot, and it put them down on short wet grass on the top of a cliff, in a gale, with the sea booming on the rocks two hundred feet below, and the stars out over the Atlantic, and nothing between them and America but water.
+
+Lockhart stood up, and shook out his cloak, and looked round.
+
+"Oh, *lovely*," he said. "Isn't it lovely? I always forget how lovely it is. I banished a Kelpie off this coast in nineteen eighty-one, you know. Off Cape Cornwall. He was very rude about my hair." He pointed his stick along the cliff. "That way. Half a mile. You'll see the engine house. Keep low."
+
+They went along the cliff.
+
+Harry read ahead. He did it the way he always did now, from the moment he arrived anywhere, sorting. There was nothing on the cliff. There was the wind, and the gorse, and somewhere below in the rocks a seal, its faint dull animal contentment. There was Lockhart beside him, enormous with joy, and under the joy, very quiet now, very steady, something Harry had not felt in him since a collapsing tunnel under a school.
+
+It was readiness.
+
+And half a mile ahead, at the top of the cliff, there were two people.
+
+They were bored. Harry found them and read them before he could see them. They were cold and bored and resentful, the dull grinding resentment of men who have been told to stand on a cliff in a gale and watch a hole in the ground, and have been doing it for three days, and do not see why. One of them was frightened, a little, under the boredom, of the hole. The other was not frightened of anything. The other was looking forward to something.
+
+"Two," said Harry. "At the top. By a wall. One's frightened. One isn't."
+
+"Good," said Lockhart. "Then this is a lesson."
+
+* * *
+
+The engine house of Wheal Penrose stood on the top of the cliff against the stars, a tall square tower of granite with no roof and a tall chimney beside it, black, and round its foot there were the remains of walls, and spoil heaps, and a shaft. The shaft was a black hole in the ground, fenced off by a ring of rusted iron, and the two Death Eaters were sitting with their backs against the engine-house wall on the far side of it, out of the wind, with a lamp between them.
+
+Harry and Lockhart lay in the gorse forty yards away.
+
+"Now," said Lockhart, very low, in Harry's ear. "Tell me what you'd do."
+
+"Make them not see us. Walk past."
+
+"Both of them?"
+
+"Yes."
+
+"How long could you hold it?"
+
+Harry thought. "Long enough to get to the shaft. Maybe longer."
+
+"And if one of them gets up to relieve himself, and walks round the wall, and treads on your foot?"
+
+Harry did not say anything.
+
+"Yes," said Lockhart. "You see. That's the trouble with the perfect lie. It's perfect. It's beautiful. It's a work of art. And one man treads on your foot and the whole thing comes down, and there you are, standing in front of him, with your mouth open." He was smiling in the dark. Harry could hear it. "I've done perfect lies. They're lovely in a drawing room. On a cliff, at night, with the wind blowing, they're the worst thing in the world."
+
+"So what do you do?"
+
+"You do a hundred bad ones," said Lockhart. "Fast."
+
+He rolled over onto his back in the gorse and looked up at the stars.
+
+"People who are frightened, Harry, or bored, or cold, or angry, or in a hurry, aren't thinking. Not properly. They're seeing. They're seeing in pieces. A flash here, a noise there. They don't look at anything long enough to check it. And a mind that isn't checking doesn't need a perfect lie. It needs a great many small, cheap, quick, bad ones, one after another, too fast to look at." He held up his hand and made it flicker, fingers spread, in the starlight. "A noise behind him. A shadow on his left. Something moving in the gorse. His friend saying his name. A light where there wasn't one. None of them good. None of them would last a second if he looked at it. But he won't look. He'll be too busy turning round."
+
+Harry looked at him.
+
+He thought about a churchyard, and twenty Harrys running in twenty directions, held in forty minds for three seconds with his nose pouring blood. Perfect. Every one of them perfect. And three seconds was all he had been able to hold it.
+
+"Show me," he said.
+
+"Oh, no, my dear fellow," said Lockhart. "*You* show *me*."
+
+* * *
+
+He did it badly.
+
+He did it badly on purpose, because Lockhart had told him to, and because he found, after the first few, that badly was the whole point. He reached into the two men by the engine-house wall and he did not build anything. He threw.
+
+He threw a noise. A stone falling, somewhere to the left, on the spoil heap. The frightened one's head went round.
+
+He threw a shadow. Something dark crossing the far end of the wall. The other one's head went round.
+
+He threw the frightened one's own name, in the other one's voice, very quick, from behind. *Rowle.* The frightened one turned to his friend and said *what?* and the friend said *I didn't say anything* and Harry threw a light, a small yellow light, out on the cliff edge, bobbing, like a lantern, and both of them were up, and both of them had their wands out, and both of them were looking at the cliff edge.
+
+"Now walk," said Lockhart, very low, beside him. "And keep throwing."
+
+They walked.
+
+They walked forty yards across open ground, upright, behind two Death Eaters with their wands out, and Harry kept throwing. A footstep on the right. A rattle from the shaft. A shape in the gorse that was gone when you looked. The lantern on the cliff edge, moving, going out, coming on again further along. The wind saying something that was very nearly a word. None of it was good. None of it would have lasted a second if either man had stopped to look at it.
+
+Neither man stopped to look at anything.
+
+They were too busy turning round.
+
+Harry and Lockhart walked straight past them, three yards away, to the iron fence round the shaft, and climbed over it, and Lockhart lit his wand with a flourish, very low, cupped in his hand, and there was a ladder going down into the black, iron, rusted, fixed to the rock.
+
+"Well done," said Lockhart, in his ear. "Oh, *well* done. That was very bad indeed. I'm proud of you."
+
+Harry found that he was grinning.
+
+He went down the ladder.
+
+* * *
+
+The mine was very dark and very wet.
+
+The ladder went down eighty feet, rung after rusted rung, through solid granite, with water running down the rock beside it, and at the bottom there was a gallery going off into the dark, low, so that Harry had to stoop, with old timbers holding up the roof and rails on the floor where the ore trucks had once run. The air was cold and smelt of iron and salt and something else.
+
+And the sea was in the rock.
+
+Harry could hear it. He could feel it. It was all round them, through the granite, a deep slow boom, every eight or nine seconds, as the waves hit the cliff somewhere outside and the whole hill rang with it. The gallery went out under the sea. Harry knew that without being told. Somewhere ahead of them, above their heads, behind the rock, there was the Atlantic.
+
+Lockhart went first, with his wand cupped.
+
+He did not talk. Harry noticed that. On the cliff he had talked the whole time, about Kelpies and hair and lovely views. In the mine he did not say anything at all. He went along the low gallery quite quickly, stooping, with his sugared-apricot cloak held up out of the water in one hand, and he stopped at every turning and listened, and every time he stopped, he looked back at Harry, and Harry read the gallery ahead and shook his head, and they went on.
+
+He was very good.
+
+Harry had not known. Nobody had known. He had read about the Bandon Banshee and the yeti and the vampire with the garlic, and he had thought, the way everybody thought, that it was mostly the prose. He watched Lockhart go along a flooded gallery under the sea, stooping, silent, wand cupped, stopping at every turning, and he knew it was not the prose.
+
+"Up," said Lockhart, at the third turning, very low. "There's a winze. The family's above."
+
+"There's something below," said Harry.
+
+Lockhart stopped.
+
+* * *
+
+Harry had been reading for it all the way along.
+
+He had been reading for the family, above, and he had found them, faint, a long way up, through the rock. Four of them. Huddled together. Terrified. The terror was very old, now, six weeks old, worn into them like a path into a hillside, and on top of it, three days new, sharp, there was something else, and it was listening. It was the fear of people who have been hearing something coming up from below.
+
+He had been reading below, too.
+
+He had found nothing.
+
+That was what he had been finding all the way along the gallery. Down there, under the floor, in the flooded lower levels, where the sea came in, there was nothing at all. Not silence. He knew silence. Evelyn was silence. The Petrified had been silence. Silence was a closed door with somebody behind it.
+
+This was not that.
+
+This was the place where a person had been. Over and over. Dozens of times. He had felt it once in Cedric, on the grass, and once in Tonks, on the stone floor, and once, nearly, in Draco on the wet tiles. It was where a mind should be, and was not, and had not been for a long time.
+
+And it was moving.
+
+He felt it move. He felt the nothing come up through the rock below them, slowly, the way the sea came up a beach, in a great many places at once. He did not feel anybody. There was nobody to feel. He felt the shape of a great many people, coming up through the dark towards the gallery where he stood, and every one of them was empty.
+
+"Inferi," said Lockhart quietly.
+
+"I can't read them," said Harry. "There's nothing. There's nothing in them at all."
+
+He heard his own voice. It was not quite steady.
+
+Lockhart looked at him in the light of his cupped wand. Harry read him look. The readiness. The courage, standing up. And on top of it, very gentle, aimed at Harry, something Harry had not expected.
+
+It was understanding.
+
+"No," said Lockhart. "There isn't. That's what makes them so dreadful, isn't it? Even for people like me, who can't feel what you feel. They look like people. And there's nobody home." He put his hand on Harry's shoulder, briefly, and squeezed. "Up the winze, Harry. Get to the family. I'll be right behind you. And if anything comes up that hole after you…"
+
+He lifted his wand. He uncupped it.
+
+"…leave it to me," said Gilderoy Lockhart. "I'm really *very* good with fire."
+
+* * *
+
+The winze was a narrow shaft going up through the rock, with iron rungs, and Harry went up it with his wand in his teeth.
+
+He came out into an upper gallery, smaller, older, drier, and the family was at the end of it.
+
+They were behind a wall of old timbers they had built across the gallery, a barricade of pit props and planks and an ore truck on its side, and there was a lamp behind it, very low, and four people. A woman with a wand held out over the top of the barricade, pointing straight at him. A man beside her with a pickaxe. And two children, behind them, in the corner, pressed against the rock.
+
+"*Don't move*," said the woman. "Don't you *move*."
+
+"I'm from the Order," said Harry. "My name's Harry Potter. Mrs Treloar? Kingsley sent us. We've come to get you out."
+
+The woman stared at him over the barricade.
+
+Harry read her. Terror, six weeks old. Exhaustion. And something else, very hard, very fierce, holding up both of them, aimed at the two children behind her. It was the thing that keeps a person standing in the dark with a wand held out over a barricade for three days without sleep because there is something coming up from below and there are two children behind her.
+
+"*Harry Potter*," she said.
+
+"Yes."
+
+"Prove it."
+
+Harry pushed his hair off his forehead.
+
+She looked at the scar in the lamplight. Her wand did not move. Then, very slowly, it came down, and her face did something, and she put her hand over her mouth.
+
+"Oh," she said. "Oh, thank God. Oh, thank *God*."
+
+Below them, far down the winze, Harry heard a sound.
+
+It was a roar. It was a great deep rushing roar, like a furnace door opened, and light came up the shaft, orange, flickering, and then the sound of something burning, and then Lockhart's voice, very loud and very cheerful, echoing up through the rock.
+
+"*Ha!* Oh, that's caught them. That's caught a *great* many of them. Harry, my dear fellow, I wonder if you'd mind awfully hurrying up a bit?"
+
+* * *
+
+They had to run.
+
+There was no other way out. The upper gallery went along under the cliff for three hundred yards to an old adit, a horizontal tunnel that came out in the cliff face above the sea, and from the adit there was a path, Lockhart said, a goat track, up to the top. The Order had been bringing food down it. It was the only way. And the gallery between the barricade and the adit went past two more winzes, coming up from below, and the Inferi were coming up all of them.
+
+Harry could feel them. The nothing, coming up, in a great many places, through the rock.
+
+The man had the boy on his back. The woman had her wand. The girl was nine, thin, in a jumper too big for her, and she was standing behind the barricade with her back against the rock, and she was not moving.
+
+Harry read her.
+
+It was terror. It was all of her. It was so large that there was nothing else in her at all, nothing on top and nothing underneath, the terror of a child of nine who has been in the dark for six weeks, and for three days has been hearing things coming up, and now has been told to run, past the holes where the things are, in the dark, fast.
+
+She could not do it. Harry could feel that she could not. Her legs would not. She was going to stand against the rock with her back pressed into it until the things came, and her mother was going to have to carry her, and her mother could not carry her and hold a wand, and they were all going to die in a gallery under the sea three hundred yards from the way out.
+
+And the boy, on his father's back, was the same. Smaller. Six. The same.
+
+Below them, the roar of Lockhart's fire, and a rushing, and something like a great many feet in water.
+
+Harry did not ask.
+
+He did not ask the girl, or her mother, or the boy, or the father. He did not stop to think about it, the way he had not stopped in a bathroom on the sixth floor. But this time he knew. He knew exactly what he was doing, and he did it anyway, quite deliberately, all the moves laid out.
+
+He reached into the girl and found the terror.
+
+He did not touch it. He went past it. He went down, under it, to where there was something else, very small, at the bottom, which every child has and most people forget about. He found it in her the way you find a coin at the bottom of a deep pocket. It was the thing that had made her climb the highest tree in the garden at seven, and swim out past the rocks at eight when her mother told her not to. It was very small, and it was buried, and it was hers.
+
+He took it, and he made it larger.
+
+He pushed. He did it the way he had done it to Quirrell in a white room under the school at eleven, and to Aunt Marge at a dinner table at thirteen. Into her. Hard. He took that small buried thing at the bottom of a terrified girl and he filled her with it, from the bottom to the top, until there was more of it than there was terror, until it came up through the terror like a hand coming up through water and closed round it.
+
+He did the same to the boy.
+
+He did not ask.
+
+The girl stood up straight.
+
+She looked at Harry, in the lamplight, and her face had changed. It was still white. It was still wet. But she was looking at him the way a child looks at the top of a tree.
+
+"Which way?" she said.
+
+"Follow me," said Harry. "Run. Don't stop. Don't look down the holes."
+
+She ran.
+
+* * *
+
+They ran three hundred yards in the dark under the sea, and they did not stop.
+
+Harry went first, with his wand lit, and the girl came behind him, running, fast, her trainers slapping on the wet rock, and her mother behind her, and her father behind them with the boy on his back, and the boy was not crying, he was holding on to his father's neck with both arms and looking straight ahead.
+
+They passed the first winze. Something was coming up it.
+
+Harry did not look. He felt it, the nothing, the shape of a person with nobody in it, coming up the rungs, a yard below the top. He did not look. The girl did not look. She ran past the mouth of it without turning her head, because he had told her not to, and because the thing in her that had climbed the highest tree in the garden had decided not to.
+
+A white hand came up over the lip of the shaft behind them.
+
+Mrs Treloar turned and threw a curse down the hole without stopping, and something fell, a long way, with a splash.
+
+They passed the second winze. It was worse. Three of them were out already, in the gallery, ahead, standing in the dark, white and wet and wrong, with their heads on one side, and their eyes milky. Harry read them. He could not stop himself. He read nothing. Three places where three people had been.
+
+"*Down!*" shouted a voice behind them.
+
+They went down. Harry put his hand on the girl's back and pushed her flat on the wet rock and went down beside her, and over their heads, from behind, a great roaring river of fire went past, orange and gold, rolling, filling the gallery from wall to wall, and hit the three white figures, and they were gone.
+
+Lockhart came up the gallery behind them at a run, with his wand blazing and his cloak held up in his other hand and his golden hair blown back off his face.
+
+"*Go!*" he shouted, quite cheerfully. "Go, go, go! There's an awful lot more of them than I expected, and I've only got so much fire!"
+
+They went.
+
+* * *
+
+They came out of the adit into the night, onto a ledge in the cliff face, with the sea booming fifty feet below and the stars over the Atlantic, and they went up the goat track to the top on their hands and knees in the dark, all of them, the girl first.
+
+At the top, Lockhart turned round.
+
+He stood on the edge of the cliff, with the gorse round his knees and the wind in his cloak, looking down at the mouth of the adit. Things were coming out of it. White things, a great many, crawling out onto the ledge.
+
+Lockhart lifted his wand.
+
+He did it with a flourish. He did it with a great sweep of the sugared-apricot cloak, the way he had shown Sirius in the kitchen, in the wrist, and a little in the shoulder, and a great deal in the attitude, and he brought his wand down and round in a long golden arc, and fire came out of it.
+
+It came out like a river going over a weir. It went down the cliff face in a great golden sheet, and it hit the ledge, and the adit, and everything on the ledge and in the adit, and it went in. It went in through the mouth of the adit and along the gallery and down the winzes, roaring, and the whole cliff glowed, and the rock rang with it.
+
+Then it stopped.
+
+Lockhart lowered his wand. He looked down at the ledge, which was black and empty and smoking.
+
+"There," he said.
+
+He turned round.
+
+The family was standing on the clifftop behind him in the wind, all four, the man with the boy in his arms, the woman with her hand on the girl's shoulder. They were looking at him.
+
+Harry read them. The terror was going. It was going out of them, slowly, the way water goes out of sand. And in the girl, still, at the bottom, larger than it had any right to be, the thing he had put there. The thing he had made larger. She was looking at Gilderoy Lockhart standing on the edge of a cliff in a sugared-apricot cloak with his hair blown back and his wand still smoking, the way a child looks at the top of a tree.
+
+"Hello," said Lockhart to her, bowing slightly. "I'm Gilderoy Lockhart. You may have heard of me."
+
+The girl shook her head.
+
+"No?" said Lockhart. "Well. You will."
+
+* * *
+
+The two Death Eaters at the mine head had gone. Harry read the cliff and found nothing. They had seen the fire and run.
+
+They took the family to a safe house in Penzance, a flat over a closed-down chandler's on the harbour, where an old witch with a cat met them at the door and took them in and shut the door without a word. Then Lockhart said, "I think we've earned a drink, don't you, my dear fellow?" and took Harry by the elbow and walked him along the harbour front to a pub.
+
+It was called the Admiral Benbow. It was low and dark and full of fishermen, and it had a ship's figurehead over the door, and Lockhart went in under it as though he owned it.
+
+Harry sat in a corner with a half of cider he did not drink.
+
+He read the pub. It was ordinary. Fishermen, tired and contented. A couple by the fire, arguing quietly about money. The barmaid, who was nineteen and bored and pretty and was looking at Lockhart, because everybody looked at Lockhart.
+
+Lockhart went to the bar.
+
+He ordered a whisky. And then, while the barmaid was pouring it, he took a beer mat off the bar, and took a pen out of his inside pocket, a long peacock-feather quill that he must have carried all the way down the mine and back, and he signed the beer mat. He did it with a great flourish. He did not ask. He wrote *With very warm regards, Gilderoy Lockhart* across it in large looping letters, and added three kisses, and pushed it across the bar to the barmaid, and smiled at her.
+
+She looked at it.
+
+"Who's Gilderoy Lockhart?" she said.
+
+"Oh, my dear girl," said Lockhart, quite delighted. "You'll find out."
+
+He came back to the corner with his whisky and sat down and put his feet up on a stool and sighed with enormous satisfaction.
+
+"Well," he said. "Wasn't that *fun*?"
+
+Harry did not answer.
+
+He was reading Lockhart. The joy. The vanity, huge and warm and pleased with itself. And the courage, which had stood up behind everything in a tunnel under the sea and set a cliff on fire, sitting down again now, very quietly, the way it always did, where nobody would see it.
+
+He thought about the girl.
+
+He thought about a small thing at the bottom of a terrified child, a coin at the bottom of a pocket, and what he had done with it. He had not asked. She had run three hundred yards under the sea past holes with dead things coming up them and had not stopped once, because of what he had put in her. It had worked. They were alive, all four of them, in a flat over a chandler's on the harbour.
+
+He had not asked.
+
+"You were marvellous," said Lockhart. "With the children. I don't know what you said to that girl, but she ran like a hare."
+
+"Yes," said Harry.
+
+He did not tell him.
+
+* * *
+
+The owl found him at Grimmauld Place on the Monday, Easter Monday, at breakfast.
+
+It was a school owl, a barn owl, and it had come from Hogwarts, and the letter it carried was in Evelyn's small exact upright hand, and it had been written on the Saturday.
+
+It was not her usual letter. It did not have any weather in it. It did not have a book.
+
+*My grandfather wrote to me on Thursday. Varga brought it. I have read it four times. I am copying the part that matters, exactly.*
+
+*"Tell the boy that Tom will come for the wand before the summer. I have seen it in eleven afternoons out of eleven, and I have not seen anything in eleven out of eleven for thirty years. He will come to the school. He will come himself. Tell the boy, and tell the boy to tell Albus, though Albus will not thank him."*
+
+*That is all he said about it. The rest was about snow.*
+
+*I don't know what to do with this. So I am sending it to you.*
+
+*E.*
+
+Harry read it twice.
+
+He went upstairs to the drawing room, where the fire was connected, and knelt on the hearthrug, and threw in the powder, and put his head into the green flames.
+
+* * *
+
+Dumbledore was in his office.
+
+He was sitting at his desk in the morning light, very old, very white, with his hands folded on the desk in front of him, and he did not look surprised to see Harry's head in his fire.
+
+"Harry," he said. "Gilderoy tells me you were very good. With the children."
+
+"Sir. I've had a letter."
+
+He told him. He did not say who it was from. He did not say *Evelyn* or *grandfather* or *Austria*. He said *somebody who knows*, and he said what the letter said, exactly, word for word, the way Evelyn had copied it. *Tom will come for the wand before the summer. He will come to the school. He will come himself.*
+
+He watched Dumbledore while he said it.
+
+He read him. Dumbledore was open. He was almost always open now. And what Harry read in him, as he said the words, was not surprise.
+
+Nothing in it was new at all.
+
+Only the fear, the small plain fear from the shack in November, very quiet, very steady, turned inward, low down. It had not moved. It had not got any larger or any smaller. It had simply been there, all along, waiting, the way a thing waits that has been expected for a long time.
+
+Dumbledore did not say anything for a moment.
+
+He looked at Harry's head in the fire. He looked at it the way he had looked at Harry across a desk in June, and across the floor of a ruined shack, and across a kitchen table at Grimmauld Place with Pinch's marmalade on it. Kindly. Very old. Quite calm.
+
+"Yes," he said. "I know."
+
+<->
