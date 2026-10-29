@@ -22201,3 +22201,471 @@ It was the first time it had ever not been enough.
 The common room roared. Somebody pushed a Butterbeer into his hand. Warrington was saying *sit down, Potter, sit down*, and the green lamps were flashing silver, and a hundred people who did not care whether he lived were cheering his name, and they were happier than he had ever felt them, and he stood against the cold stone wall under the lake and was more frightened of a room than he had ever been in his life.
 
 <->
+
+## Chapter 36: Rita
+
+The wands were weighed on the second Friday in November, in a small classroom off the second-floor corridor with the desks pushed back against the walls and a long table at the front covered in a velvet cloth.
+
+Harry was the last champion to arrive. He had been in Potions. A third-year had come down to the dungeons with a message, and Snape had read it and looked at Harry for a long moment and said, "Go, then. Go and be weighed," in the voice he used for things he found contemptible, and the Slytherins had cheered, and the Gryffindors had not.
+
+He knocked and went in.
+
+The other three were already there. Krum was in a corner, hunched and silent. Fleur Delacour was by the window, talking to Cedric in a low voice, and Cedric was listening with the expression of somebody trying very hard to understand French vowels. Ludo Bagman was bouncing on the balls of his feet by the long table.
+
+And there was a woman.
+
+Harry felt her before he looked at her. He felt her from the door, the way you feel a draught from a window somebody has left open.
+
+It was appetite.
+
+It was the first thing in her and the last thing. Not like a Dementor's, flat and grey. It was bright. It was gleeful. It was the appetite of somebody who has walked into a room full of food and is trying to decide which plate to start on. It had no bottom to it anywhere. Harry went down looking for the bottom of it, the way he always did, and there was only more of it, all the way down, delighted, hungry, sharp.
+
+And it turned to him the moment he came through the door, the way a dog's head turns to the kitchen.
+
+"Harry!" said the woman. "Harry Potter. At last."
+
+She had elaborately curled blonde hair and very heavy jaw and spectacles studded with jewels. Her fingernails were two inches long and painted crimson. She had a crocodile-skin handbag over her arm, and she came across the room towards him with both hands out.
+
+"Rita Skeeter," she said. "*Daily Prophet*. I wonder, Harry, if I could have a quick word. Just you and me. Before we start. Just a few teensy questions. You don't mind?"
+
+"I mind," said Harry.
+
+"Splendid," said Rita Skeeter, and took him by the arm.
+
+* * *
+
+She took him into a broom cupboard.
+
+She did it so smoothly that he did not realise until he was in it, with the door shut and a bucket against his leg and Rita Skeeter sitting on an upturned box with her handbag open on her knee. She took a quill out of the bag. It was very long and acid green. She put it on a piece of parchment, and it stood up on its own, quivering, with its nib on the page.
+
+"You won't mind if I use a Quick-Quotes Quill," she said. "It leaves me free to talk normally." She smiled at him. She had three gold teeth. "Testing. My name is Rita Skeeter, *Daily Prophet* reporter."
+
+The quill shot across the parchment.
+
+*Glamorous Rita Skeeter, whose fearless pen has never once flinched from the truth…*
+
+"Lovely," said Rita. "So, Harry. What made you decide to enter the Triwizard Tournament?"
+
+"I didn't," said Harry.
+
+The quill wrote. Harry watched it. It wrote very fast and it did not write *I didn't*.
+
+He read her. The appetite had found a plate. It was very pleased with the plate. It was looking at him across the broom cupboard the way Aunt Marge had looked at him over a plate of roast beef, only cleverer, and hungrier, and with no idea at all that it was being looked back at.
+
+"Twelve years old," she said, "you were. Twelve. And the whole school thought you were the Heir of Slytherin. Petrified children. A snake in the Great Hall. A ghost, Petrified. And then, of course, your little friend. The Selwyn girl." She leaned forward. "How did that feel, Harry? When they found her? Did you think it was your fault?"
+
+The quill was writing very fast now.
+
+Harry did not answer.
+
+He thought about it, afterwards, a great deal. He thought that he could have done something. He thought about a woman in a pink office firing curses at a cat. He thought that he could have set something in front of Rita Skeeter's eyes in that cupboard that would have had her out of it and down the corridor screaming, and that it would have been very easy, and that he would have enjoyed it.
+
+He thought that she would have written about that too.
+
+"No comment," said Harry.
+
+"*No comment*," said Rita, delighted, and the quill wrote something much longer than that.
+
+* * *
+
+The article came out on the Sunday.
+
+The Tournament hardly came into it. It was about Harry. It was two pages, with a photograph of him at the weighing looking as though he had been told some very bad news, and it called him *the controversial fourth champion*, and *the Slytherin some still call the Heir*. It said that he had been at the centre of a series of attacks on Muggle-born students two years ago, *which have never been satisfactorily explained*. It said that he was a Parselmouth, *a talent shared by only one other wizard in living memory*. It said that he had vanished for four days in March under circumstances *the school has declined to discuss*.
+
+It said that he cried at night about his parents.
+
+It said that his only confidante was *Evelyn Selwyn, fifteen, a plain, bookish girl from one of Britain's oldest wizarding families, whose father sits on the Wizengamot and whose grandmother, the late Isadora Hale, was something of a mystery*.
+
+Harry read it at breakfast, at the Slytherin table, with the whole school watching him read it.
+
+He read it once. Then he folded it twice and put it down by his plate.
+
+"Plain," said Evelyn.
+
+She had her own copy. She was reading it with her egg. She did not look up.
+
+"I'm sorry," said Harry.
+
+"Why? It's accurate." She turned the page. "*Bookish* is also accurate. *Confidante* is a word I don't like, but it isn't wrong. *Something of a mystery* is…" She stopped. She looked at the line for a moment longer than she needed to. "It's very good writing," she said. "That's what's annoying. She writes very well. It's all true, nearly. She puts the true things next to each other in an order that makes them say something else."
+
+"How did she know about the four days?"
+
+"The school knows about the four days."
+
+"How did she know I…" Harry stopped.
+
+"Cry," said Evelyn. "About your parents. At night."
+
+"I don't."
+
+"I know you don't. I've known you three years. You don't cry." She turned another page. "So she made that up. Everything else she found somewhere." She put the paper down. "I'd like to know where."
+
+* * *
+
+The school turned on him again.
+
+He had been waiting for it since Hallowe'en. He had known it was coming since the Hufflepuff table stood up for Cedric with anger coming off it like heat off a road. And the article on the Sunday was like a match on dry grass.
+
+Worse things had happened in the second year. That was the thing he kept noticing. In the second year he had been twelve and frightened and three-quarters of the school had believed he was trying to kill them. Now he was fourteen, and they only believed he was a cheat.
+
+They wore badges.
+
+The Hufflepuffs wore them first, and then the Ravenclaws, and then a good many Gryffindors. They were round, and red, and they said *BACK DIGGORY: THE REAL CHAMPION*, and when you pressed them the letters changed and said *POTTER CHEATED* in green.
+
+Harry read the people wearing them.
+
+Most of them did not hate him. That was the thing. In the second year they had been afraid of him, all the way down, and the fear had made them cruel. Now there was no fear. They were angry, a little. They were jealous, a good deal. Mostly they were enjoying themselves. It was a game, and he was the thing the game was about, and that was all.
+
+He found that he did not mind it as much.
+
+He found that he was very good at walking down a corridor full of people who did not like him. He had learned it at twelve. He walked down the middle, not fast, not slow, with his face still, and he read every one of them as he went and did not let any of it in, and he did not look at the badges.
+
+Cedric was not wearing one.
+
+Harry noticed. He passed Cedric outside the library on the Tuesday, with four Hufflepuffs round him all wearing the badges, and Cedric's robes did not have one. Cedric looked at Harry and nodded, very slightly, and his friends did not see.
+
+Harry read him. Cedric was embarrassed. He had asked them not to. They had not listened.
+
+Harry nodded back.
+
+* * *
+
+The letter came on a Thursday, at the Owlery, at a quarter to five, and Evelyn did not expect it.
+
+She had gone up to post a letter to her mother. She wrote to her mother on Thursdays now, since July. She had not done that before. She did not examine why. The letters were short and about the weather and the Tournament, and her mother's replies were long and loose and full of crossings-out and sometimes, at the bottom, a line in a different, smaller hand that said *I'm so glad you're there, darling*, as though it had been written later, after something.
+
+The Owlery was very cold. It was the coldest room in the castle, a round stone tower open to the wind on all sides, with straw on the floor and owls on perches all the way up into the dark, and the sky outside the window-holes was grey and going darker. Evelyn chose a school owl, a small brown one, and tied her letter to its leg, and it went.
+
+When she turned round there was somebody in the doorway.
+
+It was the old man from Durmstrang. Varga. She knew him from the front steps and the staff table and from a photograph in *Transfiguration Today* in nineteen ninety-one in which he had been looking away from the camera with his hand half raised, as though the photographer had caught him in the act of refusing.
+
+He was leaning on his stick. He was out of breath. The Owlery stairs were long, and he was very old.
+
+"Miss Selwyn," he said.
+
+He had a quiet, dry, very correct voice, with an accent she did not know well enough to place more than roughly, east of Vienna.
+
+"Yes," said Evelyn.
+
+"Forgive me." He came one step into the Owlery and stopped. He did not come any closer. "I have been asked to give you something. I was asked by somebody I owe a great deal to, and a great deal more than I would like." He took a letter out of the inside of his plain black coat. "I agreed. I am sorry. I would rather not have."
+
+He held it out.
+
+Evelyn looked at it. It was a heavy envelope, cream-coloured, very thick, and it was addressed in a hand she did not know.
+
+*Miss Evelyn Selwyn. By the kindness of Professor Varga.*
+
+She took it.
+
+When she looked up, the old man was already in the doorway again. He had turned. He had not waited for her to say anything. He was going down the Owlery stairs, slowly, one at a time, with his stick, and he did not look back.
+
+"Professor," said Evelyn.
+
+He stopped on the third stair.
+
+"Who asked you?"
+
+He did not turn round. He stood on the stair with his back to her and his hand on the cold stone wall.
+
+"You know who asked me, Miss Selwyn," he said. "I think you have known since July." He went down another step. "I am sorry. I am very sorry. He will tell you I am a coward. He is quite right."
+
+He went on down.
+
+Evelyn stood in the doorway of the Owlery and listened to his stick on the stairs, all the way down, until she could not hear it.
+
+Then she sat down on the bench by the window-hole, with the wind coming in, and opened the letter.
+
+* * *
+
+*My dear Evelyn,*
+
+*You will forgive me for beginning with the weather. It is the only subject on which an old man in my situation can be sure of saying nothing he will regret, and I am told the English require it.*
+
+*It is snowing here. It has been snowing since Thursday. I have a window, which is a narrow one, and through it I can see a great deal of snow and one mountain, which I have been looking at for forty-nine years and which has not, in that time, done anything I did not expect. I am told that in Scotland it rains. I hope it is raining on you now. I find I would like to think of you somewhere wet and ordinary, reading.*
+
+*What are you reading? Your grandmother read detective novels in the bath and denied it. She said they were beneath her. She said this with a novel in her hand. I suspect you are the same, and I suspect you do not deny it, which is an improvement.*
+
+*I should like to know about her last months. I have no right to ask. I have never let that stop me, and I am too old to begin now. Was she in pain? Did she read? Did she sit in the east window in the mornings and drink her coffee black and frighten your father? I know about the east window. I know a great many things about Selwyn Hall that I have never seen. She wrote to me once, in nineteen seventy-nine, a week after you were born, and in that letter she told me about the east window and the yews and that she had named you after nobody, so that you would have to make the name mean something yourself.*
+
+*She did not write again. I did not expect her to.*
+
+*Do you still wind the watch?*
+
+*I ask because I made it, and a maker is always curious. I ask, also, because I should like to know whether it still works. I have a feeling that it does not. I have had the feeling since March. I am not often wrong about feelings of that kind, though I am frequently wrong about everything else.*
+
+*If it does not, bring it to me.*
+
+*I should like you to come at Christmas. Professor Varga can arrange it. He has arranged it before, for others, and he does it very well, and he will hate every moment. I would not ask, except that I have been looking at the mountain for forty-nine years and I find that I would very much like to look, for an afternoon, at something that might surprise me.*
+
+*You may say no. Your grandmother will have told you that. She will have been right. She usually was, which is the only quality in a person I have never been able to forgive.*
+
+*With every good wish, and some others,*
+
+*Your grandfather.*
+
+There was no name.
+
+Evelyn read it three times, on the cold bench in the Owlery with the wind coming in.
+
+Then she folded it along its creases, exactly, and put it back in the envelope, and put the envelope in the left pocket of her cardigan, with the other one, and buttoned it.
+
+She put her hand on the right pocket.
+
+The watch was there. Not ticking.
+
+*I have a feeling that it does not. I have had the feeling since March.*
+
+She sat on the bench and did not move for a long time, and above her, in the dark at the top of the tower, the owls shifted on their perches and settled, and she did not count anything.
+
+* * *
+
+She noticed the beetle on the Saturday.
+
+She noticed it because she noticed most things, and because it was on the wrong windowsill. It was on the sill of the library window above her table, behind the Goblin History shelves, at twenty past four, and it was a beetle, a largish one, shiny, greenish-black, and it was sitting quite still in the corner of the frame.
+
+It was November. There should not have been beetles.
+
+She looked at it for a moment and went back to her book.
+
+On the Monday she saw it again.
+
+It was on the windowsill of the empty classroom on the fourth floor where Potter practised shields with Nott, and she only saw it because she had come to find Potter to tell him something about the first task, and the door was ajar, and she looked in, and Potter and Nott were talking about Rita Skeeter, and the beetle was on the sill.
+
+She did not say anything.
+
+On the Wednesday the *Prophet* ran a short piece on page six, under the headline *CHAMPION'S CHUMS*, which quoted Millicent Bulstrode as saying that if anybody laid a finger on Potter she would sit on them.
+
+Millicent had said it. She had said it on Monday, in the fourth-floor classroom, to Potter and Nott, while Evelyn stood outside the door.
+
+Nobody else had been in the room.
+
+Evelyn read the piece twice. Then she went to the library and asked Madam Pince for the Ministry's *Register of Animagi*, which the library kept in the reference section, in a green cloth binding, updated every January, and which nobody had borrowed since 1987.
+
+It was a short book. There had been seven registered Animagi in the whole of Britain in the twentieth century. She read every entry. A cat. A cat. A hawk. A tabby cat with markings round the eyes like spectacles, which made her stop for a moment and then go on. A hare. A badger. A cat.
+
+No beetle.
+
+No Skeeter.
+
+Evelyn closed the register and gave it back to Madam Pince.
+
+Then she went to the potions stores, which were not locked on Wednesdays between four and five because the third-years were doing inventory, and she took a small glass jar with a screw-top lid, and she wrote in the stores book, in her own hand, *one jar, small, E. Selwyn, 5th yr, for a private study*, which was true.
+
+* * *
+
+She caught it on the Friday.
+
+She had sat at her table in the library every afternoon since Wednesday, with Potter or without him, talking loudly or not talking. She had said, on the Thursday, to nobody, in a clear voice that carried, that she thought Potter had a plan for the first task involving a broom and something else, and that she would tell nobody what it was. It was true, in a way. She thought he probably did. She did not know what.
+
+On the Friday at twenty past four the beetle was on the sill.
+
+Evelyn had the jar in her lap under the table, with the lid off.
+
+She went on reading for six minutes. Then she stood up, as though to get a book from the shelf, and reached past the window, and brought the jar up over the sill in one movement, and put the lid on.
+
+The beetle hit the glass and fell over.
+
+She screwed the lid tight. She looked at it. It was on its back on the bottom of the jar, legs going. When it righted itself she saw that round its eyes there were markings, very faint, exactly the shape of the jewelled spectacles in the photograph at the top of Rita Skeeter's column.
+
+"Good afternoon," said Evelyn.
+
+* * *
+
+She did it in the empty classroom on the fifth floor, the one where, in another world, she had sat at a desk by the window and told her own face the truth.
+
+She put the jar on a desk. She locked the door with a charm her grandmother had taught her when she was nine, for the door of the east wing, which she did not think anybody at Hogwarts knew. She took out her wand.
+
+She had read how. It was in the third volume of *Transfiguration Today*'s collected articles, in a piece from nineteen sixty-eight about reversing an unwilling Animagus, and she had read it on Wednesday night in the library, and she had read it twice.
+
+She unscrewed the lid. She tipped the jar. She said the words.
+
+It was not elegant. It took her three tries. On the third, there was a sound like a cork leaving a bottle, and a lot of blonde hair, and Rita Skeeter was sitting on the floor of the empty classroom with her legs out in front of her and her jewelled spectacles crooked and her crimson nails splayed on the boards, looking up.
+
+She did not look pleased.
+
+"You," she said. "You little…"
+
+"Evelyn Selwyn," said Evelyn. "Fifth year. Plain and bookish. You've written about me."
+
+Rita Skeeter got up off the floor. She did it quite quickly for a woman in heels. She straightened her spectacles. Her face had gone a dark mottled colour under the powder.
+
+"Do you know," she said, "what I can do to you? To your father? To that boy? Do you have the faintest idea, you stupid little girl, what I can *write*?"
+
+"Yes," said Evelyn. "I've read it."
+
+She sat down on the edge of the desk with the empty jar beside her. She did not raise her voice. She had never needed to.
+
+"You are an unregistered Animagus," she said. "There are seven registered Animagi in Britain this century. You are not one of them. I have checked the Ministry register, the library edition, updated in January. Under section four of the Registration of Animagi Act, nineteen fifty-two, failure to register is an offence. Under section nine, as amended in nineteen seventy-three, the use of an unregistered transformation to obtain information by stealth is a separate offence, and an aggravated one." She paused. "The sentence for the second, on conviction before the Wizengamot, is a term in Azkaban not exceeding five years. My father sits on the Wizengamot. He has sat on it for nineteen years. He has never once, in nineteen years, voted for leniency for anybody."
+
+Rita Skeeter did not say anything.
+
+"I'm not going to tell him," said Evelyn. "I'm not going to tell anybody. Not the Ministry. Not the *Prophet*. Not Potter." She looked at the jar. "On one condition."
+
+"Which is?"
+
+"You will not write one word about Harry Potter for the rest of this school year," said Evelyn, "unless I have read it first and said you may."
+
+There was a long silence in the empty classroom on the fifth floor.
+
+"You can't be serious," said Rita Skeeter.
+
+"I'm always serious. People find it tiresome." Evelyn picked up the jar and screwed the lid back on, empty, and held it on her knee. "You can write about the Tournament. You can write about the other champions. You can write about Krum's eyebrows and Delacour's grandmother and Diggory's hair, all you like. If you write about Potter, you'll send it to me first, by owl, and I'll send it back, and if I've crossed something out you'll leave it out. And if you print anything about him I haven't seen, I'll write a letter to my father, and another to the Department of Magical Law Enforcement, and a third to the *Quibbler*, which will print anything." She paused. "And I've already written all three. They're in an envelope. Somebody else has it. If anything happens to me, they'll be posted."
+
+That was not true. Nobody else had anything.
+
+She had decided, on Wednesday night, that it was the one lie she would allow herself, and that she would not feel anything about it, and she did not.
+
+Rita Skeeter looked at her for a long time.
+
+Then she laughed. It was a short, sharp, unpleasant laugh, like a gate on a rusty hinge.
+
+"Who taught you to do this?" she said. "Your father?"
+
+"Nobody taught me," said Evelyn. "I read."
+
+* * *
+
+She did not tell Potter.
+
+She thought about it, walking down from the fifth floor with the empty jar in her pocket. She thought about it in the library, and at supper, and in the common room in the chair by the draughty window, watching him across the room, reading the people round him the way he always did, with that look of somebody checking the weather.
+
+She thought that he would laugh. She thought that he would be pleased, and then he would want to know why she had not told him first. And then he would look at her the way he looked at her when there was something she had not said.
+
+And there was something she had not said.
+
+There were two letters in her left pocket that she had not said.
+
+She did not tell him.
+
+* * *
+
+Hagrid took him to see the dragons on the Monday night, at a quarter to midnight, under the Cloak.
+
+He had sent a note at breakfast. It said *Come down to the hut tonight at half eleven. Bring that cloak. Don' ask why, jus' come. Hagrid.* And Harry had gone, and Hagrid had been waiting outside the hut in his best hairy brown suit and a tie, with his hair slicked down with something that smelled of axle grease, and Harry had read him and found him so nervous and so pleased with himself that he wanted to laugh.
+
+"Madame Maxime's comin'," said Hagrid. "Keep that cloak on. Stay close."
+
+They went round the edge of the forest. Madame Maxime came with them, enormous, in a fur-trimmed cloak, with her hand on Hagrid's arm, and Hagrid talked to her in a low voice all the way, and Harry walked behind them under the Cloak and read them both and looked at the trees.
+
+Then he heard the roaring.
+
+It came from the trees, a long way in, and it was a sound Harry had never heard, a great tearing bellow that went up and up and broke off in something like a scream, and the ground under his feet shook. There was firelight through the trunks. There was a lot of shouting, men's voices.
+
+And there were dragons.
+
+He felt them before he saw them. He had never felt a dragon, except a baby one in a kettle in a hut, a long time ago, all hunger and new fear. These were not babies. He felt them come up through the trees like a furnace door opening.
+
+There were four of them.
+
+They were in an enclosure of thick wooden planks in a clearing, and there were thirty or forty wizards round them, with wands out, and chains on the dragons' legs, and the dragons were rearing up, fifty feet tall, with their wings half spread and their mouths open, and fire coming out of the mouths in great jets up into the black sky.
+
+Harry read them.
+
+He could not stop. He could not have stopped if he had tried. They were the loudest things he had ever felt that were not people.
+
+They were furious.
+
+That was the top of them, all four, and it was enormous. It was not like Aunt Marge's cruelty or the Death Eaters' glee or even the troll's rage on Hallowe'en in his first year. It was plain and huge and hot and it filled the whole clearing, four dragons' fury at the chains and the wizards and the noise and the cold and the strangeness of a place they did not know. It came off them the way heat comes off a fire you are standing too close to.
+
+And under the fury, all four of them, there was something else.
+
+He found it a moment later, the way he always found the thing underneath. It was just as large. It was larger.
+
+It was for the eggs.
+
+They were mothers. He knew it before Hagrid said so. They were nesting mothers, and somebody had taken them away from their nests and chained them in a clearing in a strange cold country, and they had their eggs with them, on the ground under them, and every single bit of the fury was for the eggs. None of it was anger at the wizards. It was terror, for the eggs, so large that it had turned into fury because fury was the only shape a dragon knew for it.
+
+Harry stood in the dark under the Cloak at the edge of the trees and read four mothers screaming for their eggs, and he did not move for a long time.
+
+"Beau'iful, aren't they?" said Hagrid softly. "Hungarian Horntail, that one, the black one. Nasty piece o' work. Spikes on her tail, see. Common Welsh Green. Swedish Short-Snout. Chinese Fireball." He sighed happily. "They're fer the first task. Champions've got ter get past 'em."
+
+"Get past them," said Madame Maxime faintly.
+
+"Somethin' like that," said Hagrid. "I don' know exactly. Charlie says it's somethin' ter do with the eggs."
+
+Harry looked at the black one.
+
+The Horntail was the biggest of the four. She was black and scaly and lizard-like, with yellow eyes and bronze horns, and a tail covered all down its length in long bronze spikes, and she was screaming. Harry read her. Her fury was the hottest of the four. Her fear for her eggs was the deepest.
+
+He thought about getting past her.
+
+He thought about it all the way back to the castle, under the Cloak, while Hagrid walked Madame Maxime back to her carriage and talked to her in a low voice about the stars.
+
+* * *
+
+He told Cedric on the Tuesday.
+
+He found him in the corridor outside the library, with no Hufflepuffs, by luck, and he said, "Diggory," quietly, from the wall.
+
+Cedric stopped.
+
+"Dragons," said Harry. "The first task. It's dragons. Four of them. One each. I saw them last night."
+
+Cedric looked at him.
+
+Harry read him.
+
+He was surprised. That was the top, and it was very large and very sudden. He had not expected it. He had not expected anything from Harry Potter except the thing his whole house said he was, a cheat, a sly Slytherin, the controversial fourth champion. He looked at Harry in the corridor and the surprise was so large it had pushed everything else out of the way.
+
+Then, slowly, under the surprise, something else came up.
+
+It was gratitude. It was very simple and very plain and very warm, the gratitude of a decent boy for a decent act, and Cedric did not hide it this time. He did not try.
+
+"Are you serious?"
+
+"Yes."
+
+"Why are you telling me?"
+
+Harry thought about it.
+
+He thought about saying *because it's fair*. It was true. Fleur and Krum would know already; Madame Maxime had seen, and Karkaroff, he was nearly sure, had been in the trees. Cedric was the only one who did not know. It was not fair.
+
+He thought about saying *because you didn't wear the badge*.
+
+He thought about four dragons screaming in a clearing for their eggs.
+
+"Because you'd have told me," he said.
+
+Cedric looked at him a moment longer. Then he nodded, slowly, once.
+
+"Yeah," he said. "Yeah. I would."
+
+* * *
+
+Evelyn sat on the bench by the window-hole in the Owlery at half past eleven at night with the wind coming in, and a sheet of parchment on her knee, and her pen, and no idea what to write.
+
+She had been sitting there since eleven.
+
+She had come up because nobody came up at night, and because she could not write it in the dormitory, where the other fifth-years might wake up, and she could not write it in the library, which was shut, and she could not write it in the study, because Potter would be there.
+
+She had the letter beside her on the bench. She did not need to read it again. She had read it eleven times. She knew it.
+
+*Do you still wind the watch?*
+
+She looked at the parchment.
+
+It was blank. It was very clean and very white in the light from her wand. She had written to her grandmother every Sunday from the age of eleven, and to her mother every Thursday since July, and to Potter every eleven days every summer. She knew how to write a letter. She had never in her life not known what to put at the top of one.
+
+She did not know what to call him.
+
+She sat for a long time with her pen over the page.
+
+Then she wrote *Sir*, and looked at it, and crossed it out.
+
+She wrote *Dear*, and stopped, and did not cross it out, and did not write anything after it.
+
+The wind came in through the window-hole. Above her, in the dark, an owl turned its head all the way round and looked at her and turned it back.
+
+Evelyn looked at the one word on the page.
+
+Then, under it, very small, in her own hand, the tails of the *g*s and the *y*s kept short, she wrote:
+
+*It is raining.*
+
+She looked at that for a long time.
+
+Then, under it, she wrote another line.
+
+<->
