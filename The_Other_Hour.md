@@ -34579,7 +34579,7 @@ Harry read the note. It was in a large looping hand and said that Professor Hora
 
 "*Snape's* got Defence?"
 
-"Father wrote," said Theo, quite flatly, and went back to his chess problem.
+"It was in the *Prophet*," said Theo, quite flatly, and went back to his chess problem.
 
 Harry looked at Evelyn.
 
@@ -35026,3 +35026,4 @@ Three streets away, in an alley, Draco Malfoy was sick in the snow.
 And Harry, standing in the white lane with his wand in his hand and nobody to point it at, read both of them at once, and could not turn either of them down, and was sick too.
 
 <->
+
