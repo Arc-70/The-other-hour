@@ -20229,3 +20229,709 @@ Appetite.
 A hundred times over.
 
 <->
+
+## Chapter 33: The Patronus by the Lake
+
+Evelyn went out of the back door of Hagrid's hut at thirteen minutes to ten, into the garden, towards a hippogriff that everybody else in the pumpkin patch could see was still tied to the fence.
+
+She could not see what they saw. She could see what was there.
+
+What was there was this. There was the pumpkin patch, enormous and orange in the last of the sunset, every pumpkin the size of a garden shed. There was the fence round it, with the forest going up dark behind. There was Buckbeak, tethered to the fence by a long rope, grey and proud and ruffled, tearing at a dead ferret on the ground with his beak.
+
+And there were four men standing in front of the hut, twenty yards from the hippogriff, looking at it.
+
+One of them was the Minister for Magic, in his pinstriped cloak, with his bowler hat in his hand. One was a very old wizard from the Committee, tiny and wizened, with a sheaf of papers he kept dropping. One was Dumbledore.
+
+The fourth was the executioner. He was large and thick-necked, with a thin black moustache, and he had an axe over his shoulder. He was looking at Buckbeak the way Millicent looked at a plate of sausages.
+
+They were all looking at Buckbeak.
+
+All four of them were looking at the hippogriff on the end of the rope, and Hagrid, who was standing by the door of his own hut with his great hands clenched at his sides and his face working, was looking at him too, and nobody was looking at the girl in Slytherin robes walking across the garden towards him in plain sight.
+
+Because Potter was holding it.
+
+He was at the back window of the hut. Evelyn knew exactly where. She had stood there herself for five minutes, before, and looked at the angle, and told him which pane. He was standing at that pane with his face against the glass, and he was holding a hippogriff in front of five pairs of eyes, a hippogriff that was not there, tied to a fence by a rope that was not there, tearing at a ferret that was.
+
+And he was holding something else as well. He was holding the place where she was walking, as empty grass.
+
+She could not see either of them.
+
+She could see herself, walking. She could see the evening light on her own hands and her own sleeves and the Slytherin crest on her own robe. She could see Buckbeak, the real one, look up from the ferret and see her coming, and stop eating.
+
+She had to trust him that nobody else could.
+
+She had said she hated it. She had said it once, in a classroom on the third floor of a castle in another world, and had said she would not say it again, and she had not. She did not say it now. She walked across the garden in plain sight of the Minister for Magic and an executioner with an axe, and she did not look at them, and she did not hurry, because a person who is not there does not hurry.
+
+She counted her steps instead. Thirty-one, from the back door to the fence.
+
+At thirty-one she stopped in front of Buckbeak.
+
+The hippogriff looked at her.
+
+He had very bright orange eyes. They were fierce and they were proud, and they looked at her with no expression at all that she could read, which she found, rather to her surprise, restful. He looked at her the way she imagined she looked at most people.
+
+She bowed.
+
+She had never bowed to anything in her life. Potter had told her how, in the study, the week before, in some detail. Keep your eyes on his. Don't blink. Go down slowly and stay down. Wait.
+
+She went down slowly. She kept her eyes on his. She did not blink. She stayed down.
+
+Behind her, twenty yards away, the very old wizard from the Committee dropped his papers again, and the Minister bent to help him pick them up, and said, "Now, Macnair, if you'd just…" and the executioner said, "Ready when you are, Minister," and swung the axe off his shoulder, and Evelyn stayed bowed in front of the hippogriff with her back to all of it, and waited.
+
+She counted. She could not help it.
+
+At nine seconds Buckbeak bent his scaly front knees and sank into a bow.
+
+Evelyn straightened. She put her hand out, quite steadily, and laid it on the side of his neck, under the feathers, where it was warm.
+
+"Good," she said, very quietly. "Thank you."
+
+She untied the rope from the fence.
+
+It was a simple knot. Hagrid had tied it, and Hagrid tied knots the way he did everything, very large and very loose, and it came undone in her fingers at once. She took the end of the rope in her hand.
+
+And behind her, twenty yards away, the executioner walked towards the fence with his axe, and Evelyn walked away from it, with a hippogriff, into the trees.
+
+She did not look back. A person who is not there does not look back.
+
+But she could hear them. She could hear the very old wizard reading something aloud from his papers in a high quavering voice, *by order of the Committee for the Disposal of Dangerous Creatures, the hippogriff known as Buckbeak, hereinafter called the condemned*, and she could hear Hagrid make a sound like something tearing, and the Minister clearing his throat. She could hear them all looking at the place where she had been.
+
+She walked Buckbeak eleven yards into the trees, to a fallen oak that she had chosen on the Tuesday because it was big enough to stand behind, and she stood behind it, with the rope in her hand, and Buckbeak stood beside her and looked down at her with one orange eye, and then lowered his head and began, in a leisurely way, to eat the moss off the trunk.
+
+She stood very still.
+
+Through the trees she could see the pumpkin patch. She could see the four men by the fence and Hagrid by the door. She could see that they were still looking at the fence, at the rope that was not there and the hippogriff that was not there, and that the executioner had stopped in front of it and was raising his axe.
+
+And one of them was not looking at the fence.
+
+Dumbledore was standing a little behind the others, with his hands folded in front of him, and he was looking at the trees.
+
+He was looking at the fallen oak.
+
+He was looking, as far as Evelyn could tell from eleven yards away through the leaves in the failing light, straight at her.
+
+She did not move.
+
+She stood behind the oak with the rope in her hand and a hippogriff eating moss beside her, and she looked back at the headmaster of Hogwarts across the pumpkin patch, and she counted. It was one second. It was not more than one second.
+
+Then Dumbledore looked away, back at the fence, and his face did not change at all, and he said something to the Minister that she could not hear.
+
+Evelyn let out her breath.
+
+She did not know what it meant. She thought about it for a long time afterwards, and wrote it down, and drew a line under it, and could not make it come out. Potter's illusions did not work on her because her mind was closed. She had been taught to close it since she was five. She knew, because Potter had told her, that there were other people whose minds were closed, sometimes, when they chose.
+
+She did not tell Potter about it.
+
+She was not sure why. She thought, perhaps, that it was because she was not sure what she had seen, and that she did not like telling him things she was not sure of. She thought, perhaps, that it was something else.
+
+Then she heard the window of the hut open at the back, very quietly, and she knew that it was time.
+
+"Now," she said, to nobody, in the trees, and walked out from behind the oak far enough to see the back of the hut, and lifted her hand, the way they had agreed.
+
+And then, behind the hut, through the window, she heard Weasley say *Scabbers* in a voice so astonished and so glad that it made her stop.
+
+She went back behind the oak.
+
+A minute later she heard the axe go into the fence post with a sound like a great door slamming, and Macnair swearing, and the Minister saying, "*Where?* Where has it…"
+
+She looked at Buckbeak.
+
+Buckbeak looked at her, chewing moss.
+
+"Well," said Evelyn. "That's that, then."
+
+* * *
+
+The cold came across the lake like frost across a window.
+
+Harry was running. He had been running since the Willow, across the dark grass, down the slope, after the dog, and the dog had gone down to the water's edge and turned into a man on his knees, and the man was there now, a black shape on the pale shingle at the edge of the black lake, with his hands over his head.
+
+And the Dementors were coming.
+
+There were more than Harry had ever seen. There had been a hundred on the pitch in November, in the rain. There were more than that now. They were coming across the surface of the lake in the white light of the moon, low, gliding, the way they had come down onto the pitch, and there were so many of them that the lake under them had gone grey. They came from the far shore and from the island in the middle and from the mouth of the river at the end, and they were all coming the same way, all of them, towards the shore.
+
+Towards the man on his knees.
+
+Harry read them.
+
+He did not decide to. He could not have stopped. They were so loud that he could not have stopped if he had tried.
+
+Appetite.
+
+Appetite, a hundred times. Two hundred. It was the thing from the train and the thing from the pitch, flat and grey and endless and not aimed at anything, the way a fire is not aimed at the house, and there was so much of it now that it stopped being like a feeling at all and became weather. It was like the whole of the night had turned into one enormous wanting, and the wanting had turned towards the shore.
+
+And then the woman began to scream.
+
+She was a long way off and she was very close. She was begging. She was begging somebody to leave her son alone, to take her instead, and a cold high voice was telling her to get out of the way.
+
+Harry's legs went.
+
+He went down on the shingle about ten yards from Sirius, on his knees, and the cold came up over him, and he could see his own breath, and the stones under his hands had frost on them, and the woman was screaming in his head and he could not get up.
+
+He got his wand up.
+
+"*Expecto patronum*."
+
+Silver. A wisp of it. A thin bright wisp, like steam off a cup, and it went out into the dark a yard and wavered and was gone.
+
+He tried again.
+
+"*Expecto… expecto patronum*…"
+
+Nothing. Less than nothing. The woman was screaming. The Dementors were coming in to the shore, gliding, and one of them was over the shingle now, by Sirius, very tall, bending, and it was putting back its hood.
+
+Harry did not look at what was under the hood.
+
+He looked at Sirius.
+
+Sirius had stopped moving. He was lying on his side on the stones with his hands over his face, and the thing was bending over him, and Harry could feel him, and what he could feel was going.
+
+It was going the way Lupin had gone when the moon came out. It was going down. It was going under. The rage and the love and the astonishment and the grief at the floor of him, all of it, every bit of the loudest thing on the shore, was being pulled up out of him, through his face, into the dark under the hood, the way water is pulled up out of the ground by the sun.
+
+Harry was going to lose him.
+
+He thought: *I have had him for one hour*.
+
+He thought: *I watched the other one fall through a curtain and I could not do anything.*
+
+He thought: *I will not watch it twice.*
+
+And he stopped trying to remember.
+
+He had been trying to remember. He had been doing what Lupin said, in a History of Magic classroom with the desks pushed back. *A happy memory. Not a pleasant one. A happy one. Fill yourself up with it.* He had been trying to fill himself up with flying, and the Leaky Cauldron in the sun, and Lockhart in a white ward, and none of it would come, because the woman was screaming, and the cold had got in under all of it and put it out.
+
+He stopped.
+
+He thought about the floor of a stone room under a trapdoor, two years ago, with a man's hands round his throat.
+
+He thought about how he had done it then. Not by remembering anything. By reaching into something that was there, a feeling, and taking hold of it, and making it larger, and giving it.
+
+He had done it to Quirrell. He had done it to Aunt Marge. He had done it to a woman in a pink office. He had always put it into somebody.
+
+He had felt something, in a room above a bar, that was louder than anything he had ever felt from anybody but Hagrid on a rock.
+
+He had felt it come across the room at him like a wave up a beach. He had felt it in a doorway, and on the end of a narrow bed, and across a glass of something that was not goat's milk, at two in the morning. He had felt it at a window, from a dog in a yard, looking up. He had felt it on a stone platform in the Department of Mysteries, aimed at a boy on the steps, all the way up to the veil.
+
+He had felt all of it. He had read every bit of it. He had it.
+
+He had kept it, the way he kept everything he read.
+
+He reached for it now.
+
+He did not reach into anybody. He reached into himself, into the place where he kept what he had felt in other people, and he found it, and it was still there, all of it, enormous, the other Sirius's love. Not for him. For the other boy. For James. For a whole life that had gone wrong and a godson in a tower and a friend who had been dead for fifteen years. It had come to Harry because Harry had been standing where they should have been, and he had felt it, and he had kept it.
+
+He took hold of it.
+
+He made it larger.
+
+And he pushed.
+
+Not into anybody. Out. Clean. The way Lupin had said, the way he had understood in the History of Magic classroom and never told anybody. The push turned the right way round. Out of him, into the air, between him and the dark.
+
+"*EXPECTO PATRONUM*."
+
+It came out of his wand like a door opening in a burning house.
+
+No wisp this time, and no shapeless shining mist like the one in the classroom. It came out of the end of his wand in a single blinding rush of silver, so bright that the whole shore went white, every stone, every ripple on the water, and it did not hang in the air.
+
+It stood up.
+
+It was a stag.
+
+It was enormous. It was the size of a horse, and bigger, and its antlers went up and out into the night like the branches of a tree, and it was made of light, pure silver light, so bright Harry could not look at it straight. It stood on the shingle in front of him with its great head up.
+
+Then it lowered its antlers.
+
+And it went at them.
+
+It went across the shore at a gallop, silent, enormous, and it went straight at the thing bending over Sirius and struck it with its antlers, and the thing went back. It went back as though it had been hit by a wall. It went back across the shingle and out over the water and the stag went after it, out onto the surface of the lake, galloping on the water, and the Dementors in front of it went back.
+
+All of them.
+
+It went through them the way the sun goes through a fog. Harry read them as it went. Appetite. Appetite. And then, for the first time in his life, from a Dementor, something else. It was very small. It was the only other thing he had ever felt in them. It was the wanting turning, all at once, the way a dog turns from a fire.
+
+They fled.
+
+They went back across the lake in a great grey tide, back to the far shore and the island and the mouth of the river, and the stag went after them, galloping, across the whole width of the black water, silver and enormous and silent, with its antlers down, and the light of it went across the surface of the lake like a lamp carried through a dark house, and the cold went with them, all of it, all at once, the way a cold goes out of a room when somebody shuts the door.
+
+Harry knelt on the shingle and watched it go.
+
+He watched it reach the far shore. He watched it stand there, on the other side of the lake, a long way off, quite small now, a point of silver light at the edge of the trees, with its head up.
+
+It turned its head.
+
+It looked back across the water, at him, the way the other one had looked at the screen in the Room of Requirement. And then it was gone.
+
+He did not remember falling.
+
+He remembered the shingle coming up to meet his face, and that it was cold and wet and not frosted any more, and that Sirius was lying ten yards away on his side, breathing. He could feel him breathing. He could feel all of it coming back into him, slowly, the rage and the love and the astonishment, like water coming back into a well.
+
+Then nothing.
+
+* * *
+
+"…extraordinary," the Minister for Magic was saying. "Quite extraordinary. A hundred and fifty of them, Severus, they said, at least. And the boy… thirteen years old…"
+
+"He has always had a talent for drawing attention to himself, Minister."
+
+"Oh, come now. You were unconscious at the time, I understand."
+
+"I was struck from behind," said Snape. "By a spell cast without warning. By a student who will be dealt with."
+
+Harry did not open his eyes.
+
+He was in a bed. He knew the bed. It was the hospital wing. He could feel the stiff sheets and the pillow and the high windows above him, and through the windows, faintly, the grey light of very early morning. He did not open his eyes because the voices were outside the curtains round his bed, in the ward, and he could read them through the curtains, and he wanted to know what he was going to find before anybody knew he was awake.
+
+He read Fudge.
+
+Fudge was delighted. It was large and warm and it was all over him, the top of everything, and it was the delight of a man whose year has been very bad indeed and who has just been handed, at four in the morning, the one thing that will make it better. Under the delight there was relief. Under the relief, the old fear, the one that had been aimed at the door in the Leaky Cauldron in August and at a name in the Three Broomsticks in December. It was much smaller now. It was going down.
+
+"And Black?" said Fudge.
+
+"Black is in the West Tower," said Snape. "In Professor Flitwick's office. Locked. The Dementors are waiting for your word."
+
+"My word, yes. Yes." Fudge rubbed his hands. Harry heard him do it. "I'll give it. As soon as we've got everything straight. The Kiss, Severus. No trial. There's no need. The man was convicted of thirteen murders fourteen years ago. It's simply a matter of… of carrying out the sentence."
+
+Harry read Snape.
+
+Snape was closed. He was closed the way he always was, smooth and complete. But he had been unconscious for most of the night, and he had a lump on the back of his head the size of an egg, and he had been knocked into a wall by a thirteen-year-old in front of the man he hated most in the world, and he was not, quite, all the way closed.
+
+There was an edge.
+
+At the edge, there was satisfaction. It was cold. It was the coldest satisfaction Harry had ever felt, and it was very old, and it was aimed at the West Tower.
+
+"And the children?" said Fudge.
+
+"Confused," said Snape. "Black has been working on them. Some sort of Confundus, I imagine. They have a story about Pettigrew. About rats." He let that sit for a moment. "Potter, in particular, has always been suggestible."
+
+Harry lay very still in the bed.
+
+He thought: *Black is in the West Tower.*
+
+He thought: *the Kiss.*
+
+He thought about a thing bending over a man on the shingle, putting back its hood, and everything that was the man going up out of him into the dark.
+
+He opened his eyes.
+
+Evelyn was in the next bed. She was sitting up against her pillows, quite still, with her hands in her lap, and she was looking at him. She had been looking at him, he thought, for some time.
+
+She did not say anything. She held up one hand, very slightly, with two fingers raised.
+
+Two. The Minister and Snape. Outside the curtains.
+
+Then she pointed, with one finger, very slightly, towards the high window, and towards the west.
+
+He nodded.
+
+* * *
+
+They got out of the hospital wing at twenty past four.
+
+It was the easiest thing Harry did that night. Madam Pomfrey was in her office at the end of the ward with the door half open and the lamp lit, and she came out every twenty minutes to look at them, and she was tired and cross and very relieved, and she had been told that they were not to be disturbed. Fudge and Snape had gone up to the West Tower.
+
+Harry waited until she had looked and gone back into her office.
+
+Then he set two children in two beds.
+
+He made them out of themselves. He had looked at Evelyn asleep, in a room above a bar, and he knew how she lay, on her back, very straight, with her hands folded on the blanket. He knew how he lay himself, he thought, from the way the sheets went. He made a girl lying on her back with her hands folded and a boy curled on his side with his face in the pillow, and he set them in the two beds, and he held them, for anybody who came out of the office at the end of the ward.
+
+Then he and Evelyn got out of the real beds, and went to the door, and out.
+
+"How long can you hold them?" said Evelyn, on the stairs.
+
+"An hour. If nobody touches them."
+
+"Pomfrey will look at you every twenty minutes."
+
+"She'll look," said Harry. "She won't touch. She never touches if you're asleep. I watched her."
+
+They went down the stairs.
+
+* * *
+
+Buckbeak was where Evelyn had left him, behind the fallen oak, eleven yards into the trees, tied by his long rope to a branch, asleep standing up with his head under his wing.
+
+He woke when Evelyn came through the trees.
+
+He looked at her with one orange eye. Then he looked at Harry, behind her. He looked at Harry for quite a long time.
+
+Harry bowed.
+
+He did it properly, the way he had done it in the paddock in September, with his eyes on the orange eye. He did not need to wait so long, this time. Buckbeak bowed back almost at once.
+
+"He remembers you," said Evelyn.
+
+"I think he remembers being flown about in front of everybody," said Harry. "I think he liked it."
+
+"Can you fly him?"
+
+"I don't know. I've flown on him. I've never flown him."
+
+"Then I'll do it," said Evelyn.
+
+Harry looked at her.
+
+She was standing beside the hippogriff with the end of his rope in her hand, in her hospital-wing dressing gown, which was too big for her, with her hair not tied back because there had not been time.
+
+"You've never flown anything," said Harry.
+
+"I've never bowed to anything either," said Evelyn. "Until last night." She looked up at the West Tower, high above the trees, grey against the sky going pale in the east. "The tower's two hundred and eleven feet. The window of Flitwick's office is the seventh from the top on the west face. It's got a ledge. A hippogriff can land on a ledge that wide. I've read about it." She looked at Buckbeak. "He'll take me. He bowed to me first."
+
+"Evelyn…"
+
+"You can't hold two beds and a door and fly a hippogriff at the same time," she said. "You'll have to get up the stairs. There'll be somebody at the door. A Ministry man, or a Dementor, or both. You'll have to make them see nobody, and open the door without a sound, and get him out onto the battlements. That's three things already." She put her foot on Buckbeak's bent knee, the way Hagrid had put Harry's in September. "I'll bring the hippogriff."
+
+She swung herself up.
+
+Buckbeak did not object. He shifted his feet and ruffled his feathers and looked round at her once, with one orange eye, and then he looked away, at the sky, as though he had decided that this was acceptable and was not going to discuss it.
+
+Evelyn sat on his back with her hands in the feathers of his neck.
+
+Her face did not change at all.
+
+"Battlements," she said. "The top of the West Tower. Seven minutes."
+
+"Six," said Harry.
+
+"Seven," said Evelyn. "You'll stop to think on the stairs. You always do."
+
+* * *
+
+There was a Ministry wizard at the foot of the stairs to Flitwick's office. He was young and sleepy and he was sitting on a chair with his wand on his knee and his chin on his chest.
+
+Harry set an empty corridor in front of him and walked past.
+
+There was a Dementor at the top of the stairs.
+
+He felt it from the bottom, the cold coming down the stairwell, flat and grey. It was standing outside Flitwick's door. It was waiting for the word.
+
+Harry stopped on the stairs.
+
+He thought. Evelyn had been right; he always stopped to think.
+
+He could not set anything in front of a Dementor. There was nothing in a Dementor to set it in front of. It did not see the way people saw. It did not look at things. It only wanted. You could not make a thing that only wanted believe that something was not there.
+
+But you could give it something else to want.
+
+He had pushed the other Sirius's love out of himself across a lake and it had driven two hundred of them back over the water. He still had it. He could feel it, at the place where he kept what he had felt, not used up, not even smaller. It would always be there. He had kept it.
+
+He did not want to use it on one.
+
+He thought about a stag. He thought about how the stag had looked at the screen, and at him.
+
+Then he went up the stairs, and he did not use the other Sirius's love. He used something smaller. He took hold of a memory of his own, a real one, his own, of sitting on a narrow bed in the Hog's Head at two in the morning laughing so hard he had to hold on to the window seat, because a man had told him about a stag in a dormitory with its antlers in Frank Longbottom's curtains.
+
+He made it larger. He pushed it out.
+
+"*Expecto patronum*."
+
+It came out silver. It came out as a shape, smaller than on the lake, but a shape: a stag, the size of a pony, with its head up. It went up the stairs ahead of him and the Dementor at the top turned away from it and went back along the corridor and round the corner, the way a dog goes back from a fire, and did not come back.
+
+Harry went up to Flitwick's door.
+
+He put his finger on the lock and thought Tom's charm at it.
+
+It opened without a sound.
+
+* * *
+
+Sirius was at the window.
+
+He was standing in the middle of Flitwick's office, which was full of small chairs and very large books and cushions in piles, and he had his back to the door and his face to the window, and the window was barred. He did not turn round. He thought, Harry read at once, that it was the Dementor coming.
+
+He was very quiet. He was quieter than Harry had ever felt him. The rage was there, but it had gone down to the bottom, and on the top there was nothing but tiredness, enormous and grey, and something that was nearly peace and was not peace at all. It was the feeling of a man who has been fighting for twelve years and has decided, at last, to stop.
+
+"Sirius," said Harry.
+
+Sirius turned round.
+
+He looked at Harry in the doorway. He did not move.
+
+"You," he said.
+
+"Come on."
+
+"Harry. You can't… they'll…"
+
+"Come on," said Harry. "The battlements. There isn't much time. There's a hippogriff."
+
+"A *what*?"
+
+"Come on."
+
+* * *
+
+The battlements of the West Tower were very high and very cold, and the whole of the grounds was spread out below them, grey and silver in the dawn, the lake and the forest and the long lawn going down and Hagrid's hut with a thin line of smoke going up from its chimney.
+
+Evelyn was waiting.
+
+She was on Buckbeak, on the battlements, between two of the stone teeth of the wall. She had landed him there. Harry did not know how. Her hair was all over the place and her face was white and her hands were wound into the feathers of Buckbeak's neck so tightly that her knuckles were white too, and she looked at Harry as he came up through the trapdoor with Sirius behind him.
+
+"Seven minutes," she said.
+
+"Eight," said Harry. "There was a Dementor."
+
+"Then I was nearly right."
+
+She got down off Buckbeak. She got down slowly, with her legs not quite working, and Harry caught her arm when she landed and she let him hold it for about two seconds, and then she took it back, and stood up very straight, and did not say anything about the flight at all, then or ever.
+
+Sirius was staring at her.
+
+"Who," he said, "are you?"
+
+"Evelyn Selwyn."
+
+"*Selwyn*? One of Corvin's?"
+
+"Yes."
+
+"Merlin," said Sirius. He looked at the hippogriff. He looked at Harry. He looked at the girl in an enormous hospital dressing gown with her hair down, who had flown a condemned hippogriff to the top of a tower at dawn. "I'm sorry for you," he said. "About your father, I mean. Not about… this. This is…" He did not seem to know what it was.
+
+Harry thought about a room above a bar, and a man saying exactly the same thing about Evelyn's father in exactly the same voice, and a young grin.
+
+"You need to go," he said.
+
+"Yes." Sirius did not move. "Harry. The rat. I'll find him. I'll find him if it takes another twelve years. And when I find him…"
+
+"Bring him in alive."
+
+Sirius looked at him.
+
+"Alive," said Harry. "To Dumbledore. In front of everybody. That's the only way you come home."
+
+Sirius looked at him for a long time.
+
+Harry read him. The tiredness had gone, and the grey thing that was nearly peace had gone, and it was all coming back up, all of it, the rage, the love, the astonishment, like a well filling. And something else, on top of it all, that had come up in the Shrieking Shack when Harry stopped him, and that had not gone down since.
+
+It was not quite fear. It was not quite pride.
+
+It was both.
+
+"You know," said Sirius, "James would never in his life have thought of that. Not at thirteen. Not at thirty. He'd have charged in and got himself killed, being noble, and dragged me with him, and we'd have had a marvellous time." He laughed. It was the start of the bark. It held. "And you just… stood there. In the Shack. And thought."
+
+He put his hand on Harry's shoulder.
+
+It was the first time anybody had done that since a red-haired woman in Dumbledore's office, the night of the fourth of May. It was very thin, the hand, and it shook a little.
+
+"He'd have been so proud of you," said Sirius. "He'd have been a bit frightened of you, too. Both at once." His hand tightened. "That's all right. I am too."
+
+Then he let go, and climbed onto Buckbeak's back, and Buckbeak spread his great grey wings, and looked round once, at Evelyn, with one orange eye.
+
+"Go," said Evelyn. "Go on."
+
+They went.
+
+They went off the battlements of the West Tower in one long beat of the wings, out over the edge, down, and then up, and out over the grounds, over the lake, over the forest, getting smaller, a grey shape and a black shape on it, against the sky going white in the east.
+
+Harry watched them go.
+
+He watched them until they were a speck, and then until they were not even that, and then he went on watching the place in the sky where they had been.
+
+Beside him, Evelyn was holding her own arms, very tightly, inside the enormous sleeves.
+
+"Potter," she said.
+
+"Yes?"
+
+"I'm never doing that again."
+
+* * *
+
+Dumbledore did not ask how Sirius Black had got out of a locked room at the top of the West Tower guarded by a Ministry wizard and a Dementor.
+
+He did not ask how two children had got out of the hospital wing, when Madam Pomfrey had looked in on them three times between four and five o'clock and found them both asleep, the girl on her back with her hands folded, the boy curled up with his face in the pillow.
+
+He did not ask anything at all.
+
+He came to the hospital wing at eight in the morning, when Fudge had gone back to London with his face the colour of a plum and Snape had gone back to his dungeon with a lump on his head and a look on his face that made two first-years in the corridor flatten themselves against the wall, and he sat in the chair by Harry's bed, and folded his hands, and looked at Harry over his half-moon spectacles.
+
+Harry read him. He was closed.
+
+"I spoke to Sirius," said Dumbledore. "Last night. In the tower. Before the Minister arrived. He told me about Peter. All of it. I believe him." He paused. "I gather you knew already."
+
+"Yes, sir."
+
+"May I ask how?"
+
+"No, sir," said Harry.
+
+Dumbledore looked at him for a long moment.
+
+He did not reach for Harry's mind. Harry was ready for it. He had the wall and the water and the chocolate in squares built and waiting, and he did not need them. Dumbledore did not reach.
+
+"Very well," said Dumbledore.
+
+"He's innocent," said Harry. "You believe he's innocent."
+
+"I do."
+
+"Then tell them. Tell the Ministry. Tell Fudge."
+
+"Without Peter," said Dumbledore gently, "there is no proof. There is the word of a man who has been in Azkaban for twelve years, and is known to be mad, and the word of three children, one of whom is his godson and two of whom are Slytherins, against the word of the whole Ministry of Magic and the memory of a street." He spread his hands. "I believe him, Harry. Nobody else will. Not yet."
+
+"When he's cleared," said Harry. "When he finds Pettigrew. When he brings him in." He heard his voice go quiet. "Could I live with him? Instead of the Dursleys?"
+
+Dumbledore did not answer at once.
+
+Harry read him. He was closed, smooth and complete. But Harry could see his face, and his face, for a moment, did something very small.
+
+"No," said Dumbledore. "Not this summer. You will go back to your aunt's house, Harry, as you always have."
+
+"Why?"
+
+"Because there is a protection there," said Dumbledore. "An old one. It is in your blood, and in your aunt's, and it holds for as long as you can call that house your home. I put it there myself, the night your mother died. I cannot tell you more than that, and I am sorry for it. But while you live there, for some part of every year, you are safer than you would be anywhere else in the world."
+
+Harry looked at him.
+
+He thought about a protection that was in his blood. He thought about his mother, standing in a doorway. He thought about Dumbledore in a hospital wing two years ago, saying *your mother stood between you and him*, and how Harry had known it was not the whole truth, and said thank you.
+
+He thought about a voice through a woman in shawls, in a room of fallen glass.
+
+He thought: *safer from what?*
+
+He thought: *safer for what?*
+
+He opened his mouth.
+
+He was going to say it. It was right there, in his mouth, all of it, quite calm. *Is it because of the prophecy, sir? Is it because one of us has to kill the other, and you need me to be alive when it's time?*
+
+He did not say it.
+
+He shut his mouth.
+
+He sat in the hospital bed with the sheets very stiff round him and looked at the old man in the chair, closed and kind and tired, with his hands folded, and he thought that Dumbledore had known since before he was born, and had never said, and that if Harry said it now, here, in this bed, Dumbledore would know that Harry knew.
+
+And then there would be one less thing that Harry knew and Dumbledore did not.
+
+"All right," he said.
+
+"I am sorry, Harry."
+
+"I know, sir," said Harry. And he did. He read it. Dumbledore was sorry. He was quite sincerely sorry, under the closed smooth surface of him, and the sorrow was real, and it was large.
+
+It did not change anything.
+
+He added a sixth line, in his head, under the other five.
+
+*Privet Drive again. He gave me a reason I can't use.*
+
+* * *
+
+Professor Lupin resigned on the Friday.
+
+Snape told the Slytherins at breakfast. He did not tell them directly. He stood at the end of the Slytherin table with his plate in his hand and said, to nobody in particular, in a voice that carried exactly as far as it needed to, that it was a great pity Professor Lupin had been obliged to leave, but that parents would not, in the circumstances, have wished their children to be taught by a werewolf.
+
+By lunchtime it was round the school.
+
+By teatime Lupin had packed.
+
+Harry went to his office at five. The door was open. The Grindylow's tank was empty. Lupin was putting books into a battered case, the same one from the train, with *Professor R. J. Lupin* on it in flaking gold, and he looked up when Harry knocked, and smiled.
+
+"Harry," he said. "Come in. I've got something of yours."
+
+He held out the Map, folded. And the Cloak, folded on top of it.
+
+"Professor Snape found this in the Shack," said Lupin. "I asked if I might return it. He was… not keen. I insisted." He put them in Harry's hands. "Since I'm leaving, I don't think I'm obliged to confiscate anything any more."
+
+Harry took them.
+
+He read Lupin. The kindness was there, as always. The tiredness was there, very large. The wonder that had come up in the Shrieking Shack, aimed at Sirius, was still there, quieter, like a lamp left on in a window. And the guilt, the old guilt, the doorstep, was not there at all.
+
+"You knew," said Harry. "On the train. You knew who I was. You knew my father."
+
+"Yes."
+
+"You were Moony."
+
+Lupin looked at him for a long moment.
+
+"Yes," he said. "Sirius told you?"
+
+"No," said Harry.
+
+Lupin did not ask how.
+
+"I'm sorry about Snape," said Harry.
+
+"Don't be." Lupin closed the case. "Severus has wanted me gone since the day I arrived. He has a long memory. We were not kind to him, at school. James and Sirius. And I… I did not stop them." He looked at the empty tank. "I'm afraid I have rather a habit of not stopping things."
+
+He picked up the case.
+
+"Your Patronus," he said, at the door. "Last night. By the lake. I couldn't see it, I was… otherwise engaged. But I've heard." He looked at Harry. "A stag."
+
+"Yes."
+
+"Your father's Animagus form." Lupin smiled, very slightly. "Prongs. That's why we called him Prongs." He shifted the case in his hand. "Whatever you did, Harry, to make a Patronus like that, at thirteen, out of the cold, I don't think I want to know. But I think he would have been very proud."
+
+He went.
+
+Harry went down to supper.
+
+He passed Snape in the entrance hall. Snape was standing at the foot of the marble staircase, watching the door through which Lupin's carriage had just gone down the drive, and Harry read him as he passed, because he could not help it.
+
+Snape was satisfied.
+
+It was cold. It was the cold satisfaction Harry had felt at the edge of him in the hospital wing, aimed at the West Tower, only now it had moved from the tower to the door, and the drive, and the carriage going down it. It was the satisfaction of a man who has waited a very long time to take something from somebody, and has taken it, and has found that it is exactly as satisfying as he had hoped.
+
+And then Snape turned his head and looked at Harry.
+
+And the satisfaction did not go away. It did not change. It stayed exactly where it was, cold and complete, and it looked at Harry over the top of it, across the entrance hall, with his black eyes.
+
+Harry had been afraid of a great many people in his life.
+
+He had been afraid of Uncle Vernon, before he was six, before he knew how to read him. He had been afraid of the thing on the back of Quirrell's head. He had been afraid of a basilisk in the dark, and of a hooded thing in a doorway on a train, and of himself, at a dinner table in Privet Drive, with a fork in his hand.
+
+He had never been afraid of Snape. He had loathed him, and been loathed, and been puzzled by the grief under the loathing, and read him across classrooms and corridors and Great Halls for three years. He had never once been afraid of him.
+
+He was afraid of him now.
+
+He went in to supper and did not look back.
+
+* * *
+
+The Hogwarts Express left Hogsmeade at eleven o'clock on Saturday the second of July.
+
+Harry had a compartment near the back. Theo was in it, with his chess set. Millicent was in it, with a tin of her mother's fudge she had been saving, which she opened at the first bend and finished by York. Ron Weasley had come along the corridor at Peterborough, on crutches, with his leg in a plaster cast that the twins had drawn on, and stood in the doorway, and said, "Potter."
+
+"Weasley."
+
+"You were right," said Ron. "About my rat."
+
+"Yes."
+
+"Doesn't mean I like you."
+
+"No," said Harry.
+
+Ron looked at him a moment longer, red in the face. Then he nodded once and went back down the corridor on his crutches, and Millicent said "What was *that*," and Theo moved his queen and did not say anything.
+
+Evelyn was by the window.
+
+She was not reading. She had a book open on her knee, *The Daughter of Time*, but she had not turned a page since Grantham. She had the watch in her hand. It was open on her palm, and she was looking at it, the way she had looked at it in the study on the second of March before she put her thumb on the crown.
+
+It was not ticking.
+
+The second hand stood at the twelve. The fine silver hand stood between the seven and the eight, where it had always been. The crown would go round and round and nothing would catch. She had tried it every morning for four months.
+
+Harry watched her look at it.
+
+He could not read her. He never would. He looked at her face, the one people forgot, bent over a small gold watch with ivy leaves on its lid, and he thought about a girl in a room full of clocks with gold dust in the creases of her palm. He thought about *nobody will notice I've gone*. He thought about an old man in a goat-smelling pub, going still, turning a watch over with one finger, looking at a mark on the back of the case.
+
+*I know whose hand made that, girl, and I'm not going to tell you.*
+
+"I'm going to find out who made it," said Evelyn.
+
+She did not look up. She said it to the watch.
+
+Harry looked at her.
+
+"Who on earth," he said, "makes watches like that?"
+
+Evelyn closed the lid.
+
+She held it in her hand for a moment, closed, not ticking, the ivy leaves worn smooth in the middle where her thumb had gone every morning since she was eleven.
+
+"I don't know," she said. "I intend to find out."
+
+<->
