@@ -15319,3 +15319,591 @@ Evelyn looked at him for a moment. Then she looked down at the page and read it 
 "*Oswin, his own apprentice, who walked the way of seeming, and was the most gifted of all of us, and at the height of it could not find the door back to himself.*"
 
 <->
+
+## Chapter 24: The Three Broomsticks
+
+Harry's Hogsmeade form had been signed by his Uncle Vernon on the first of August, at the kitchen table in Privet Drive, because Harry had made him want to.
+
+* * *
+
+It snowed on the last Saturday of term.
+
+It had snowed in the night, and it was still snowing when they went down the drive to the gates, big slow flakes coming straight down out of a white sky with no wind behind them. The Dementors at the gates stood on either side of the drive in their black cloaks, with the snow settling on their hoods, and the line of students went between them very quickly and without talking. Harry read them as he passed, because he could not help it.
+
+Appetite. Appetite.
+
+He did not look up.
+
+"I hate them," said Millicent, on the other side. "I hate them. I hate walking past them. I feel like I've been sick."
+
+"You haven't," said Theo.
+
+"I feel like it."
+
+Evelyn said nothing. She had walked between the Dementors with her hands in her pockets and her eyes straight ahead, at exactly the same pace as she walked everywhere, and she had come out the other side with a little frost on her eyelashes and no other change at all.
+
+Harry had noticed the frost.
+
+He noticed most things about her now, since the train. He had noticed that she was the only one in the stand at the match who had not gone somewhere else. He had noticed that she was the only one at breakfast, every morning, who did not glance at the high windows when the post came in, as though she were expecting bad news. She did not glance at the windows. She already had the bad news, and she had had it since October, in a letter from her mother that she had read once at breakfast and folded twice and put in her cardigan pocket and not mentioned.
+
+He had not asked.
+
+He had not asked because she had not said, and because he had learned, in two years and a bit, that if he asked Evelyn something she did not want to tell him, she would tell him so, precisely, and then he would know that he had asked.
+
+* * *
+
+Hogsmeade was like a Christmas card.
+
+The cottages and shops had snow on their thatch and their slate and the tops of their walls, and there were wreaths of holly on the doors and strings of enchanted candles in the trees, and the high street was full of students in scarves going from one shop window to the next with their breath smoking. Millicent wanted to go everywhere at once. Theo wanted to go to the bookshop. Evelyn wanted to go to the post office, where there were three hundred owls in rows on shelves, colour-coded by speed, and she stood in front of them for nine minutes reading the price list.
+
+They went to Honeydukes.
+
+Honeydukes was so crowded you could not move in it, and so loud with pleasure that Harry had to turn it down as he went through the door, the way you turn down a wireless that has come on too loudly. Shelves went up to the ceiling. There were Fizzing Whizzbees and Pepper Imps and Toothflossing Stringmints and a whole wall of chocolate. There was a barrel of Every Flavour Beans. There was a corner of the shop, near the back, labelled *Unusual Tastes*, which had blood-flavoured lollipops and cockroach clusters, and Millicent stood in front of it for a long time with an expression of deep interest.
+
+"I'm going to buy a cockroach cluster," she said.
+
+"Why?" said Theo.
+
+"To see."
+
+"You'll be sick."
+
+"Then I'll have seen."
+
+She bought one. She was not sick. She said it was crunchy, mostly, and then went a bit quiet, and bought a bar of Honeydukes Best to take the taste away.
+
+Evelyn bought a quarter of humbugs, the same as every time, and paid with the exact money, the same as every time.
+
+Harry bought nothing for a long time. He was standing near the cellar steps at the back of the shop, which went down to a door that was always locked, and which the Map said went somewhere else entirely. He was not thinking about sweets. He was thinking about a man called Black, and about what Mr Weasley had said through a wall in the Leaky Cauldron, and about how every Dementor in Britain had come up to Scotland to guard a school from one man, and had not found him.
+
+Then he bought a bar of chocolate for Lupin, because it seemed like the sort of thing that would go in, and some Sugar Quills for himself.
+
+* * *
+
+The Three Broomsticks was warm and crowded and smoky, and it smelled of butterbeer and wet wool. Madam Rosmerta, who ran it, was a curvy, pretty woman with a great deal of hair and a laugh that went all over the room, and she was pleased with everybody, especially the older boys, who were pleased with her back. Harry read her and liked her. She was simple, in a nice way. She liked being liked.
+
+They got four butterbeers and a table near the back, by a Christmas tree.
+
+And Harry had taken two sips of his when he felt the door open.
+
+He felt it before he saw it. He felt the cold come in with the people coming in, and then he felt the people, and they were loud. One of them was very loud indeed. He knew that one from the end of a forest path and the door of a hut on a rock. It was a gladness with grief all through it like the grain in wood, and today it was not glad.
+
+He looked round.
+
+Professor McGonagall. Professor Flitwick. Hagrid, huge in his moleskin coat, with snow on his shoulders. And a short, portly man in a pinstriped cloak with a bowler hat in his hand, who was the Minister for Magic.
+
+"Oh, no," said Millicent. "Look. It's half the staff."
+
+"They're allowed to drink," said Theo.
+
+"I know they're allowed. I just don't want to watch McGonagall drink."
+
+The four of them sat down at a table by the fire, on the other side of the Christmas tree, and Madam Rosmerta went over to them, and there was a good deal of laughing and ordering and a red currant rum for the Minister.
+
+Harry read Fudge.
+
+He was cheerful on top. Underneath, he was frightened. It was the same fear Harry had felt in the parlour of the Leaky Cauldron in August, old and spread out, a man who had seen what one curse could do, and it was larger now, much larger, and it had moved off the door and on to a name. Fudge had a name in him that he was very frightened of, and it was going round and round, and he had come out in the snow to a public house to talk about it, because it was going round and round and he could not stand it.
+
+Harry put his butterbeer down.
+
+"I'm going to the loo," he said.
+
+Evelyn looked at him.
+
+He got up. He went round the back of the Christmas tree, towards the door that led to the yard, and in the shadow of it, where the tree hid him from the room, he took the Cloak out of his bag and put it on.
+
+It took about three seconds.
+
+Then he walked very carefully between the tables to the fire, and stood behind Professor Flitwick's chair, two feet from the Minister for Magic, and listened.
+
+* * *
+
+"Up from London in this, Minister?" Madam Rosmerta was saying. "You'll catch your death."
+
+"Business, Rosmerta. Business. I've been up at the castle seeing Dumbledore about the guards."
+
+"Don't talk to me about the guards. Two of them came in here on Saturday night, if you please. Just drifted in. Asked nobody's leave. Half my customers went home." She put a hand on her hip. "I'm not running a mortuary."
+
+"I quite agree," said Professor McGonagall. "I should like to see the Ministry explain them to the parents. They came onto the pitch, Cornelius. Onto the pitch. A boy fell forty feet."
+
+"I know. I know, Minerva. A dreadful business." Fudge turned his glass round. "But you know as well as I do why they're there."
+
+"I'll tell you what I can't get over," said Madam Rosmerta, and she sat down on the end of the bench, and her voice went lower, and Harry felt her light up with interest, the way people do when they are about to be told something they have wanted to hear for twelve years. "Sirius Black. I remember him. He used to sit at that table there, by the window, with James Potter. Every Saturday. You couldn't get a knife between those two. I used to think he'd be the one to settle down first."
+
+Fudge put down his glass.
+
+Harry read him decide. It was the decision of a man who has been carrying something heavy a long way and has found a table to put it on, and does not much care whether the table will hold.
+
+"Best man at the wedding," said Fudge. "Did you know that, Rosmerta? And when the boy was born, they made Black his godfather."
+
+Harry did not move.
+
+He did not do anything. He stood behind Professor Flitwick's chair under the Cloak with his hands at his sides, and the word went into him and did not come up again, the way a stone goes into deep water.
+
+"Cornelius," said Professor McGonagall, low.
+
+"It'll come out sooner or later, Minerva. It always does." Fudge leaned in. "The Potters were warned. Dumbledore got word that You-Know-Who had marked them, and he told them to hide, and to hide properly. There's a charm for it. Very old, very difficult. You put a secret inside one living person, and nobody on earth can find it unless that person gives it up. You could walk past their gate every day for a year and never see the house."
+
+"I've heard of that," said Madam Rosmerta.
+
+"Dumbledore offered to carry it himself. They thanked him and said no. They said they'd trust it to Black." Fudge drank. "And inside a week, You-Know-Who knew where they were. Inside a week. Black had been his man all along, you see. Feeding him everything. He walked straight round to his master with it."
+
+Nobody at the table said anything for a moment.
+
+Harry read the table.
+
+He read Madam Rosmerta. She was shocked, truly, all the way down, and under the shock there was a guilty, delicious horror, the horror of somebody who has just been told the worst thing she ever heard about a man she once thought was charming.
+
+He read Professor Flitwick. Flitwick was grieving, quietly, and the grief was very old, and it was for a girl who had once turned a whole classroom of cushions into doves and for a boy he had once given top marks in Charms who had turned out to be something else.
+
+He read Professor McGonagall. She was angry. It was cold and white and straight, like frost on a window, and it was all for Black, and under it, a long way down, there was grief, and not only for the Potters.
+
+And then Hagrid spoke, and it was not like any of them.
+
+"I was there," said Hagrid. "That night. Dumbledore sent me. I went into what was left o' that house an' I got him out o' the rubble, little Harry, cut on his head, cryin', an' I was carryin' him out ter the gate. An' up comes Black on that motorbike o' his. Out o' the sky." His great hands were shaking round his tankard. "An' he looked like death. White as a sheet. Shakin'. An' I thought, poor beggar, he's only just heard, he's come ter help. An' I put my hand on his shoulder." His voice cracked across the middle. "I stood there in the road an' I was sorry for him."
+
+Harry read Hagrid.
+
+He did not have to try. He had never in his life had to try with Hagrid. Hagrid was grieving. It was enormous and it was raw and it had never healed, twelve years of it, and right through the middle of the grief, like a crack through a plate, there was rage. It was the loudest thing in the room. It was the loudest thing Harry had felt since the whole school turned on him in a dark corridor last winter. It was aimed at a man who had stood in a road in Godric's Hollow, white and shaking, and been pitied.
+
+"He asked me ter give him the baby," said Hagrid. "Said he was the godfather. Said he'd see ter him. An' I said no, Dumbledore wants him took ter his aunt's. An' he argued a bit, an' then he gave up, all of a sudden, an' he says, take the bike. Take it. I won't be needin' it." Hagrid put his face in his hands. "I won't be needin' it. An' I said thank you."
+
+"Rubeus," said Professor McGonagall, quite gently.
+
+"And then poor little Pettigrew," said Fudge, to Madam Rosmerta, more quietly. "Another of their crowd. Followed the other two about like a puppy at school. Not much of a wizard, if I'm honest. He went after Black on his own. Found him in a Muggle street the next day and stood there in front of everybody, crying, asking him why. And Black blew the street to pieces. Twelve Muggles dead. Pettigrew gone. There wasn't enough of him left to bury. They gave his mother his medal in a box." Fudge looked at the fire. "I was there afterwards. I was a junior man then, I was sent to tidy up. The Muggles were screaming. And Black was standing in the middle of the road with his head back, laughing. I've never been able to get it out of my head. I've tried."
+
+Harry read him.
+
+It was true. It was all true. Fudge believed every word. Fudge had stood in that street, and it had never left him.
+
+And so did they all. Rosmerta believed it. Flitwick believed it. McGonagall believed it, coldly, completely, and it had hurt her for twelve years. And Hagrid believed it more than anybody. Hagrid believed it with the whole of himself, every bit of that enormous grieving rage, and Hagrid had never told a lie in his life that Harry had not been able to read from across a field.
+
+There was nobody at the table who did not believe it.
+
+Harry stood behind Professor Flitwick's chair until they had finished their drinks and stood up and gone out into the snow, talking about the Dementors again. Then he went back round the Christmas tree, and took off the Cloak, and put it in his bag, and came back to the table.
+
+His butterbeer was cold.
+
+"That was a long time," said Millicent.
+
+"There was a queue," said Harry.
+
+Evelyn looked at him and said nothing at all.
+
+* * *
+
+He went back to the castle on his own.
+
+He said he had a headache, and Theo looked at him in the careful way Theo had been looking at him since the chessboard, and said, "All right," and Millicent said she would bring him a Pepper Imp, and Evelyn looked at him across the table and did not say anything.
+
+He walked back up the drive in the snow, between the Dementors, without reading them.
+
+He went down to the study.
+
+It was Saturday afternoon, and the castle was half-empty, and nobody saw him go into Myrtle's bathroom, because he looked at the Map first. Myrtle was not there. He opened the sink and went down, and through the Chamber, past the grey sunken snake, and put his hand on the stone foot and read it, and felt it read him back, and the door turned on its pivot and let him in.
+
+The lamp came up. Cold and green and steady.
+
+He sat down in the stone chair behind the black desk.
+
+He sat there for a long time, not doing anything. He found that his hands were quite steady, and that his head was quite clear, and that the snow was still on his shoulders and had not melted, because the study was very cold.
+
+Godfather.
+
+Best man. Secret Keeper. Spy.
+
+A week. Within a week.
+
+Harry had always known, in a way, that somebody had done it. He had known since the hut on the rock that a dark wizard had come to Godric's Hollow on Hallowe'en. He had known since the Mirror and Quirrell that the dark wizard had a name, and a face, and a voice. He had never once thought about how the dark wizard had found the house.
+
+Somebody had told him.
+
+Somebody who had been at their wedding, and stood beside his father, and been asked to look after Harry if anything happened, and said yes.
+
+And then he had told.
+
+Harry sat very still in Slytherin's chair.
+
+And then he took out a piece of parchment, and his quill, and the good blue-black ink from Scrivenshaft's, two Sickles, and he began to write.
+
+He did not write anything dramatic. He wrote a list. He had always found it easier to think in lists, since Evelyn.
+
+*1. He is coming here. Mr Weasley: "He's at Hogwarts." He has been saying it for weeks. He wants me.*
+
+*2. So I don't have to find him. He will find me.*
+
+*3. The Dementors have not caught him. The Ministry has not caught him. Dumbledore has not caught him. They are looking for a man. They will go on looking for a man.*
+
+*4. I can feel people. He is a person. He is not an Occlumens, or the Ministry would have said, and Fudge would know. If he comes within a hundred yards of me I will know he is there before he knows I know.*
+
+*5. The Map. I can watch every name in the castle every night.*
+
+He stopped and read it over. It was quite neat. It was neater than his Potions essays.
+
+*6. When he comes, I don't fight him. He is a grown wizard and he killed thirteen people with one curse. I would lose.*
+
+*7. I read him instead.*
+
+*8. Everybody has something underneath. Even Aunt Marge had a place where something should have been. A man who did what he did has something underneath it, and it will be very large, and it will be the thing he is most afraid of.*
+
+He stopped again.
+
+He thought about a man kneeling on a stone floor, with his hands open on his knees, and an expression on his face that Harry would not understand for years. He thought about how there had been nothing in the way.
+
+*9. I find it, and I give it back to him. Larger. All at once.*
+
+*10. Quirrell did it himself.*
+
+He looked at the tenth line for a long time.
+
+Then he wrote, underneath, in smaller letters:
+
+*If that doesn't work: the curses in Pucey's grandfather's books. Third shelf, Dolohov. Page 140. Ask nobody.*
+
+And then he wrote nothing else, and sat back in the stone chair.
+
+He did not feel anything very much. That was what he noticed. He had expected to. He had written down, in a neat hand, in blue-black ink, a plan for killing a man, and he had expected that he would feel the way he felt on the stairs with the freckled boy, or at the table with Aunt Marge, or on the floor with Quirrell. Sick, or light, or frightened of himself.
+
+He felt calm.
+
+It was a very clear, very still calm, like the air on a frozen pond. He felt the way he felt when he had worked out a move in chess that Theo would not see.
+
+He looked at the list. He thought it was a good list. He thought it would work.
+
+He folded it twice, and put it in the inside pocket of his robe, next to the folded page from a bestiary that he had carried since May and never given back to Madam Pince.
+
+The lamp burned cold and green and steady over the empty desk.
+
+He sat there until the snow on his shoulders began, at last, to melt.
+
+* * *
+
+Evelyn went home on the Friday, on the train, with Theo and Millicent. Harry stayed.
+
+"Write," she said, on the platform. "I mean it. Every three days."
+
+"Every three days," said Harry.
+
+"You'll forget."
+
+"I won't."
+
+"You will," said Evelyn. "You'll get absorbed in something. You'll write on the fifth day and say *sorry, I've been busy*. Don't. Write on the third." She looked at him. "I'll know if you're doing something."
+
+"How?"
+
+"You'll write less."
+
+She got on the train.
+
+* * *
+
+On Christmas morning there was a broom at the foot of his bed.
+
+It was long, and thin, and wrapped in brown paper, and when he tore the paper off, it lay across his blanket in the grey light of the dungeon dormitory like something out of a dream. The handle was ash, polished to a mirror and perfectly straight, and the twigs of the tail were birch, every one of them streamlined, every one of them in its place. *Firebolt*, it said, in gold, near the top.
+
+There was no card.
+
+He looked. He went through the paper twice. He looked under the bed. There was a card from Hagrid with a box of rock cakes. There was a jumper from Mrs Weasley, emerald green, with a large H on the front, which made him stand still for a while in a way that he did not examine. There was a parcel from Theo, which was a book about Seekers in German that Theo had bought because the pictures were good. There was a tin of something from Millicent that turned out to be her mother's fudge. There was a small flat parcel from Evelyn, which was a 1994 pocket diary with all the Hogwarts fixtures and the League copied in, and four corrections in pencil, and no note, the same as last year, and one new thing written on the inside of the back cover in her small exact hand: *Three days. E.S.*
+
+There was nothing at all with the broom.
+
+He held the Firebolt in his hands and tried to read it.
+
+He got nothing. Of course he got nothing. It was ash and birch and gold leaf, and objects did not feel anything, except one small black book that he did not think about any more.
+
+He took it up to Christmas lunch.
+
+There were only twelve people in the Great Hall for lunch, and they all sat at one table: Dumbledore, McGonagall, Snape, Sprout, Flitwick, a nervous Hufflepuff first-year, two Ravenclaws, Hermione Granger, who had stayed because her parents were skiing, and Ron Weasley, who had stayed because Hermione had. And Harry. There were crackers. Dumbledore pulled one with Snape and got a vulture-topped hat, which he put on Snape, who took it off.
+
+Harry propped the Firebolt against the end of the table.
+
+He did it on purpose. He did not quite know why. He thought, afterwards, that he had wanted somebody to see it.
+
+Hermione saw it.
+
+She looked at it, and her eyes went very wide, and then she looked at Harry, and then she said, quite loudly, "Is that a Firebolt?"
+
+"Yes," said Harry.
+
+"Who's it from?"
+
+"I don't know. There wasn't a card."
+
+Hermione went white.
+
+Harry read her. It was not jealousy. He had expected jealousy, or the cold dislike she had had for him since a misty morning on the Quidditch pitch. Instead there was fright. It was very quick and very clear and it was aimed at the broom. She was frightened for him.
+
+"Professor McGonagall," she said.
+
+And Professor McGonagall looked at the broom, and at Harry, and at Hermione, and her face did something very sharp, and twenty minutes later the Firebolt was in McGonagall's office and Harry was standing in front of her desk.
+
+"It will have to be checked, Potter," she said. "For jinxes. Professor Flitwick and Madam Hooch will strip it down. It may take some weeks."
+
+"It's mine, Professor."
+
+"It is yours. Nobody is disputing that. But there is a man who wants you dead, Potter, and you have just received a broom worth more than most families earn in a year from somebody who did not sign their name." She looked at him over her spectacles. "You will have it back if it is safe. I give you my word. If it is not safe, you will be glad you did not ride it."
+
+Harry read her.
+
+She meant it. She was sorry about it, very slightly, because she was a Quidditch fanatic and she knew exactly what a Firebolt was. Under that, she was frightened for him, the same as Hermione, and she did not like being frightened.
+
+"Yes, Professor," he said.
+
+He went out. Hermione Granger was in the corridor. She had waited.
+
+"I'm sorry," she said at once. "I know you're angry. But there wasn't a card, and Sirius Black is…"
+
+"I'm not angry," said Harry.
+
+She stopped.
+
+He was not. He thought about it, standing in the cold corridor outside McGonagall's office with the girl he had stood beside on a misty pitch and said nothing for, and he found that he was not angry with her at all.
+
+He was thinking about who had sent it.
+
+He was thinking that nobody he knew could afford it. He was thinking that a man who wanted him dead would not have sent him the fastest broom in the world, and then he was thinking that perhaps he would, and that the best place to kill a boy was a hundred feet in the air.
+
+"You were right," he said. "Thank you."
+
+Hermione looked at him for a moment. She looked as though he had handed her something she did not know what to do with.
+
+"Happy Christmas," she said, and went.
+
+He wrote to Evelyn that night. It was the third day.
+
+* * *
+
+Selwyn Hall in December was the coldest place Evelyn knew, and she had been down a pipe into the Chamber of Secrets.
+
+The house was built of grey Shropshire stone, and the walls were three feet thick, and most of its rooms had not been heated since her great-grandfather's time. The east wing had been warm once. It had been the warmest part of the house for as long as Evelyn could remember, because her grandmother lived in it, and kept the fires lit, and would not have the windows open after October.
+
+The fires in the east wing were lit now. The windows were shut.
+
+It was still cold.
+
+Evelyn counted the stairs. There were forty-one from the hall to the east landing, and she had counted them first when she was four, and she counted them every time she went up now, because there was nothing else to do on them.
+
+Forty-one.
+
+She went along the landing to her grandmother's door, and knocked twice, and went in.
+
+The Healer was there. Healer Strout, from St Mungo's, who came every second day, a tall thin witch with a face like a kind horse and a bag she never seemed to open. She was standing by the window, writing something on a clipboard. She looked up when Evelyn came in.
+
+"She's asleep," she said quietly. "She's been asleep since eleven."
+
+"Has she eaten anything?"
+
+"Some broth. A little."
+
+"How much?"
+
+Healer Strout looked at her. "About a third of a cup."
+
+Evelyn nodded. She wrote it down, later, in the back of her notebook, on the page where she had been writing things down since she came home on the seventeenth. Broth, a third of a cup, Thursday. Tea, half, Wednesday, would not take more. Bread and butter, two bites, Tuesday.
+
+She sat down in the low chair by the bed.
+
+It was the low chair. It was the one she had sat in every morning from ten to seven to ten past seven since she was five years old, across from the high-backed chair by the east window, while her grandmother said *close the door, Evelyn* and *again* and, sometimes, *good*. The high-backed chair was still by the window. Nobody sat in it now. Her grandmother was in the bed.
+
+She was very small in it.
+
+That was the thing Evelyn kept noticing. Her grandmother had always been the tallest person in any room, taller than Father, nearly as tall as Lucan, straight as the cane she never used to lean on. She had walked into Privet Drive and made a man twice her width sit down in his own kitchen. She had come up Diagon Alley in August in grey, and people in the street had moved out of her way without knowing they were doing it.
+
+In the bed she was small. Her hair was down. Evelyn had never once in her life seen her grandmother's hair down. It was long and white and very thin, and it was spread on the pillow, and somebody, one of the elves, had brushed it.
+
+The Healers did not know what it was.
+
+They had said so, to Father, in the hall, in October, when Evelyn was at school and had only heard about it afterwards in a letter. Old age, they said. She was eighty-one. But also something else. Something they could not find a name for. Something that seemed to have been going on for a long time, quietly, underneath, and had only lately come up to where it could be seen.
+
+Evelyn had read the letter at breakfast, and folded it twice, and put it in her cardigan pocket.
+
+She had not told Potter.
+
+She had nearly told him, three times. Once on the platform at Hogsmeade, once in the study in November, and once at the Three Broomsticks, when he had come back from the loo after twenty minutes with something terrible behind his face and said there had been a queue. She had looked at him and thought, *he is lying to me about something very large, and I am not telling him about something very large, and that is the same, and it is not the same.*
+
+She had not worked out which.
+
+She sat by the bed and watched her grandmother sleep, and counted her breaths, because there was nothing else to do. Fourteen a minute. Then twelve. Then fourteen.
+
+* * *
+
+Downstairs, Mother was drinking.
+
+She had begun at half past eleven on Christmas Eve, which was early even for Mother, and she had not stopped, and by four o'clock in the afternoon on the twenty-sixth she was in the long drawing room with the curtains half drawn and the gin on the table beside her and a book open on her knee that she had not turned a page of since lunch.
+
+"Darling," she said, when Evelyn came in. "There you are. How is she?"
+
+"Asleep."
+
+"Good. That's good. Sleep is good." Mother looked at the gin. "Sit with me a minute. You're always up there. You'll wear yourself out."
+
+Evelyn sat with her a minute.
+
+Mother was wearing green, as she always did, a long green dress that had been fashionable once, and her hair was pinned up, and she had been crying at some point and had put powder on afterwards and it had not quite worked. She was holding Evelyn's hand. She did not seem to know she was holding it.
+
+"She's very strong, you know," said Mother. "Mother. She's always been so strong. She'll be all right. She was always all right. Whatever happened." She laughed a little, at nothing. "Whatever happened, she was always all right. And then she'd look at you. And then you'd be all right too, because she'd decided."
+
+Evelyn did not say anything.
+
+"I was never like that," said Mother. "I could never decide anything. She used to say I took after my father." She stopped. She looked at the gin. She seemed to hear what she had said, a little late, the way people do when they have had too much of it. "Never mind. Never mind that. Do you want a drink, darling? A small one. It's Christmas."
+
+"No, thank you."
+
+"No. No, of course not. You're fourteen." Mother patted her hand. "You're so sensible. You were always so sensible. I don't know where you get it."
+
+Evelyn did not answer that either.
+
+She thought about it later, in the dark, in her room in the west wing. Mother had said *my father*. Mother never talked about her father. Nobody did. He had died abroad, before the war, before Grandmother came home to England with a two-year-old daughter and a new name. That was all anybody had ever said, and Evelyn had never asked, because there had never seemed to be anything to ask.
+
+She wrote it down. *M: "She used to say I took after my father." Then stopped.*
+
+She did not know why she wrote it down. It seemed like a thing to keep.
+
+* * *
+
+Father and Lucan were in the study.
+
+They had been in the study most of the holiday, with the door shut, and Evelyn heard them every time she went past it to the east stair, because the doors at Selwyn Hall were old and did not fit their frames, and because her father's voice, though he never raised it, had a way of carrying.
+
+Lucan had left school in June. He had a post now in Wizengamot Administration, which was where Father had put him, and he came home on Fridays by the Floo in a new grey suit and his very white smile, and on Saturday mornings he went into the study with Father and they talked.
+
+"…Fudge won't last if Black isn't caught by the summer," Father was saying, on the twenty-sixth. "He knows it. That's why the Dementors. It isn't security. It's theatre."
+
+"Lucius thinks he can push him on the Creatures bill," said Lucan.
+
+"Lucius thinks a great many things. He has a hippogriff on his mind at present. His son was scratched." A pause. "The committee will sit in the spring. Lucius will have his way. It costs nothing to let him."
+
+"And Dumbledore?"
+
+"Dumbledore is busy being furious about Dementors." Father's voice did not change. "Let him be. A man who is furious about one thing is not watching six others."
+
+Evelyn went up the forty-one stairs.
+
+She did not write that down. She did not need to. She had been listening to her father's voice through doors since she was four, and she had learned, by about seven, that the things he said in it were never quite the things he meant, and that what he meant was usually in the pauses.
+
+The pause before *His son was scratched* had been the longest.
+
+* * *
+
+Her grandmother woke at ten minutes to seven on the morning of the twenty-seventh.
+
+Evelyn was there. She had come in at half past six, because she always woke at half past six, and there was nothing to do in her own room, and the low chair was where she had always been at ten to seven.
+
+Her grandmother's eyes opened.
+
+They were grey, the same grey as Evelyn's. They looked at the ceiling. Then they looked at the window, where the light was coming up white over the hills, and then they came round slowly and found Evelyn in the low chair.
+
+"Evelyn," said her grandmother.
+
+Her voice was very thin. It was still her voice. Every word of it was still exactly placed.
+
+"Yes, Grandmother."
+
+"What time is it?"
+
+Evelyn did not look at her watch. She did not need to. "Ten to seven."
+
+"Ah," said her grandmother. A very small movement went across her face that might once have been a smile. "Of course it is."
+
+They sat for a little while.
+
+Outside a rook went over, very low, and called once. In the hall downstairs the long-case clock struck seven, and Evelyn counted the strokes at its own slow pace, the pace she had been taught to count seconds at when she was four, and when it had finished her grandmother was still looking at her.
+
+"Do you still wind it?" said her grandmother.
+
+"Every morning."
+
+"Show me."
+
+Evelyn took the watch out of her cardigan pocket. It was the same as always: small and gold, the ivy leaves on the lid worn smooth in the middle where her thumb went, the plain white face, the black numbers, the third hand, hair-fine and silver, slanting between the seven and the eight and never moving. She had wound it this morning, at twenty past six, before she came. Twenty turns of the crown.
+
+She held it out.
+
+Her grandmother did not take it. She looked at it lying in Evelyn's palm for a long time.
+
+"Good," she said.
+
+Then she said, "Evelyn. Listen to me. I want you to remember something. Will you remember it?"
+
+"Yes, Grandmother."
+
+"Never wind it backwards."
+
+Evelyn looked at her.
+
+"Never," said her grandmother. "Not once. Not a quarter of a turn. And if you ever do, by accident or for any reason, any reason at all, you will wind it forwards again at once. At once, Evelyn. Before you do anything else. Do you understand?"
+
+"Yes," said Evelyn. "Why?"
+
+Her grandmother closed her eyes.
+
+"I'm tired," she said.
+
+"Grandmother. Why?"
+
+"I am very tired, Evelyn." The eyes did not open. "Ask me something else."
+
+Evelyn sat very still in the low chair with the watch in her hand.
+
+She had a great many questions. She had them in a column, in the back of her notebook, under a line. Why her mind had to be closed. What the lessons were for. Why Mother had said *my father* and stopped. Why her grandmother had gone still for four seconds over a boiled egg in August two and a half years ago when Evelyn said a boy looked at people as though he were checking the weather.
+
+She looked at her grandmother's face on the pillow, with the white hair spread out round it that somebody had brushed.
+
+She asked none of them.
+
+"Is there anything you want?" she said instead.
+
+Her grandmother's eyes opened again. They were very clear. For a moment they were exactly as they had always been, the eyes that had looked at Uncle Vernon in Privet Drive and made him sit.
+
+"The boy," she said. "Potter."
+
+"Yes?"
+
+"When you are in a room together. Where does he stand?"
+
+Evelyn did not understand the question.
+
+She answered it anyway, because she had been brought up to answer exactly what was asked.
+
+"Next to me," she said. "Usually. On my left, mostly. He doesn't do it on purpose. Or he says he doesn't. In a crowd he always ends up next to me. He says it's because I'm the only quiet thing in the room, and he can hear himself think." She stopped. "I don't know why that would matter."
+
+Her grandmother looked at her.
+
+And something happened in her face that Evelyn had never seen. It was not a smile. It was smaller than a smile and it went deeper, and it was there for perhaps three seconds, and then it went down again, slowly, like a lamp being turned low. It looked like a person who has been waiting a very long time for a letter, and has just heard it drop onto the mat, and does not need to go and read it.
+
+"Beside you," said her grandmother.
+
+"Yes."
+
+"Good," said her grandmother.
+
+She closed her eyes.
+
+She did not open them again that day, or the next. Healer Strout came at eleven and said she was sleeping, and that sleeping was good. Mother said sleep was good. Father came up the forty-one stairs at four, and stood in the doorway for a minute and a half, and went down again.
+
+Evelyn did not understand what had happened. She sat in the low chair and turned it over and could not make it come out. She had answered a question. It had been a strange question, but she had answered it truthfully, and her grandmother had been satisfied by the answer, in a way Evelyn had never seen her satisfied by anything, and had gone to sleep.
+
+She did not write it down. She did not know how.
+
+* * *
+
+In the morning she woke at half past six.
+
+She sat up in bed in her room in the west wing, in the cold, with the frost on the inside of the window. She took the watch off the bedside table, where it had lain all night beside her book. She opened the lid.
+
+Twenty turns of the crown. Forwards. The way she had done it every morning for three years and four months, without missing one.
+
+She counted them.
+
+One. Two. Three.
+
+At twenty she stopped, the way she always stopped. The watch ticked in her palm, small and steady and ordinary. The fine silver hand slanted between the seven and the eight, and did not move.
+
+Evelyn did not put it away.
+
+She sat on the edge of her bed in the cold and held it, closed, in her hand, for longer than she had ever held it in the morning before. She did not know how long. She did not count.
+
+Then she put it in her cardigan pocket, and buttoned the pocket, and went along the corridor and up the forty-one stairs.
+
+<->
