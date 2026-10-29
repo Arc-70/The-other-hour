@@ -807,3 +807,31 @@ REPEATED IMAGES AND PHRASES USED: "like a crack through a plate"; "the way a sto
 PLAN CHANGES: none
 NEXT: Chapter 25
 ```
+
+```handoff
+CHAPTER: Chapter 25: Backwards
+WORDS: 6,000
+SUMMARY: McGonagall returns the Firebolt, cleared, in early February 1994. On Saturday 5 February Harry beats Cho Chang and Ravenclaw, 230 to 30. That night, the one night he has not checked the Map, because he and Evelyn are in the study, Black gets into Gryffindor Tower and stands over Ron Weasley's bed with a knife. Harry concludes Black went looking for him where a Potter "ought" to be. Next evening Harry asks Evelyn to translate a passage he has marked in a brass-cornered book; she reads enough to see it is about a heart-reader killing a man, refuses, and confronts him: seven weeks and two days of planning, and asking her to read it is using her, not telling her. He retorts that she never told him her grandmother was dying. "Because she isn't going to kill anybody." Leaving, she tells him about the scratches; Harry looks at I WILL and knows whose they are without saying the name. He reshelves the book but keeps his list. They do not speak for eleven days. Then Cato brings word that Isadora has died. Evelyn finishes breakfast and goes to Arithmancy, returns from the funeral more closed than ever, and asks him not to ask. Alone at night she realises the only thing she ever knew her grandmother to fear was the watch. On Wednesday 2 March, in the study, she winds it backwards to find out why; Harry seizes her hand on the third turn and the fine third hand moves back one tick. The next stair is not there. They wake in the Chamber: the basilisk a clean skeleton, the study shut, their things gone, dust on the desk, I WILL still on the door. Myrtle does not know Harry. Outside hangs Educational Decree Number Twenty-Four, signed by Umbridge as High Inquisitor, dated 1995.
+CONTINUITY:
+- Firebolt returned Thursday 3 Feb. Match Sat 5 Feb: Cho Chang, fourth-year, small, quick, marks closely, has a nice laugh. Snitch at 3.23 p.m.
+- Harry had checked the Map every night since December except 5 Feb. Black on Gryffindor Tower that night; not on the Map afterwards. Snape counted Slytherin at about 1.43 a.m.; Harry was back three minutes before, in school robes. Snape's reading: fear about Lupin, larger, with cold satisfaction. Draco mocked that Black "doesn't even know which house you're in".
+- The marked book: big, black, brass corners, third shelf from the door. Evelyn refused to read beyond the opening and will never be "the person who looked it up". Harry reshelved it unopened. The list is still in his inside pocket.
+- Harry has now seen I WILL and privately knows it was Tom.
+- Eleven days of silence (Millicent: "like eating breakfast in a church"). Theo's worry about Harry growing.
+- ISADORA HALE DIED in her sleep on Tuesday 15 Feb 1994 at about 4 a.m.; letter in Corvin's hand via Cato (who did not bite). Funeral Saturday 19 Feb at the little church at Bromfield; lunch at the Hall for forty people. Marguerite cried throughout ("She was always all right, you know") and went upstairs at four. Corvin shook forty hands. Lucan put a hand briefly on Evelyn's shoulder at six, then went into the study. The east-wing window was opened for the first time since October.
+- Evelyn returned Monday 21 Feb on the afternoon train, in black, hair tied tight. Harry was "reading a notice about Gobstones" in the entrance hall. He apologised for the letters remark. Evelyn: does not want to talk about her grandmother, the funeral, or her family, possibly for a long time; asked him not to ask.
+- They resumed going to the study the Wednesday after; no talk of Black or Isadora.
+- Harry can now make an illusory coin spin and walk, end over end, across the desk.
+- THE WINDING: Wed 2 March 1994, about 10.45 p.m., in the study. Evelyn: "I want to know what she was afraid of." Three turns backwards; Harry's hand closed over hers on the third; the third hand moved back ONE TICK. Transit: no sound, no light, the missing stair; only her hand and the watch.
+- Arrival: the Chamber floor. The watch has STOPPED: second hand at twelve; the fine hand one tick back from its old place. Evelyn's face white (first time Harry has seen it so).
+- OTHER WORLD CHAMBER: basilisk is clean white bones. Study door shut; it opened for Harry as though meeting him for the first time and read him fully. Slytherin's books all present; Evelyn's cushion, flask and dictionary gone; Harry's notes and quill gone; fine undisturbed dust on the desk, no cup-ring, no handprints. I WILL present, W cracked.
+- Myrtle did not recognise Harry: "You look just like that horrible Potter boy. Only smaller." The other Harry visited only once, with "the bushy one and the ginger one", to brew a potion in a cubicle. Evelyn told her "We're nobody."
+- Frame outside the bathroom (pale pink wood, small pink bow, official stamp): Educational Decree Number Twenty-Four (no group of three or more may meet without the High Inquisitor's approval, on pain of expulsion), signed Dolores Jane Umbridge, High Inquisitor; dated 1995.
+RELATIONSHIPS:
+- Harry and Evelyn: first real argument; eleven days of silence; partial truce; now stranded together.
+- Harry and Black: still intent on killing him.
+THREADS TOUCHED: Sirius Black (Gryffindor Tower); the murder plan; Isadora's death; the watch; Tom's scratches; the other world.
+REPEATED IMAGES AND PHRASES USED: crowd "like heat off a road"; fear "like water coming up through a cellar floor"; "like eating breakfast in a church"; a drop of water "like a small bell"; "a second door, behind the first"; fear "like chairs"; the missing stair in the dark; dust on a thing "nobody has touched for a very long time".
+PLAN CHANGES: none
+NEXT: Chapter 26
+```
