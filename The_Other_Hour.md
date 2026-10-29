@@ -26602,3 +26602,563 @@ He held on to Cedric's hand.
 He did not let go of either.
 
 <->
+
+## Chapter 44: Equal Footing
+
+He hit the grass of the Quidditch pitch face down, with the Cup in one hand and Cedric's hand in the other, and he did not let go of either.
+
+The noise came down on him at once.
+
+It was the stands. It was three thousand people, and they had been waiting for an hour in the dark for somebody to come out of the maze, and somebody had, in a flash of light at the entrance, and they were cheering. He heard the band start up. He heard Bagman's magnified voice saying something about the winner. He felt it come down off the stands at him, all of it, excitement, delight, relief, and he lay in the grass with his face in it and did not move.
+
+Then it changed.
+
+He felt it change before he heard it. It went from the front of the stands to the back the way a wave goes along a beach, one row after another, and it was people seeing. People seeing that the boy on the grass was not getting up. People seeing that the other boy, whose hand he was holding, was not moving at all.
+
+The cheering stopped.
+
+It did not all stop at once. It stopped in pieces, here and there, a row at a time, and in the places where it stopped there was something else, coming up.
+
+It was grief.
+
+He had never felt grief arrive in that many people at once. He had felt it in a Great Hall when Dumbledore announced a death on the wireless, years ago, a Ministry man nobody knew. That had been a ripple. This was three thousand people understanding, one after another, faster and faster, that Cedric Diggory was dead, and every one of them feeling it, and every one of them feeling it in the same direction, at the boy on the grass, and it came down off the stands like the sea coming over a sea wall.
+
+He tried to turn it down.
+
+He reached for the door he always reached for and put his shoulder against it, the way Quirrell had taught him, and looked for the still place. He could not find the still place. He could not find the door. It went over him and through him and into every room he had, and he lay in the grass with Cedric's hand in his and he could not turn it off.
+
+"Harry. Harry."
+
+Somebody was pulling at him. Dumbledore. Dumbledore's hands, on his shoulders, turning him over.
+
+"He's back," said Harry. "He's back. Voldemort. He's back."
+
+He did not know whether he had said it or only thought it.
+
+"Harry, let go of him. Let go of his hand."
+
+He did not let go. He could not. He had said he would bring him back. He had said, in a churchyard, to a shape of smoke. *Don't leave me here.*
+
+And then there was a man running across the grass, a red-faced man with a scrubby brown beard, shouting a name over and over, and Harry read him before he reached them. He could not help it. He would never be able to help it.
+
+It was Amos Diggory.
+
+He read him arrive. He read him see. He read the thing that came up in Amos Diggory when he saw his son's face in the grass, and it was the thing that had come up in the tall boy on the steps in another world, when a man fell through a curtain. It had no word. Harry had words for nearly everything and he had no word for that.
+
+Harry let go of Cedric's hand.
+
+* * *
+
+He did not know how long it was before Moody found him.
+
+There were a great many people. There was Fudge, white, saying *What is it, what's happened*. There was Madam Pomfrey. There was Mrs Weasley somewhere, he could feel her, loud and frightened, pushing through. There was Dumbledore, standing over him, saying something to Fudge in a low hard voice that Harry could not hear.
+
+And then there was a hand on his arm, a gnarled scarred hand, and a voice like gravel saying "Come on, Potter. Come with me. Up you get," and he was on his feet, and it was Moody.
+
+He went with him.
+
+He did not think about it. He thought about nothing. He walked up the lawn towards the castle with Moody's hand on his arm and Moody's wooden leg clunking beside him, and behind him the grief of three thousand people went on coming down off the stands, and Moody was saying *it's all right, Potter, it's all right, come on, let's get you inside*, and his voice was very kind.
+
+Harry read him.
+
+He did it the way he read everybody, without deciding to, the way you breathe. He had been reading Moody all year.
+
+It was there. It was the thing that was always there, the fierce thing, the devotion, aimed at Harry, larger than it had ever been, so large tonight that it was nearly the whole of him. It had been there at the feast in September and in the office before the first task and at the staff table with a hip flask raised an inch. It wanted Harry to win. It had wanted him to win more than anybody in the castle had wanted anything.
+
+He had won.
+
+He had touched the Cup.
+
+And the devotion was not dimmer, or sorry, or worried, the way an old Auror's protectiveness would have been with the boy he wanted to win coming back from a maze with a dead friend's hand in his. It was brighter. It was blazing. It was pleased.
+
+Harry stopped reading it for a moment.
+
+He was walking up the front steps of the castle. He was very tired. He had held forty doors against forty winds for three seconds and he had nothing left, and his scar was burning, and the grief from the stands was still in every room of him. He stopped reading it because he was too tired to read.
+
+And then, because he could not help it, he looked at it again.
+
+He looked at its shape.
+
+He had felt that shape before. He had felt it somewhere he had not been able to place, three weeks ago, sitting on a bench in a courtroom that was not there. He had felt it in a thin straw-haired freckled boy of nineteen, chained in a chair, screaming at his father. Under the terror, very small and very hard. Fierce. Total. Aimed at nobody in the room. Aimed at somebody absent, somebody the boy would have died for.
+
+The same shape.
+
+The same devotion.
+
+Not for Harry. It had never been for Harry. It had been aimed past him all year, through him, at somebody standing behind him. It was aimed now, blazing, at a churchyard and a cauldron and a thing that had stood up in the steam.
+
+Harry was the gift.
+
+Moody had been looking at him all year the way you look at a parcel you have wrapped very carefully and are about to hand to the person you love most in the world.
+
+* * *
+
+He did not run.
+
+He thought about it afterwards. He thought that he should have run, up the stairs, away, anywhere. He thought that he was too tired, and that he was walking beside a man who had been an Auror for forty years, or who had been made to look like one, and that if he ran he would get as far as the next corridor.
+
+He thought that a boy who had just found out could not let it show.
+
+So he did not let it show. He had not let anything show since he was six. He walked up the marble staircase beside Moody with his face still and his hands at his sides and he read him, the whole way, and let him talk.
+
+"Did he come back, Potter? The Dark Lord? Did he?"
+
+"Yes," said Harry.
+
+"What happened? What did he say? Tell me."
+
+They went along the first-floor corridor. Moody opened his office door. The Foe-Glass was on the wall, with its shadowy shapes moving in it, never quite in focus. The office was full of strange things, a great many of them, Sneakoscopes and trunks and things that whirred. There was a large trunk in the corner with seven locks on it.
+
+Moody shut the door.
+
+"Sit down, Potter."
+
+Harry sat down.
+
+He told him. He did not have a choice. He told him about the graveyard, and the cauldron, and the bone and the flesh and the blood, and the Death Eaters coming. He told it flatly, the way Evelyn would have told it, and Moody leaned on the desk with both hands and listened with the ordinary eye and the blue one fixed on him, both, and the devotion in him went up and up and up as Harry talked, until it was blazing so brightly that Harry could hardly read anything else.
+
+"He forgave them?" said Moody. "The ones who never went looking? He forgave them?"
+
+"He said he'd reward the ones who were useful."
+
+Moody laughed.
+
+It was not Moody's laugh. Harry had heard Moody laugh, once or twice, a short hard bark in the corridor. This was something else. It was high and it was delighted and it came up out of him all at once, and as it came up the devotion went over the top of everything else in him, the way water goes over the top of a dam.
+
+"Useful," said Moody. "Useful. Oh, I have been useful."
+
+He came round the desk.
+
+"I put your name in that Goblet, Potter," he said. His voice had changed. It was still gravelly, still Moody's voice, but there was something else in it now, something younger. "Under a different school's name, so it would be a fourth. I've been steering you all year. I made Hagrid show you the dragons. I gave you the hint about playing to your strengths. I gave Longbottom the book about Gillyweed and I knew you'd go to him, because you always go to the person who'll help you without asking why. I cleared your path through the maze tonight. Stunned the French girl. Put the Imperius on Krum. I stood outside that hedge with my wand in it for half an hour, Potter, taking things out of your way, so that you'd get to that Cup first." He was very close now. "And you did. You got there. You and the Diggory boy. I didn't expect two of you. But it didn't matter."
+
+He drew his wand.
+
+"The Dark Lord didn't kill you," said Moody. "I'd have liked to know why. He'll want to know why. But I'll tell you what he'll want more." The blue eye was fixed on Harry. "He'll want the boy dead. And he'll want me to be the one who did it."
+
+Harry read him.
+
+He read the devotion, blazing, all the way down. He read the decision come up out of it, small and hard and bright, like a coin being turned over.
+
+He went for the gap.
+
+He did not have anything left. He had held forty doors for three seconds and he had nothing. But he had been taught by a man in a turban to watch for the moment and go into it, and he went into it, with nothing, with his hand on the wand in his pocket, and he got it halfway out.
+
+And the door blew in.
+
+* * *
+
+It blew in off its hinges. It hit the floor of the office with a crash that shook the Foe-Glass on the wall, and Moody was flat on his back on the floor with his wand flying out of his hand across the room, and Dumbledore was standing in the doorway with his wand out.
+
+Harry had never felt anything like it.
+
+He had felt Dumbledore closed, and Dumbledore open at the edges, and Dumbledore shocked at the word Concordat, and Dumbledore shut a door so hard Harry heard it. He had never felt Dumbledore angry.
+
+Dumbledore was not closed. He could not have been. It came off him the way heat comes off a fire you are standing too close to, through every door Harry had. It was so cold and so large and so absolutely furious that the whole office seemed to have gone a degree colder, and it was aimed at the man on the floor.
+
+McGonagall was behind him, white. Snape was behind her.
+
+And behind Snape, in the corridor, with her hands in her cardigan pockets and her face telling him nothing, was Evelyn.
+
+* * *
+
+He found out afterwards how it had happened.
+
+She had seen Moody come up the lawn with his hand on Harry's arm. She had been at the edge of the maze, still, at the south-east corner, in the dark under the stands, when Harry came back with the Cup, and she had come out from the corner and seen him on the grass and seen the crowd and seen Moody take him. And she had looked down at her notebook, at a line she had written in the dark by feel. *Moody. SE corner, outside. Wand in hedge to handle. Still. Head on one side, listening.*
+
+And she had gone straight to Dumbledore.
+
+She had pushed through the crowd on the pitch, which nobody noticed because nobody ever noticed her, and she had walked up to Dumbledore where he was standing over Cedric's body with Fudge, and she had held out the notebook, open, and said, *Professor Moody had his wand in the maze for half an hour, from the outside, and he's just taken Potter up to the castle.*
+
+Dumbledore had looked at the notebook.
+
+And Dumbledore had gone.
+
+* * *
+
+The man on the floor was changing.
+
+Harry watched it happen. Dumbledore had made him drink something, out of his own hip flask, and Snape had brought something else from his stores, a small bottle of clear liquid, and they had poured three drops of it into the man's mouth. And while they waited, his face changed.
+
+The scars went first. They smoothed out. Then the nose was whole. The grey hair went short and straw-coloured. The wooden leg fell off and a real leg grew in its place, and the magical eye popped out of its socket and rolled across the floor and an ordinary eye came in its place, and the man on the floor was thin and pale and freckled and about thirty, with a mop of straw-coloured hair.
+
+Harry knew him.
+
+He had seen him at nineteen in a chair with chains on its arms, screaming *Father, please*.
+
+"Crouch," said Snape. "Barty Crouch."
+
+"Good God," said McGonagall.
+
+Dumbledore went to the trunk in the corner, the one with seven locks, and opened them, one after another, and at the bottom of the seventh compartment, at the bottom of a pit, there was a man lying asleep, very thin, with a great many scars and a missing piece of nose and a wooden leg that was not there and an empty eye socket.
+
+The real Moody.
+
+Harry read him. He was there. He was far off and faint and starving and cold, very cold, the way you are cold who have been at the bottom of a pit in a trunk for nine months. But he was there.
+
+* * *
+
+The man on the floor told them everything.
+
+He told it because of the three drops of clear liquid. He told it in a flat dull voice, looking at the ceiling, and Harry stood against the wall of the office and read him the whole time.
+
+He told them that his mother had died in Azkaban in his place. That she had been dying anyway, and that she had begged his father, and that his father had loved her, and so they had swapped, with Polyjuice, and his mother had died in Azkaban as him and been buried as him. That his father had kept him at home for thirteen years under the Imperius Curse, under an Invisibility Cloak, watched by a house-elf called Winky.
+
+He told them that he had fought it. That he had fought it for years. That at the World Cup, sitting in the top box under his father's Cloak, he had been strong enough, for a moment, to take a wand out of the pocket of the boy sitting in front of him.
+
+Harry's wand.
+
+He told them about the Dark Mark, cast from the wood with a stolen wand, at the men who had marched and then run. He told them that the Dark Lord had come for him in the summer, and taken him from his father, and that they had captured Moody, and that he had been Moody all year, drinking Polyjuice every hour from a hip flask. He told them that his father had escaped the Imperius, in the end, and come to Hogwarts to warn Dumbledore, and that he had met him at the edge of the forest, with Krum and Harry.
+
+"I Stunned Krum," he said, to the ceiling. "Potter had gone for Dumbledore. My father was there. I had the Map. Potter's map. I'd been borrowing it out of his trunk at night since Christmas, and putting it back by morning. He never knew. I saw my father's name on it, coming out of the trees." His voice did not change at all. "I killed him. I turned him into a bone. I buried it in the paddock by Hagrid's hut."
+
+Nobody in the office said anything.
+
+Harry read him.
+
+He went down past the flat dull voice that the three drops had made, past the drug, into whatever was left under it, and there was the devotion. It was all there was. It was the floor of him. It was the same as in the chair in the courtroom and the same as on the stairs tonight. And under the devotion, at the very bottom, where Harry looked for the small old thing that did not agree, there was nothing.
+
+There was nothing about his father.
+
+Nothing about his mother either. He had said *she was dying anyway* the way you would say it was raining.
+
+Harry stood against the wall and thought about a thin stiff man in a courtroom building a wall of shame round a small old desperate love, stone by stone, until it closed over the top.
+
+He thought about what had been on the other side of the wall all those years.
+
+He thought that it had been this.
+
+"And the Cup?" said Dumbledore. His voice was perfectly quiet. "You made it a Portkey."
+
+"Yes."
+
+"To where?"
+
+"To my master," said Barty Crouch. And for the first time, under the flat voice, under the drug, something came up through him that was something other than devotion. Very small. Joy. "To the graveyard. Where he waited. To return him." He turned his head on the floor and looked at Harry with his ordinary pale eyes. "Did he come back, Potter? Did my master come back?"
+
+Harry did not answer him.
+
+* * *
+
+Dumbledore took him upstairs.
+
+He did not take him to the hospital wing. Madam Pomfrey wanted him, Harry heard her in the corridor, and Dumbledore said *in a while, Poppy, I need to speak to him first, it cannot wait*, in a voice that did not allow argument. He took him up the moving stairs behind the gargoyle, his hand very lightly on Harry's shoulder, and Harry let him.
+
+The office was dark except for the fire.
+
+Fawkes was on his perch. He opened his eyes when they came in, and looked at Harry, and Harry read him: the clean wind, very faint, and sorrow.
+
+There was a dog by the fire.
+
+It was a huge black dog, very thin, lying on the hearthrug in front of the grate. It got up when the door opened. It came across the office to Harry and stood in front of him and pushed its head against his stomach, once, very hard, and then it went back to the fire and lay down again, facing him, with its eyes on his face.
+
+Harry read it. It was the wave on the beach. It was all the way up and it was frightened, very frightened, and under the frightened there was the rage, enormous, aimed at a churchyard Harry had just left.
+
+"He came up from Hogsmeade as soon as he heard," said Dumbledore. "Sit down, Harry."
+
+Harry sat in the chair in front of the desk.
+
+Dumbledore did not go behind the desk. He pulled a second chair round, and sat down in it, facing Harry, close, with his long hands folded on his knees. He looked very old. He looked older than Harry had ever seen him, older than in the hospital wing with the four days, older than at the hut on the first of May.
+
+"Harry," he said. "I need you to tell me what happened after you touched the Portkey in the maze."
+
+Harry looked at him.
+
+"I know that it is a great deal to ask," said Dumbledore gently. "I know you are tired, and hurt, and that you have seen something nobody should see. But I need to know. Exactly what happened. All of it. Everything you saw, and everything you heard."
+
+"No," said Harry.
+
+* * *
+
+Dumbledore did not move.
+
+The dog by the fire lifted its head.
+
+"No," said Harry again. He heard his own voice. It was very quiet. It was the quietest it had ever been. "I don't think I will, sir."
+
+"Harry…"
+
+"I'll tell you what happened," said Harry. "In a minute. I will. But I want to tell you some other things first. Things that happened before. I've been keeping them for four years and I'd like to tell you them now, in order, while I'm too tired to stop myself." He looked at the old man in the chair. "Is that all right, sir?"
+
+Dumbledore looked at him for a long moment.
+
+"Yes," he said.
+
+* * *
+
+"The Stone was bait," said Harry.
+
+He did not raise his voice. He did not need to. The office was very quiet, and the fire was very low, and Fawkes and the dog were both looking at him, and so was Dumbledore.
+
+"In my first year. The Philosopher's Stone. You put it in the school, behind a three-headed dog and some chessmen and a riddle a second-year could solve, and the Mirror. And you went to London on a Friday when you hadn't been called to London. And Quirrell went down after it. And so did I." He looked at the fire. "And afterwards, in the hospital wing, you sat by my bed, and you told me a story about my mother's love, and you were pleased. I could feel it. You were pleased the way a man is pleased when the last piece goes exactly where he meant it to go. The Stone was bait, and you'd set it, and it had worked, and you were pleased."
+
+Dumbledore did not say anything.
+
+"And the story was wrong," said Harry. "About Quirrell."
+
+He had never said this to anybody but Evelyn. He had said it to her on a flat rock on the far side of the lake, two years ago, with the squid asleep in the shallows. He said it now.
+
+"He didn't die because he couldn't touch me. He didn't die because of my mother. He died because of me. He had his hands round my throat and I reached into him, the way I reach into everybody, and I found the thing at the bottom of him, which was how much he hated himself for what he'd let into his head, and I gave it back to him." He was very calm. "Larger. All of it. And he picked up his wand and put it to the back of his own head and said the curse. Because I made him hate himself. You told me it was the bravest thing he ever did." He looked back at Dumbledore. "It wasn't brave. It was me."
+
+The office was very still.
+
+Harry read Dumbledore. He was closed. He was closed all the way, smooth and complete, and Harry could not read anything at all. That was all right. He was not reading him to find out anything. He did not need to find out anything. He was telling him.
+
+"My second year," said Harry. "The whole school thought I was the Heir of Slytherin. They hexed me in the corridors. They flattened themselves against the walls. A boy called me *murderer* in his head on the stairs and I heard it. And you didn't stop it. You told me afterwards that a school's belief can't be ordered, only outlived. You were sorry it hurt." He looked at his hands. "You didn't think you should have stopped it."
+
+"Harry…"
+
+"The night they took Hagrid. I was under the Cloak, at the window. I read you. Lucius Malfoy was in that hut, triumphant, and Fudge was in it, ashamed, and Hagrid was going to Azkaban, and you were calm. You were calm the way a deep pool is calm on a still day. I wanted you to be frightened. You weren't anything."
+
+He went on.
+
+"My third year. I went missing for four days. When I came back you looked into my head, very gently, to check. And I gave you something that wasn't true. A wall and some water and a chocolate bar. I built it inside a real memory and I put it where your finger was and you believed it. You never once wondered." He looked up. "You did wonder. For about a second. You felt something closed. And then you decided not to."
+
+Dumbledore did not move.
+
+"And then I told you my godfather was innocent, and you believed me, and I asked if I could live with him, and you sent me back to Privet Drive. You gave me a reason about blood that I couldn't use. And Sirius has been living in a cave above Hogsmeade since February. Eating rats." He did not look at the dog. "The ordinary sort."
+
+The dog by the fire made a very small sound.
+
+"This year," said Harry. "My name came out of the Goblet. You asked me if I'd put it in, and I said no, and you believed me. I felt you believe me. And then I felt you be alarmed. And then I felt you decide to be resigned about it." He was very quiet now. "*There is nothing to be done.* I said, *you could stop this*. You said you couldn't."
+
+He looked at Dumbledore.
+
+"And then there was a Death Eater teaching Defence in your school for a year," said Harry. "Under your nose. Drinking from a hip flask every hour. Putting the Imperius on spiders in front of a class. Putting my name in your Goblet. Taking things out of my way in the maze tonight, so I'd get to a Cup that took me to a graveyard." He stopped. "I read him all year. I read him at the feast and in his office and at the staff table tonight. I read him wanting me to win more than anybody in the castle wanted anything. I thought he was an old Auror who'd decided to like me. I was wrong. I was wrong about what it meant." He looked at his hands. "So were you. You were wrong for a year. And you didn't find him out. Evelyn did, standing in the dark under the stands, because her grandfather told her to watch the edge of a maze."
+
+He did not say the next thing for a while.
+
+"And Cedric's dead," said Harry.
+
+He said it quite flatly.
+
+"He's lying on the Quidditch pitch with his eyes open. Because he took the Cup with me. Because I said *both of us, together*. Because he'd have got there first if a spider hadn't come out of the hedge, and he told me to take it, and I said no, take it together. His father ran across the grass. I read him. I don't have a word for what I read." He looked at the fire. "He was decent all the way down. I read him in a corridor in my third year and he was decent all the way down and it irritated me. I'd never met anybody who was decent all the way down."
+
+The office was completely silent.
+
+And then Harry said the last thing.
+
+He said it without raising his voice at all. He said it so quietly that he was not sure, afterwards, whether Dumbledore had heard it the first time.
+
+"You knew about the prophecy."
+
+* * *
+
+Dumbledore went still.
+
+Harry felt it. He could not read him. He was closed, all the way, smooth and complete. But Harry had been sitting across from him for twenty minutes, very close, with the fire between them, and he had been reading the edges of him, the way he had learned to read the edges in a Pensieve, and he felt the edges go still.
+
+They went stiller than they had at the word Concordat.
+
+"How," said Dumbledore, very quietly, "do you know about the prophecy, Harry?"
+
+"I heard it."
+
+"From whom?"
+
+"From a glass ball," said Harry. "In a room full of glass. In the Department of Mysteries. It rolled across the floor and a man in a mask stepped on it and it broke at my feet. And a woman came out of it, in shawls, with big spectacles. Professor Trelawney. In a voice that wasn't hers." He looked at Dumbledore. "Born at the end of July. To parents who'd stood up to him three times. Marked by him, as though he were marking an equal. Something in him he doesn't know about. And in the end one of them kills the other, because there isn't room in the world for both."
+
+He said it in his own words. He did not say it the way the voice had.
+
+"When?" said Dumbledore. His voice was not quite steady. Harry had never heard it not quite steady. "When did you hear this? Harry, nobody has entered the Hall of Prophecy in…"
+
+"In June nineteen ninety-six," said Harry. "In a world where I was in Gryffindor."
+
+Dumbledore did not say anything.
+
+"Last year," said Harry. "The four days. I wasn't in the Gloomy Dungeon. I was in another world. Evelyn's watch did it. It was her grandmother's, and her grandmother told her never to wind it backwards, and her grandmother died, and she wound it backwards because she wanted to know what her grandmother had been afraid of, and I grabbed her hand." He was very tired. "We were there for eight weeks. It was two years ahead. Umbridge was headmistress. You were gone. Voldemort was back, and the Ministry was saying he wasn't. And I was there. Another me. In Gryffindor. Fifteen. With Ron Weasley and Hermione Granger." He looked at the fire. "We got home through the Time Room. On the night of the battle there. The other me went to the Ministry with his friends because he thought Sirius was in danger. And Sirius came. That world's Sirius. And a witch on the steps by an arch hit him with a red light, and he fell through a curtain, and he didn't come back."
+
+The dog by the fire was very still.
+
+"I watched it," said Harry. "I heard the prophecy and I watched that, and then I came home, and you looked into my head and I gave you a chocolate bar."
+
+He stopped.
+
+"And there's a room under the Chamber of Secrets," he said, "behind the statue's feet. It was Slytherin's. It only opens for somebody who reads hearts. I've been going there since October nineteen ninety-three. I learned to read thoughts there, and to make people see things that aren't there. That's how I got past the dragon. That's how I got out of the graveyard tonight." He looked at Dumbledore. "There are scratches on the door. *I WILL*. Tom made them. He couldn't open it."
+
+He did not say anything else.
+
+He did not need to. It did not matter any more what Dumbledore knew. He had kept it all for four years, in a ledger in his head, one line at a time, and he had laid it all out on the floor of the office between them, in order, and it was out now, and he did not care.
+
+He looked at the old man in the chair.
+
+Dumbledore looked back at him.
+
+And then Harry felt it. Very gently, at the very edge of him, the way he had felt it in a hospital bed in March of last year. A finger, laid on a door, to see whether it was shut.
+
+Dumbledore was reaching for his mind.
+
+He was doing it to check. Harry knew that at once. He had just been told a thing that could not be true, by a boy who had lied to him with the inside of his own head before and been believed. He was reaching, very gently, to see.
+
+Harry did not close.
+
+He did not build a wall and some water and a chocolate bar.
+
+He opened the door himself, all the way, and he pushed.
+
+* * *
+
+He gave him the graveyard.
+
+He did not choose what. He did not shape it, the way he had shaped the wall and the water. He took the whole of it, everything he had, all of it, the way he had taken the other Sirius's love on a lake shore and pushed it out into the night. He took it and made nothing larger, because nothing needed to be larger.
+
+He pushed it in.
+
+The churchyard. The yew. The house on the hill. The bundle, cold and pleased. *Get rid of the spare.* Cedric's surprise, and then the place where Cedric had been. A headstone with a name on it. A knife. A hand, given. His own blood in a phial. The white light. The thing standing up in the steam, and the pleasure, all the way down, nothing in it that had ever been a person. Forty masked men kneeling. *There we are.* A long white finger on his scar and his own scream. The curse that made him the spider on the desk. The gold thread. His mother's voice saying *stay on your feet, love*. Forty doors and forty winds. *That is not a spell. That is a Path.* A warm hand in the grass.
+
+All of it. Every second.
+
+And the thing under it, which was what he had felt, which was the worst part. He gave him that too.
+
+Dumbledore could have closed.
+
+Harry felt that, as he pushed. He felt the old man's mind under his, and it was enormous, much larger than his own, and it was very strong. It could have shut. It could have shut the way it had shut at the word Concordat, the door slamming in the wind, and the graveyard would have broken against it and gone nowhere.
+
+It did not shut.
+
+It opened, and let it in.
+
+* * *
+
+Albus Dumbledore sat in a chair in his own office, very close to a boy of fourteen, and let a graveyard in.
+
+He had been a Legilimens for ninety years. He had been inside the minds of Ministers and murderers and children and a great many people who had not known he was there. He had been inside the mind of a sixteen-year-old in an orphanage in London, once, a very long time ago, very briefly, and had come out of it and gone for a walk along the river and not come back for some hours.
+
+He had never had a mind come into his.
+
+It came in all at once. Nothing like a memory, carefully lifted out and laid in a basin. A night. It was the whole of a night, from inside, and it came in with everything it had in it, and the thing it had most in it was what the boy had felt.
+
+Dumbledore felt it.
+
+He felt the bundle, cold and pleased, and a boy's voice saying *get back to the Cup*. He felt the surprise, the plain surprise, of a decent boy looking up at a stranger, and then the place where he had been. He felt a knife. He felt a scream go out of himself that he had not screamed since he was very small. He felt forty men kneeling, and a voice, and what was in the voice, and what was not.
+
+He felt, under it all, the way a fourteen-year-old feels a thing for which he has no word.
+
+And he felt something else. He felt it come in under the night and stay there after the night had passed through him. Not the graveyard. The boy. It was what the boy had done, just now, in this office, to him. Opened his own door. Pushed.
+
+He knew what it was.
+
+He had seen it twice before in his life. He had seen it once in a young man on a hill above Godric's Hollow, in the summer, laughing, with the sun in his hair. He had seen it once, much later, in Prague, in a room full of old people who had been told they were the last of something. He had felt it in himself, once, at seventeen, in a garden, with a twig in his hand that had been a sparrow a moment before.
+
+A First Step.
+
+Not the first. The first had been in a churchyard, with forty minds. Or in front of a dragon. Or on a lake shore with a stag. This was not the first. But it was a Step. It was a Walker, walking. Into his mind. And he had not been able to stop it, because he had not wanted to.
+
+He sat in his chair and thought about the boy.
+
+He thought about four years. He thought about a ledger, laid out on his own floor, one line at a time, in order, without a single raised voice. He thought about a Stone and a Mirror and a hospital bed. He thought about how pleased he had been. He thought about a hut, and calm. He thought about a wall and some water and a chocolate bar, believed, and the one second of puzzlement he had felt and had decided, quite deliberately, to put away.
+
+He thought: *I have been managing him for four years.*
+
+He thought: *and he has been managing me.*
+
+He thought about a boy of eleven, in an orphanage in London, in a small bare room, who had looked up at him and said *you can't fool me*, and been right.
+
+He thought about a boy of sixteen on a hill in the summer, laughing.
+
+He thought about them both, sitting in his own chair, with this boy in front of him. He was ashamed of the thought. He was ashamed of it at once and very deeply, because this boy was not either of them, and he had just been shown, from inside, a night in which this boy had felt more grief for a boy he barely knew than the boy in the orphanage had felt for anybody in his life.
+
+He kept the thought anyway.
+
+He did not put it away. He had put a great many things away, in ninety years. He had put away a puzzlement in a hospital bed in March of last year, and he had put away an alarm at a Goblet, and he had put away the feeling, on a Friday in June three years ago, that a boy might go down a trapdoor after the bait. He had put things away all his life and been very good at it.
+
+He kept this one.
+
+He kept it the way you keep a stone in your pocket, so that you will feel it every time you put your hand in. He thought he would feel it for the rest of his life.
+
+* * *
+
+Harry let go.
+
+He let go of the push and sat back in his chair, and he was empty. He had nothing left at all. He was more tired than he had been in a bare room with two narrow beds in another world.
+
+He read Dumbledore.
+
+He could. The old man was not closed. He was sitting in his chair very close, with his hands on his knees, and he was not closed, and for the first time in four years Harry could read all of him.
+
+It was respect.
+
+That was the first thing. It was very large and very plain and it was aimed at Harry, and nothing like the respect of a teacher for a pupil who has done well. It was the respect you have for somebody who has just done to you a thing you did not think anybody could do.
+
+Under the respect, grief.
+
+It was enormous. It was very old, older than anything Harry had felt in him, older than the calm at the hut, as old as Aberforth's bitterness. Some of it was for Cedric. Some of it was for the graveyard. Some of it was for a great many people Harry did not know, a long time ago. And some of it, a large part, was for Harry himself. For four years. For a ledger.
+
+And under the grief, a long way down, very quiet, so quiet that Harry nearly missed it and went back for it to be sure, there was a third thing.
+
+It was fear.
+
+Not fear of Voldemort. Not fear for Harry. It was aimed at Harry, at the boy in the chair in front of him, and it was very small, and it was very old, and it was the fear of a man looking at something he has seen before and does not ever want to see again.
+
+Harry noted it.
+
+He did not say anything about it. He filed it, the way he had filed everything for four years, in the place where he kept the ledger. A new line. Not under the others. Beside them.
+
+*He's afraid of me.*
+
+* * *
+
+"Harry," said Dumbledore.
+
+His voice was very quiet. It was steady again.
+
+"I am sorry," he said. "For the Stone, and the hospital wing, and the hut, and the Goblet, and the four years." He looked at Harry. "I will say it once. If I said it more than once it would become something I was saying to make myself feel better, and you would know."
+
+Harry did not say anything.
+
+"I knew about the prophecy," said Dumbledore. "Yes. I heard it made. In a room above the Hog's Head, fifteen years ago, from a woman who had come to apply for a post. I have known it every day since. I did not tell you, because you were a child, and I thought that a child should not have to carry it. I was wrong about that, as it turns out, among a great many other things." He folded his hands. "You have been carrying it for over a year without my knowing. You have been carrying a great deal more than that."
+
+He was quiet for a moment.
+
+"You are walking a Path," he said.
+
+Harry looked at him.
+
+"You know that already. Somebody has told you. Elias Varga, I imagine." The very faintest movement went across his face. "It is the Path of Illusion. It is a very rare Path and a very dangerous one, and you have walked further along it at fourteen than most Walkers do at forty. What you did in that graveyard was a Walker's work. What you did just now, to me, was a Walker's work." He paused. "I know, because I walk one too. I have walked it since I was seventeen. It is called Transmutation, and it has cost me a great deal, and it will cost me more."
+
+The fire cracked.
+
+"I have spent four years protecting you," said Dumbledore. "I have done it badly, and with my own purposes, and I have kept things from you that you had every right to know. I do not propose to do that any longer. I could not if I wished to. You would know." He looked at Harry over his half-moon spectacles. "I should like, instead, to teach you. If you will let me. Not to keep you safe. I do not think I can keep you safe. To teach you what I know about the road you are on, so that you can walk it with your eyes open."
+
+He stopped.
+
+He did not say anything else. He did not say *will you*, or *what do you think*, or *I hope you will consider it*. He did not lean forward, or smile, or do anything with his hands.
+
+He sat in his chair with his hands folded on his knees and the firelight on his face, and he looked at Harry, and he waited.
+
+* * *
+
+The dog got up.
+
+It got up off the hearthrug, and it was not a dog any more, and Sirius Black was standing in front of the fire, thin and wild and filthy, with his hair down past his shoulders and his face working.
+
+He came across the office in three strides and dropped to his knees in front of Harry's chair and put his hands on Harry's shoulders, hard, the way Mrs Weasley had in the side room that morning, a hundred years ago.
+
+"Merlin," said Sirius. His voice cracked straight across the middle. "*Merlin*, Harry. Fourteen. You're fourteen."
+
+Harry looked at him.
+
+"You stood in a graveyard," said Sirius. "On your own. With him. And forty of them. And you got out. And you brought that boy home." His hands were shaking on Harry's shoulders. "And then you came up here, and you sat in that chair, and you made Albus Dumbledore sit still for twenty minutes and listen to you." He laughed. It was the bark, and it broke in the middle, and his eyes were wet. "James couldn't make Dumbledore sit still for twenty *seconds*. I never managed it in seven years. Lily managed it once and he gave her fifty points and an Outstanding."
+
+Harry read him. It was all there. All of it, at once, the wave on the beach, the rage, the grief at the bottom for a man who had been dead for thirteen years. And on top of it, all over it, so loud that it drowned everything else, there was only one thing, and it was aimed straight at him.
+
+"You did well," said Sirius roughly. "You did better than well. You hear me? You did everything. Now for God's sake sit back in that chair before you fall out of it. I've got you."
+
+Harry sat back.
+
+Sirius did not let go of his shoulders. He stayed on his knees in front of the chair with his hands there, and Harry did not move away, and for a while nobody said anything at all.
+
+Dumbledore did not say anything either.
+
+Harry looked at him over Sirius's shoulder.
+
+The old man was still sitting in his chair, with his hands folded on his knees, and the firelight on his face, exactly as he had been. He had not moved. He had not spoken. He had not filled the silence, or smiled, or said *well*, or *now, Harry*, or *I think perhaps*.
+
+He was waiting.
+
+He had asked Harry something, and he was waiting for the answer, and he was not going to say anything else until Harry gave it.
+
+Harry had known Albus Dumbledore for four years. He had sat across from him in a hospital wing and a room off the Great Hall and this office. He had been told kind stories and wise answers and reasons he could not use. He had been looked into and steered and set down where he was wanted, like a piece on a board.
+
+He had never once, in four years, been waited for.
+
+<->
