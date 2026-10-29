@@ -1413,3 +1413,33 @@ REPEATED IMAGES AND PHRASES USED: grief "like the sea coming over a sea wall"; "
 PLAN CHANGES: none
 NEXT: Chapter 45
 ```
+
+```handoff
+CHAPTER: Chapter 45: Fudge
+WORDS: 5,249
+SUMMARY: At ten past two Harry tells Dumbledore yes ("In the summer. When you are rested.") and sleeps nine hours in the hospital wing with Sirius as a dog on the floor. He wakes to shouting: Fudge brought a Dementor into the castle and it has Kissed Crouch Jr. Harry reads Fudge's fear gone hard into refusal, with relief under it. Fudge denies everything (Lucius was cleared, the boy is traumatised). Dumbledore demands the Dementors leave Azkaban's command and envoys go to the giants; when Fudge refuses, Dumbledore says their ways part, Ministry and school each to its own. Fudge throws down the thousand Galleons. Snape shows his Dark Mark, black and raised, and agrees to go back; Harry reads his dread and, under it, the old hurting thing. The Slytherin common room is frightened, with secret gladness in a few; Draco is afraid for his father, pleased, and afraid of not being good enough. Theo comes to Harry's bed that night; Harry moves over; Theo sits with his back to him in silence until dawn. On the lake rock Evelyn confirms her uncle Thaddeus was in the churchyard; her father will know and say nothing; her mother will cry. She talks about going home and passing the salt, and asks whether Theo is all right. Grindelwald has written (via Varga, Tuesday) asking to meet the boy who came back. Harry: "Not yet." Evelyn: "That's what I told him." She reveals the Rita Skeeter jar: she has held Rita since spring; three pieces sent to her for approval, the third calling Harry disturbed and deluded; the deal ends with the school year. Harry laughs for the first time in a week. At King's Cross he gives the thousand Galleons to Fred and George. Vernon is at the barrier, his fear larger. Theo asks him to write; Evelyn sets their rhythm: every eleven days, "You're always late. You're just not late to me." At Privet Drive, half asleep, a feeling comes in through his scar that is not his: glee.
+CONTINUITY:
+- Harry's yes to Dumbledore at 2:10 a.m.; lessons begin "in the summer, when you are rested".
+- Crouch Jr KISSED by Fudge's Dementor; no testimony possible.
+- Fudge: denial; Lucius "cleared thirteen years ago", on the Board of Governors; the boy "traumatised". Dumbledore's demands: remove Dementors from Azkaban, envoys to the giants. The break: Ministry and school go separate ways (rephrased, not canon wording).
+- The thousand Galleons thrown on the bed; given to FRED AND GEORGE at King's Cross ("The Potter Puke Pastille" joke). Harry read a debt in them going the other way, from the Map in third year.
+- SNAPE: Mark black and raised (Wormtail's had been dark red in the churchyard); Harry read dread and the old hurting thing.
+- Draco by the far window with Crabbe and Goyle.
+- THEO: came to Harry's bed the first night back in the dormitory; Harry moved over; Theo sat on the edge with his back to him until the window went grey; not a word spoken. Theo knows Harry knows about his father.
+- EVELYN: visited the hospital wing twice; said nothing about the churchyard for a week. Thaddeus confirmed ("there we are" when he knelt). Sugar mice and "Evie" as a child. Corvin will shake Fudge's hand on Monday. Marguerite will cry. Evelyn goes home on Saturday and will "pass the salt". Stone skipped three times, as always.
+- GRINDELWALD'S LETTER via Varga, Tuesday: he read the Prophet between the lines; wants to meet "the boy who came back from a graveyard"; "a hundred and eleven and does not have fifteen more". Harry: "Not yet." Evelyn told him the same.
+- RITA: Evelyn holds her (the jar) since spring; three articles sent to Evelyn for approval; the third (disturbed and deluded) stopped; the deal ends at end of school year (so Rita is free for summer). Harry: "I signed for the jar. I'd like that noted." "It's noted."
+- Letters: Evelyn every eleven days. Theo: "write".
+- VERNON at the barrier; his fear larger than before.
+- ENDING: Privet Drive, half asleep; a feeling through the scar, not his own, from far away: GLEE. First scar link of this kind.
+RELATIONSHIPS:
+- Harry and Dumbledore: teaching agreed for summer.
+- Harry and Theo: a silent night that holds them; Theo knows Harry knows.
+- Harry and Evelyn: Grindelwald's request deferred together; the Rita jar shared; the eleven-day letters.
+- Harry and the twins: the debt from the Map repaid the other way.
+- Harry and Fudge: open enemy-in-the-making.
+THREADS TOUCHED: the Ministry's denial (start); Snape as spy; Death Eaters' sons; Grindelwald's wish to meet Harry; Rita (pending, free from summer); the scar link (plant for Year Five); letters; Dumbledore's lessons.
+REPEATED IMAGES AND PHRASES USED: fear gone hard "the way water turns into ice"; Mark "like a burn that has not healed"; news "like a draught under a door"; "a boy at the edge of a drop"; the scar "as though... a window that somebody on the other side had just opened"; warmth through a stone floor from a fire below.
+PLAN CHANGES: Rita's silence is Evelyn's jar deal, ending with the school year rather than Hermione's.
+NEXT: Chapter 46 (Book 5, Year Five)
+```

@@ -27162,3 +27162,425 @@ Harry had known Albus Dumbledore for four years. He had sat across from him in a
 He had never once, in four years, been waited for.
 
 <->
+
+## Chapter 45: Fudge
+
+He said yes at ten past two in the morning.
+
+He said it in the chair in front of the fire, with Sirius still on his knees in front of him and the old man still waiting, and his voice came out so hoarse that he had to say it twice. Dumbledore did not smile. He did not say *good*, or *I am glad*, or anything that would have made it into something Harry had been steered towards.
+
+He nodded once.
+
+"In the summer," he said. "When you are rested. Not before." He stood up. "Now, Poppy has been outside that door for an hour and a half, and I think she may have begun to take it personally."
+
+* * *
+
+Madam Pomfrey gave him a Dreamless Sleep Potion and put him in the bed at the end of the hospital wing, by the window, and Sirius lay down on the floor beside it as a dog, and Harry slept for nine hours without dreaming anything at all.
+
+He woke because people were shouting.
+
+He knew one of the voices before he opened his eyes. It was high and indignant and frightened, and it was the Minister for Magic, and it was in the corridor outside the hospital wing, and it was saying *I had to, Albus, you must see that, I had to, for my own protection.*
+
+Harry read him through the door.
+
+He did not have to try. It was enormous. It was the fear Harry had felt in a parlour in the Leaky Cauldron two summers ago, aimed at the door, and in the Three Broomsticks, aimed at a name. It had been old then, and spread out at the bottom, like water under a floor. It was not spread out now. It had come up. It had come up all at once, in the night, through every floor of Cornelius Fudge, and it was so large and so close to the top that there was nearly nothing else in him.
+
+And it did not make him run.
+
+Harry noticed that above everything else. He had felt fear like that in a great many people, in a churchyard, on a moor, on a train. It made people run, or kneel, or scream. It did not do any of those things to Fudge. It had gone hard in him. It had gone so hard and so large that it had turned into something else, the way water turns into ice when it is cold enough.
+
+It had turned into no.
+
+* * *
+
+They came in, a crowd of them. Fudge in his pinstriped cloak and his bowler hat. McGonagall, white with fury. Dumbledore. Snape.
+
+Mrs Weasley was already there. She had been by Harry's bed since seven, Madam Pomfrey said afterwards, and Bill with her, sitting in a chair with her hands in her lap, not saying anything, and when Harry woke she put her hand on his and kept it there.
+
+"He was dangerous," Fudge was saying. "He was a madman, Minerva. A murderer. He'd killed his own father. Who knows what he might have…"
+
+"He would have testified," said McGonagall. Her voice was shaking. "He would have stood in front of the Wizengamot and told them exactly how the Dark Lord came back. And you brought that *thing* into the castle and let it…"
+
+"I am the Minister for Magic! I decide what…"
+
+"What happened?" said Harry.
+
+They all looked at him.
+
+He was sitting up in the bed. Sirius, on the floor, had got up too, a great black dog with its hackles raised, and was standing very close to the bed with its eyes on Fudge.
+
+Dumbledore told him.
+
+He told him quietly. Fudge had come up from the Ministry in the night, having been told that a Death Eater had been caught at Hogwarts. He had insisted on bringing a Dementor with him for his own protection. And when he had walked into Moody's office, where Barty Crouch Jr was being kept, the Dementor had gone in with him, and before anybody could stop it, it had bent over the man on the floor and put back its hood.
+
+"He's alive," said Dumbledore. "If you can call it that. There is nothing left in him. He will not testify. He will not say anything, ever again."
+
+Harry looked at Fudge.
+
+He read him. The fear, gone hard, gone to *no*. And under it, very small, a long way down, there was something else. It was relief. It was the relief of a man who has had a dangerous thing taken out of his hands and does not have to decide what to do with it any more.
+
+"He's back," said Harry. "Voldemort. I saw him. He came back. There was a cauldron. Wormtail cut off his hand. They took my blood…"
+
+"Now, Harry…" said Fudge.
+
+"There were Death Eaters. I saw them. I can tell you their names. Lucius Malfoy. Nott. Crabbe. Goyle. Macnair…"
+
+"Lucius Malfoy," said Fudge, and he laughed. It was a very short laugh, and it had nothing in it at all. "Lucius Malfoy was cleared, Harry. Thirteen years ago. He is one of the most respected wizards in the country. He sits on the Board of Governors of this very school. He has given a great deal of money to…"
+
+"He was in the graveyard."
+
+"A boy," said Fudge, and he turned to Dumbledore, and his voice went up. "A boy who's just come out of a maze, Albus, who's been through a terrible shock, who's seen another boy die, who's had I don't know what done to him by a lunatic for a year. Of course he believes it. Of course he thinks he saw it. But you can't seriously…"
+
+"I can," said Dumbledore. "And I do."
+
+* * *
+
+Harry did not remember all of it afterwards. He remembered pieces.
+
+He remembered Dumbledore standing at the end of his bed, very tall, very calm, with nothing in his face at all, telling the Minister for Magic what needed to be done. Remove the Dementors from Azkaban, because they would go over to Voldemort the moment he asked. Send envoys to the giants, now, before he did. Tell the country. Tell it today. He remembered Dumbledore saying all of it in a voice that did not change, and Fudge getting redder and redder, and the fear in him getting harder and harder, until it was like a wall.
+
+He remembered Fudge saying *you would have me start a panic*.
+
+He remembered Dumbledore saying, very quietly, *I would have you start a war, Cornelius, because one has already started, and you are the only person in this room who does not know it.*
+
+And he remembered Fudge saying no.
+
+He said it in a great many words. He said that it was preposterous, and that it was the ravings of a madman and a traumatised child, and that he would not have the Ministry made a laughing stock, and that Dumbledore had been wrong before, and that there was no proof. But under every word, Harry read the one thing, very large and very hard, and it was the same thing every time.
+
+*No.*
+
+"Then our ways part here," said Dumbledore.
+
+He said it quite simply. He did not raise his voice. He looked at Fudge across the end of Harry's bed, and Harry read him, because he was open, and he had been open since the office, and he did not seem to be trying to close.
+
+He was sad. That was the top of him. He was very sad, and very tired, and under that, quite hard, quite steady, there was something that had decided.
+
+"You have your Ministry," said Dumbledore, "and I have my school, and between them, Cornelius, they will have to do what they can."
+
+Fudge looked at him for a long moment.
+
+Then he took a heavy bag out of the pocket of his cloak, and threw it onto the end of Harry's bed, where it landed with a clink.
+
+"Your winnings," he said, to Harry, without looking at him. "A thousand Galleons. There should have been a ceremony. In the circumstances…"
+
+He put on his bowler hat and went out.
+
+* * *
+
+Dumbledore turned to Snape.
+
+He had not looked at Snape since they came in. Snape had been standing by the door with his arms folded and his face like stone, and Harry had read him, because he could not help it. He was closed, the way he always was, smooth and complete. But around the rim of him, the way there was always an edge, there was something.
+
+It was dread.
+
+It was very old, and very cold, and it was not like the fear in Fudge. It had not gone hard. It was the dread of a man who has known for a long time that a day would come, and has hoped it would not, and has heard it knock on the door.
+
+"Severus," said Dumbledore. "You know what I must ask you to do."
+
+Snape did not say anything.
+
+He unfolded his arms. He pulled back his left sleeve, slowly, to the elbow, and held out his forearm, and there was a mark on it. It was a skull with a snake coming out of its mouth. Wormtail's had been dark red in the churchyard. This one was black, and it was raised, like a burn that has not healed.
+
+"It has been growing clearer all year," said Snape. "Since the summer. It burned last night. I felt it." He looked at Dumbledore. "He will be expecting me."
+
+"I know."
+
+Harry read him.
+
+And under the dread, very deep, for a moment, Harry felt something he had felt in Snape once before, in a Potions dungeon on a Friday morning in his first year, the first time he had ever read him. The thing under the loathing. The hurting thing that had been aimed at Harry and not at him.
+
+It came up, just for a second. It was aimed at Harry again. And it was aimed past him.
+
+Then it went down.
+
+"Then I will go," said Snape.
+
+He went.
+
+He went out of the hospital wing with his black robes behind him, and he did not look at Harry, and Harry read him all the way down the corridor until he could not any more, and the dread was there the whole way, cold and old and real.
+
+Harry had been frightened of Snape for a year.
+
+He found, lying in the hospital bed with a thousand Galleons on his feet and Mrs Weasley's hand on his, that he did not know any more what he was.
+
+* * *
+
+The Slytherin common room was very quiet.
+
+It was the night after. Harry came down from the hospital wing at eight in the evening, with Madam Pomfrey's permission and Sirius gone to wherever Dumbledore had sent him, and he came in through the stone wall, and the common room was full.
+
+Nobody cheered.
+
+He read them. He had known what he would find and he read them anyway. It was the opposite of Hallowe'en, and the night of the dragon, and every night the room had turned to him and roared. It did not turn to him. It turned away. It went quiet in a ring round him as he came in, the way the entrance hall had gone quiet in his third year when he stepped out in front of Ron Weasley, and in the quiet there was fear.
+
+Not of him. Not mostly.
+
+He went down into it and it was everywhere, in every one of them, the same, and it was the fear of children who have been told something at breakfast that their parents had always said would never happen, and who know, every one of them, whose parents were in a churchyard last night. Or whose parents might have been. Or whose parents had friends who were.
+
+And in some of them, under the fear, there was something else.
+
+He found it in a sixth-year by the fire, a boy whose name he did not know. He found it in two girls on the sofa. He found it, very faint, in a great many places round the room, and it was small and secret and it was trying not to be there.
+
+It was gladness.
+
+It was the gladness of people whose families had been waiting thirteen years for something, and had got it.
+
+Harry read Draco Malfoy.
+
+Draco was by the far window, with Crabbe and Goyle, and he was not looking at Harry. He was looking at the lake. He was frightened, very frightened, more frightened than Harry had ever felt him, and it was fear for his father, and for himself, and for what came next. And under the fear, cold and small and very hard, there was something pleased. And under the pleased, under all of it, at the very bottom, there was the thing that was always at the bottom of Draco Malfoy, which was the fear of not being good enough. Only it was aimed somewhere new now. It was aimed at a churchyard. At a man who had stood with his father on the grass and been forgiven, because he would be useful.
+
+Harry did not stay.
+
+He went up to the dormitory. He drew the curtains of his four-poster round him. He lay on his back in the green dark and did not read anything.
+
+* * *
+
+Theo came at midnight.
+
+He did not knock on anything, because there was nothing to knock on. He pulled the curtain of Harry's four-poster back about six inches and stood in the gap, in the dark, in his pyjamas, and said nothing.
+
+Harry sat up.
+
+He read him.
+
+He had read Theo every day for four years. He had read the calm, settled sadness that lived at the bottom of him like water in a well, and the small sharp care that had been in him since the chessboard, and the curiosity, bright, wanting nothing back. He had read the room with the curtains drawn and a game nobody finished.
+
+He read him now and it was none of those.
+
+It was knowing.
+
+Theo knew. He knew his father was in the churchyard. He had known since the morning, since the news had come down the Slytherin table at breakfast like a draught under a door. He knew that Harry had been there too. And he knew, because he had sat next to Harry for four years and watched him read people across tables, that Harry had seen his father kneel on the grass, very old, very slowly, with a hand on a gravestone, and had read him.
+
+Theo knew that Harry knew.
+
+And under the knowing, there was something Harry had never felt in Theo and did not have a name for. It was the feeling of a boy standing at the edge of a very long drop in the dark, who does not know whether the person in front of him is going to put out a hand or step back.
+
+Neither of them said anything.
+
+Harry thought about what to say. Many things came to him. He thought about saying *he was thinking about you*, which was true, which was the truest thing he had read in a churchyard full of masked men. He thought about saying *I'm sorry*. He thought about saying *it isn't your fault*.
+
+He did not say any of them.
+
+He did not know which of them Theo wanted. He did not know if Theo wanted any of them. He could read Theo all the way down, every floor, and he did not know, because there was nothing in Theo that wanted anything. There was only a boy at the edge of a drop.
+
+Harry moved over.
+
+He moved over on the bed, to the far side, against the curtain, and left the near side empty.
+
+Theo looked at the empty side of the bed for a long moment.
+
+Then he sat down on the edge of it, with his back to Harry, with his hands on his knees, in the dark, the way he had sat on the edge of his mother's bed when he was seven, waiting for her to move.
+
+They sat like that until the window went grey.
+
+Neither of them said anything at all.
+
+* * *
+
+Evelyn found him on the lake shore on the last afternoon of term, on the flat rock under the beech on the far side, where the squid slept in the shallows.
+
+She had visited the hospital wing twice. She had been in the common room. She had sat at breakfast across the table from him every morning for a week, and passed him the marmalade, and eaten her egg and her toast in four and her tea last, and she had not said anything about the churchyard, because he had not.
+
+She sat down on the rock beside him.
+
+She was quiet for some time. She looked at the water. The sun was going down behind the castle and the lake was gold and very still.
+
+"My uncle was there," she said. "Wasn't he?"
+
+"Yes."
+
+"You heard him."
+
+"He said *there we are*. To the man next to him. When he knelt."
+
+Evelyn was silent for a while.
+
+"I knew it was him at the World Cup," she said. "I told you in March. I knew before that. I think I've always known. He used to come to the Hall when I was small and bring me sugar mice and call me Evie and look at Grandmother's door as though he wanted to know what was behind it." She picked up a flat stone from the rock and turned it over. "Father will know. Father always knows. He won't say anything. He'll go to the Ministry on Monday and shake hands with Fudge and say how dreadful it all is."
+
+"Yes," said Harry.
+
+"Mother will cry."
+
+"Yes."
+
+"What will you do?" Harry asked.
+
+"Go home on Saturday. Sit at dinner across from Father, who will know, and pass him the salt, and talk about the weather." She looked at the stone in her hand. "That is what we do in my house. We are very good at it."
+
+"You could not go."
+
+"I could not," she agreed. "And then they would wonder why, and Father would look at me across the table the way he looks at a ledger that does not add up. No. I'll go. I'll pass the salt." She turned the stone over again. "Is Theo all right?"
+
+"No."
+
+"Does he know you know?"
+
+"Yes."
+
+"Good," said Evelyn. "That's better. It's worse when they don't know you know. Then you have to carry both halves of it by yourself, and so do they, and nobody puts anything down."
+
+"He sat on my bed all night," Harry said. "With his back to me. Neither of us said a word."
+
+"Then you said the right thing," said Evelyn.
+
+She skipped the stone. It went three times, which was what she always got, and sank.
+
+"Grandfather wants to meet you," she said.
+
+Harry looked at her.
+
+"He wrote. On Tuesday. Varga brought it, the morning after. He'd read the *Prophet*, the bit about Diggory, and he'd read between the lines, which he says is the only place anything worth reading is ever printed." She did not look at him. "He says he would like to meet the boy who came back from a graveyard. He says he has been waiting fifteen years. He says he is a hundred and eleven and does not have fifteen more."
+
+Harry thought about it.
+
+He thought about an old man in a tower with one chair, who had stood up when she came in. He thought about *I saw you beside him. I did not see how it ended.* He thought about a mark on the back of a watch, a triangle and a circle and a line, and a chapter in every history book with a photograph of a young fair man smiling at something just outside the frame.
+
+And he remembered a churchyard, and a voice saying *that is not a spell, that is a Path*, and the delight in it.
+
+"Not yet," he said.
+
+Evelyn turned her head and looked at him.
+
+Her face told him nothing. It never had. It never would. He looked at it in the gold light from the lake, the face people forgot, and found that he did not want to know what was behind it, because he did not need to.
+
+"That's what I told him," she said.
+
+* * *
+
+"There's something else," said Evelyn.
+
+"What?"
+
+"I should have told you in March. I didn't. I'm telling you now, first, before you hear it from somebody else." She looked at the water. "Rita Skeeter."
+
+Harry looked at her.
+
+"She hasn't written a word about you since November," said Evelyn. "Have you noticed? Not about the dragon. Not about the lake. Not about the maze. There was one piece about Krum's eyebrows in January and one about Delacour's grandmother being part Veela and one about Diggory's hair, and nothing about you." She turned the flat stone in her fingers. "Because I said she couldn't."
+
+"Because you…"
+
+"She's an Animagus," said Evelyn. "Unregistered. A beetle. That's how she heard things. She sat on windowsills. I noticed her on the library sill in November, and on the sill of the fourth-floor classroom when Bulstrode said she'd sit on anybody who touched you, and two days later it was in the *Prophet*. So I looked her up in the register. She isn't in it." She put the stone down. "So I caught her in a jar."
+
+"In a *jar*."
+
+"A jam jar. From the potions stores. I signed for it." Evelyn's face did not change at all. "And I took her up to the empty classroom on the fifth floor, and turned her back, and explained the Registration of Animagi Act, nineteen fifty-two, section four and section nine as amended in nineteen seventy-three, and the sentence, and that Father sits on the Wizengamot and has never once voted for leniency in nineteen years. And I told her she wasn't to write one word about you for the rest of the school year unless I'd read it first and said she could." She paused. "And I told her I'd left letters with somebody, to be posted if anything happened to me. I hadn't. That was a lie. I allowed myself one."
+
+Harry stared at her.
+
+"She sent me three pieces," said Evelyn. "Over the year. By owl. I crossed out most of the first one. The second one was about you being brave in the lake, and it was very badly written, and I sent it back with the adjectives circled. She didn't send it again." She looked at him. "The third one was on Wednesday. About the maze. About you and Diggory and You-Know-Who. It says you're a disturbed boy who's been through a great deal and may be suffering from delusions." She took it out of her cardigan pocket, folded twice, and held it out. "The school year ends tomorrow. After that I can't stop her."
+
+Harry did not take the paper.
+
+He was looking at her.
+
+At Evelyn Selwyn, sixteen, plain, in a grey cardigan, sitting on a flat rock on the far side of the lake with the sun going down behind her, who had caught the most poisonous journalist in Britain in a jam jar from the potions stores and signed for it, and had read her the law with section numbers, and had kept it to herself for seven months because she was a person who did not tell people things until she was sure.
+
+Something came up in him.
+
+He did not know what it was at first. He had not felt it for a week. He had not felt it since a maze, and a hand pulling him up off the grass, and a boy laughing *a Slytherin and a Hufflepuff*. He had thought he might not feel it again for a long time.
+
+He laughed.
+
+It came out of him all at once, the way it had in a white ward full of singing flowers and in a goat-smelling room above a bar, and he could not stop it. He put his head down on his knees on the flat rock and laughed until his eyes were wet, and it went across the water to the castle and came back off the walls, and somewhere out in the shallows the squid woke up and moved one long arm and went back to sleep.
+
+Evelyn waited until he had finished.
+
+"I signed for the jar," she said. "I'd like that noted."
+
+"It's noted," said Harry.
+
+* * *
+
+He gave the thousand Galleons to Fred and George Weasley on the platform at King's Cross.
+
+He did it quickly. He found them at the end of the train, on the far side of the barrier, waiting for their mother, and he held out the heavy bag and said, "Here."
+
+They looked at it. They looked at him.
+
+"What's this?"
+
+"My winnings. A thousand Galleons."
+
+"We know what it is," said Fred. Or George. "Why are you giving it to us?"
+
+Harry read them.
+
+They were astonished. They were both astonished, exactly the same, and under the astonishment, in both of them, so fast that he nearly missed it, there was something they would never have said aloud. It was the thing that had filled them in an empty classroom on the fourth floor in his third year, when they gave him a piece of old parchment. A debt. Only it was going the other way now, and they did not know what to do with it.
+
+"Because you gave me the Map," said Harry. "When the whole school hated me. And because you said you'd never heard of Slytherin." He pushed the bag into George's hands. Or Fred's. "Start your shop. The joke shop. I've heard you talking about it in the Hall for two years. Start it."
+
+"Harry…"
+
+"I don't want it," said Harry. "I didn't win it. Cedric should have had half." He stopped. "I could do with some laughs. That's all. We all could. Just make sure there's a lot of them."
+
+They looked at him for a long moment.
+
+Then George, or Fred, said, very quietly, without any joke in it at all, "Thanks, Harry."
+
+And the other one said, "We'll name a sweet after you."
+
+"Please don't."
+
+"The Potter Puke Pastille," said Fred, or George, and the joke came back into his face all at once, and Harry read it come back, and was glad. "It's got a ring to it."
+
+* * *
+
+Uncle Vernon was at the barrier.
+
+He was standing exactly where he had stood three summers ago, in the same coat, with his moustache and his little eyes and his large purple face, and he looked at Harry as he came through, and Harry read him.
+
+Fear. On the top. The old fear, the one that had come back on the night of Aunt Marge, and that had sharpened in the summer when a Ministry car came for him. It was larger again. It had grown all year, in Privet Drive, on its own, with Harry not even there.
+
+"In the car," said Uncle Vernon.
+
+Harry got in the car.
+
+He did not look back at the platform. He did not need to. He had said goodbye to Theo, who had stood beside him on the train for the whole journey from Hogsmeade to King's Cross and not said anything, and then, at the barrier, had said *write*, which Theo never said. He had said goodbye to Millicent, who had hit him on the arm. He had said goodbye to Evelyn.
+
+She had not said goodbye. She had looked at him on the platform, with her bag over her shoulder and her hand in her right-hand pocket, where the watch was, ticking, and she had said: "Every eleven days. As usual. If you're late I'll know something's wrong."
+
+"I'm never late."
+
+"You're always late," said Evelyn. "You're just not late to me."
+
+* * *
+
+He lay in the small bedroom at Privet Drive at eleven o'clock that night, with the window open and the summer dark coming in and Hedwig asleep in her cage.
+
+He did not read anything.
+
+He had turned the house down the moment he came through the door. Uncle Vernon's fear, Aunt Petunia's thing he had no word for, Dudley's boredom with something under it that Harry had not had time to look at. He had turned it all down to nothing, and come upstairs, and lain on the bed, and the house was very quiet.
+
+He was very tired.
+
+He thought about the summer. Dumbledore had said *in the summer, when you are rested*. He did not know what that meant. He did not know whether Dumbledore would come to Privet Drive, or send for him, or write. He thought about it, lying on his back in the dark, and found that he did not mind not knowing, which was new.
+
+He thought about Theo on the edge of his bed until the window went grey.
+
+He thought about a jam jar.
+
+He thought about Cedric.
+
+He was nearly asleep. He was right on the brink of it, where things go loose and slide, the place where a name slides away when you are tired. He was not reading anything. He had nothing to read. The house was turned down to nothing and the street outside was dark.
+
+And then he felt something.
+
+Nothing in the house had changed. The street was empty. Whatever it was, it came from nowhere near him, and not through the window, or the floor, or the door.
+
+It came through his scar.
+
+It was very faint. It was so faint that for a moment he thought it was his own, a thing he was feeling, half asleep, about something he had half forgotten. It came up through the place on his forehead where a long white finger had been laid on him in a churchyard, quite slowly, the way warmth comes up through a stone floor when somebody has lit a fire in the room below.
+
+He knew what it was.
+
+He had felt it a week ago, enormous, filling a churchyard. He had felt it in a dream in a hot tower, pleased, in a high-backed chair. He had read it in a boy in a red and gold scarf in another world, a sliver, and a smaller sliver than that in himself, and he had called that sliver a stain.
+
+He was not reading it. That was the thing. There was nobody here to read. He had not reached for anything. He was lying in his own bed with his eyes shut and the house turned down to nothing, and it had come to him. It had come in through his own skin, as though his scar were a window that somebody on the other side had just opened.
+
+It was a feeling.
+
+It was not his.
+
+It was glee.
+
+<->
