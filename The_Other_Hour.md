@@ -32991,3 +32991,539 @@ Harry could feel him too.
 He ran up the stairs.
 
 <->
+
+## Chapter 55: Sovereign
+
+The lifts had stopped at the top.
+
+Harry came out of the stairwell into the Atrium at nineteen minutes past midnight, with blood in his eyes and Evelyn a step behind him, and the long dark hall was not empty any more.
+
+It was full.
+
+There were Death Eaters at both ends of it. There were Death Eaters by the golden gates and Death Eaters by the fireplaces and Death Eaters on the polished floor between, forty of them, fifty, more coming out of the lifts behind him, more coming out of the fireplaces, black and hooded and masked. They had come up from the Death Chamber, and they had come from somewhere else as well, from outside, through the Floo, the ones who had not been needed below. They stood in a great loose ring round the middle of the Atrium.
+
+And in the middle of the ring, by the fountain, stood Voldemort.
+
+He was standing on the rim of the pool. He was standing quite still, with his back to the golden wizard and the golden witch and the adoring house-elf, with the water falling behind him from their wands and their hats and their ears, and he was looking at the stairwell. At Harry.
+
+He had been waiting.
+
+Harry read him.
+
+Whole. No seams. Smaller than in the churchyard, and smooth all the way through, like a stone that has been in a river for a thousand years. And on top of it, very cold, very bright, aimed at Harry, interest.
+
+"There you are," said Voldemort.
+
+His voice carried. It went the whole length of the Atrium without being raised, and every Death Eater in the hall turned at the sound of it.
+
+"You were quick," he said. "I hoped you would be. I wanted you to see this."
+
+* * *
+
+The Order came up the stairs behind Harry.
+
+He felt them come. Lupin, with his grief, which had no bottom. Kingsley. Moody, swearing. Behind them the others, the students, Ron with his arm hanging and Hermione holding him up, Neville, Millicent, Luna. They came out of the stairwell into the Atrium and stopped, all of them, one after another, at the sight of what was in it.
+
+Fifty Death Eaters.
+
+And one man on the rim of a fountain.
+
+"Back," said Moody, very low. "Back to the stairs. All of you. Kingsley, the fireplaces, if you can get to one…"
+
+"He's not going to let us," said Harry.
+
+"Potter, if you've got something useful to say…"
+
+"He's going to do something," said Harry. "Here. Now. He wanted me to see it. That's why he came up. That's why he waited." He was looking at the man on the fountain. "He's whole. He's on a Path. He's been walking it for fifty years and he's never reached the top. He's going to try."
+
+Nobody said anything.
+
+Voldemort smiled at him across the Atrium.
+
+Then he raised his wand.
+
+* * *
+
+It did not look like anything.
+
+That was the first thing Harry noticed, and he would notice it again, later, every time he thought about it. It did not look like a spell. There was no light. There was no sound. There was no wind, no crack of power, nothing that anybody could have pointed to and said, *there, that, that's when it happened*. Voldemort stood on the rim of the fountain with his wand raised, and that was all.
+
+And the rules of the room changed.
+
+Harry felt them change. He felt it the way you feel a lift start to go down, a sudden lurch in something you had not known you were standing on. Something had been true about the Atrium a moment ago, about the floor and the walls and the air and the people in it, something so ordinary that nobody had ever needed to say it out loud.
+
+It was not true any more.
+
+What was true now was that the Atrium belonged to the man on the fountain.
+
+* * *
+
+The wands turned first.
+
+Every wand in the Atrium. Harry saw it happen. He saw the Death Eaters' wands, which had been pointing at the Order, turn. They turned slowly, all of them, together, the way the needles of a hundred compasses would turn if somebody walked into a room carrying the north. They turned away from the Order and away from the stairwell and away from everything, and they pointed at the fountain.
+
+At him.
+
+Not to attack. Harry read that at once. The Death Eaters were not afraid. They were not angry. They were not anything. They had turned their wands towards Voldemort the way a field of flowers turns towards the sun, without deciding to, because that was where the sun was.
+
+Then the Order's wands turned.
+
+Moody's. Kingsley's. Lupin's. Harry saw them go. He saw Moody's face, the scarred chisel-cut face, go white with fury and then go blank, as his wand arm moved on its own across his body and pointed at the fountain and stopped.
+
+Ron's wand turned.
+
+It did not turn towards the fountain. It turned sideways. It turned slowly, against everything Ron was, Harry could feel him fighting it, a huge desperate *no* coming up through every floor of him, and it turned anyway, and it pointed at the side of Hermione's head.
+
+Hermione did not move. She could not. She was standing beside him with his good arm round her shoulders and her own wand pointing at the fountain and her eyes wide open, and Ron's wand was six inches from her temple, and he was weeping.
+
+Millicent's knees bent.
+
+She went down very slowly. She did not fall. She knelt. She knelt on the polished floor of the Atrium with her back very straight and her head going down, a little at a time, the way a heavy branch goes down under snow, and Harry read her, and under the kneeling there was a rage so enormous and so clean that it was nearly the whole of her, and it made no difference at all.
+
+Neville knelt.
+
+Luna knelt.
+
+Lupin knelt, and Kingsley, and Moody, last, on his wooden leg, with a sound like a tree splitting.
+
+All over the Atrium, people were going down on their knees.
+
+* * *
+
+Harry's arm moved.
+
+He did not move it.
+
+It was his right arm, his wand arm, and it began to lift. It lifted from his side, slowly, the way the others had. He felt it go. He felt the muscles in it work and the elbow bend and the hand turn at the wrist, and none of it was him.
+
+He tried to stop it.
+
+He reached for himself the way he had reached for everything all his life, the way he reached for other people, to find what was there. He reached for his own arm, his own hand, his own will, the thing that said *no*.
+
+It was not there.
+
+It was there. He could feel it. It was in him, the way it had always been, at the bottom, steady. But when he reached for it, it was like reaching for a word in a language he had just lost. He knew it was there. He knew what it was for. He could not make it come.
+
+His arm went on lifting.
+
+It was not pointing at the fountain. Instead it was turning inwards, towards him, the wand coming round past his shoulder, past his ear, the tip of it a few inches from the side of his own head.
+
+Voldemort was watching.
+
+He was standing on the rim of the fountain with his wand raised and his face perfectly calm, and he was watching Harry's arm come round. He was not hurrying it. He was letting it go slowly. He wanted Harry to feel all of it.
+
+Harry read him.
+
+He could still do that. That was the strange thing. His body was not his and his will was not his and his arm was lifting his wand to his own temple, and he could still read. He read the man on the fountain, smooth and whole and cold, and he read what was on top of him.
+
+Pleasure.
+
+Quieter than the churchyard's, which had been enormous and gloating. This was the pleasure of a man who has spent fifty years trying to open a door, and has just found that it opens, and is walking slowly through every room behind it, touching things.
+
+Harry's wand touched his temple.
+
+He felt the tip of it, quite cold, against the skin above his ear.
+
+He thought about Cedric.
+
+* * *
+
+Evelyn did not move.
+
+She noted that first. She noted it the way she noted the time, or the number of steps on a staircase, or an error in the *Prophet*. It was a fact. She was standing at the top of the stairwell, one step behind Potter, with her wand in her hand, and she had not moved.
+
+Nothing had moved her.
+
+She had felt it come. She had felt it the way you feel a door open in another part of a house, a change in the air, a draught. It had come from Voldemort and gone out across the Atrium, through everybody, all at once, and it had come to her too.
+
+And it had found nothing.
+
+She had cleared the table that morning at seven, as she did every morning, twelve turns of the crown. She had cleared it again on the stairs, without thinking, the way you put your hand out when you trip. There had been nothing on it when the thing came. There was no door for it to push. There was no hand holding a door shut for it to feel. It came into the room where she lived, and looked round, and there was nothing there.
+
+It went out again.
+
+She looked at the Atrium.
+
+Fifty-three Death Eaters. She counted them, because she always counted. Fifty-three, with their wands pointing at the fountain, all at the same angle. Five of the Order. Five students. Every one of them on their knees, or going down, or with their arm lifting, or all three.
+
+Weasley's wand was at Granger's head. He was crying.
+
+Bulstrode was kneeling. Her face was a colour Evelyn had never seen on it.
+
+And Potter's arm was coming up.
+
+She watched it come. She watched it turn, past his shoulder, past his ear, his own wand, the holly one with the phoenix feather that he had bought at eleven on the same day he had sat beside her on a stool in Madam Malkin's and not noticed her. She watched it touch the side of his head.
+
+She watched the man on the fountain watching it.
+
+She did not decide anything. There was nothing on the table to decide with. She simply walked.
+
+She walked across the Atrium. She walked between the kneeling Death Eaters, past their masks and their pointing wands, past a big man with his knees on the polished floor and his head going down. She walked past Lupin, kneeling. She walked in front of Kingsley, who could not turn his head to look at her, and whose eyes followed her, very wide, as she went by.
+
+Nobody stopped her. Nobody could.
+
+She noticed, as she walked, that she was the only person in the Atrium of the Ministry of Magic who was standing upright because she had chosen to.
+
+It was quite a strange thing to notice.
+
+She reached Potter.
+
+He was standing very still with his wand against his temple and his eyes open, and she could see the blood on his face and the split in his forehead, open, a red line along the old white one. She could see his knuckles, white on the wand. She could see, on the back of his right hand, faint and white, *I must not tell lies*.
+
+She put both hands flat on his chest and pushed him as hard as she could.
+
+He went over backwards. He went over like a felled tree, stiff, with his arm still up, and he hit the polished floor of the Atrium flat on his back, and his arm, still bent, still holding the wand to where his temple had been, was pointing now at the peacock-blue ceiling.
+
+At nothing.
+
+She stood over him.
+
+On the rim of the fountain, Lord Voldemort turned his head and looked at her.
+
+He looked at her for quite a long time. She looked back. She did not know what was in his face. She did not try to know. She was not interested in his face. She stood over Potter on the floor of the Atrium with her wand in her hand, and Voldemort looked at her, and she could see him trying.
+
+He was trying to find her.
+
+He was reaching across the Atrium the way he had reached across it a minute ago, for everybody, and he was reaching for her, specifically, now, with his whole attention. She could see it in the way his head was held. She could see it in his eyes, which were narrowed, very slightly, the way a man narrows his eyes at a page in a bad light.
+
+He could not find her.
+
+She was standing in plain sight in the middle of his Atrium and he could not find her at all.
+
+His face did something. She noted it. She did not know what it was.
+
+Then the fireplace behind him went green.
+
+* * *
+
+Harry was on his back on the floor.
+
+He did not know how he had got there. He knew the ceiling was above him, peacock blue, with the gold symbols moving on it, and that his arm was up, bent, pointing at it, and that his wand was in his hand, and that it was not touching his head.
+
+He knew Evelyn was standing over him.
+
+He could feel the silence. It was right there, above him, steady and complete.
+
+"Can you move?" said Evelyn.
+
+"No."
+
+"Good," said Evelyn. "Don't."
+
+He could not move his head to look at her. He could not move anything. His arm was still not his. But it was pointing at the ceiling, and the ceiling did not mind.
+
+He heard the fireplace.
+
+It was the big one, at the far end of the Atrium behind the fountain, the one with the gilded mantel. He heard it roar. He heard the flames go up green, very high. He heard somebody step out of it onto the polished floor, quite unhurriedly, and stop.
+
+He could not see who it was.
+
+He did not need to.
+
+* * *
+
+Dumbledore stood in front of the fireplace with his wand in his hand and looked at the Atrium.
+
+Harry could see him now. Evelyn had knelt down, beside him, and got her arm under his shoulders and lifted him a little, against her, so that he was half sitting, with his back against her knee and his arm still pointing at the ceiling. He could see over the kneeling Order and the kneeling Death Eaters and the turned wands, all the way down the hall to the fountain, and the man standing on its rim, and behind the man, the other man, by the fireplace, in long midnight-blue robes.
+
+Dumbledore was looking at Voldemort.
+
+Harry read him.
+
+He was open. He had come out of the fireplace open, the way he had come through the door of Moody's office at the end of the maze, and Harry read him all the way down, because there was nothing in the way.
+
+He understood.
+
+That was the first thing. It was very fast and very cold and very complete. He had come out of the fireplace and looked at the Atrium, at the kneeling and the turned wands and Voldemort, and he had understood all of it, at once, in less than a second. What had been done at the Veil. What was standing on the fountain now. What it was doing to the room.
+
+And under the understanding, there was something Harry had felt in Dumbledore once before, on a night in June, after the graveyard, very small and very old.
+
+It was fear.
+
+It was not small now.
+
+"Tom," said Dumbledore.
+
+Voldemort turned round on the rim of the fountain.
+
+He did it without moving his feet. Harry noticed that. He turned from the waist, slowly, the way a man turns in a chair, and his feet stayed where they were, on the rim, in the exact centre of the Atrium. He could not move them. Harry read it in him, quite plainly, the way you read the one thing a man does not want you to see. He was in the middle of the room he had made, and the middle of it held him.
+
+"Albus," said Voldemort pleasantly. "You are late."
+
+"I was in Albania."
+
+"I know. I sent you there." Voldemort smiled. "You have always been so predictable about rumours of me in Albania. It is almost touching."
+
+Dumbledore did not answer that.
+
+"Let them go, Tom."
+
+"Why?"
+
+"Because they are children," said Dumbledore. "And because you have proved whatever it was you came up here to prove."
+
+"I have not even begun to prove it." Voldemort tilted his head. "But I take your point about the children. They are very young. Some of them will be useful, later. That one," he moved his wand very slightly towards Harry on the floor, "will be the most useful of all."
+
+"You have done it, then," said Dumbledore.
+
+"I have done it." Voldemort spread his free hand, a little, palm up, at the kneeling Atrium. "You see. I have stood on the summit at last. Fifty years. Fifty years of walking, Albus, and never once understanding why the top of the mountain would not let me stand on it." He looked past Dumbledore, down the hall, at Harry on the floor. "And then I was told. By a child. In a book he did not even know he had shown me."
+
+"He showed you nothing. You stole it."
+
+"I took it. It is the same thing." Voldemort turned back. "And now I am whole, and I am here, and every will in this room is mine. Every one, Albus." He paused. "Except, it seems, one. Which is interesting. We will talk about her another time."
+
+He raised his wand, very slightly, towards the fireplace.
+
+"And yours, I think," said Voldemort, "in a moment."
+
+* * *
+
+Dumbledore did not raise his wand.
+
+He did not do anything that Harry could see. He stood in front of the green fireplace in his long blue robes, quite still, and he closed his eyes.
+
+And the Atrium forgot what it was.
+
+* * *
+
+It started with the fountain.
+
+The water that was falling from the golden wand of the golden wizard stopped falling. It hung in the air. Then it went up. It went up in a fine silver spray, all of it, from every wand and hat and ear and arrow-tip, up and up into the peacock-blue ceiling, and it came down as rain.
+
+It came down everywhere. Soft, cold, ordinary rain, the kind that falls on a Tuesday in November in Surrey. It fell on the kneeling Death Eaters and on the kneeling Order and on Harry on the floor with his arm up. It fell on Voldemort on the rim of the fountain.
+
+The fountain itself was going.
+
+The golden statues were going. Harry watched them go. He watched the golden witch lose her shape, slowly, from the feet up, the way a sandcastle goes when the tide comes in. He watched the centaur run, gold into gold, and the goblin. He watched the house-elf, with its ears still raised, still looking up at the wizard, lose its face, and its ears, and its hands, and fall into the pool as a heap of something that was not gold any more and was not anything, and lay there.
+
+The golden gates at the far end of the Atrium became birds.
+
+Harry did not see them change. They were gates, tall and gold and wrought, and then the wrought gold was feathers, and the bars were wings, and there were a hundred golden birds where the gates had been, and they rose in a great rush of wings up into the rain, and wheeled, and came down again, and wheeled.
+
+The floor under the Death Eaters became water.
+
+It did not become water under the Order. It did not become water under Harry. Harry felt the polished wood under his back stay polished wood. But in a great ring round the fountain, where the Death Eaters were kneeling with their wands turned, the floor stopped being floor, all at once, and they were kneeling in water. Then they were sinking in it. Then it was up to their waists, and they were floundering, and some of them were shouting, and the shouting broke whatever had been holding them, a little, and their wands wavered.
+
+Matter had forgotten what it was.
+
+It had forgotten everywhere in the Atrium that Dumbledore wanted it to. Gold, stone, wood, water: none of those any more. Only matter, all of it, one matter, waiting to be told what to be.
+
+And Dumbledore was telling it.
+
+* * *
+
+Voldemort did not move.
+
+He could not. Harry read that too. He was standing on the rim of a fountain that was not there any more, on a ring of something that was becoming water under his feet, and he did not move, because he was the centre, and the centre could not move.
+
+But he did not give.
+
+Harry felt it. He felt Sovereign go on. It did not stop when the rain began. It did not stop when the gates became birds. It went on being true, in the Atrium, that every will belonged to the man on the fountain, and the Order were still kneeling, and Ron's wand was still at Hermione's head, though it was shaking now, and Harry's arm was still not his, still pointing at the ceiling, rain running down his sleeve.
+
+The two of them met in the middle.
+
+Harry could not see it. Nobody could. It was not a thing with light or sound. But he could feel it, the way you feel two weights pressing against each other on either side of a door. Sovereign, which said *everything in this room is mine*. And First Matter, which said *nothing in this room is anything*. They came together in the middle of the Atrium, in the rain, over the place where the fountain had been, and pressed.
+
+Neither gave.
+
+It went on. It went on for a long time. Harry did not know how long. He lay against Evelyn's knee with the rain on his face and his arm in the air and read the middle of the Atrium, where the two things met, and it did not move one way or the other. It stood there, pressing, perfectly still, like two men leaning against each other with all their weight in a doorway, neither of them willing to be the one who stepped back.
+
+The birds wheeled.
+
+The Death Eaters floundered.
+
+And Harry looked at Dumbledore.
+
+* * *
+
+Dumbledore's hair was grey.
+
+It had been grey for as long as Harry had known him. Silver-grey, long, with a long silver-grey beard to match. Harry had seen it every day of his life at Hogwarts, at the staff table and in the office and in the Pensieve, and he had never once thought about its colour.
+
+He thought about it now.
+
+He thought about it because it was changing.
+
+It was going white. Not all at once. It was going white the way a field goes white under frost, from the roots, a little at a time, so that you could not have said at any single moment that it was changing, and yet every time Harry looked it was whiter than it had been.
+
+His face was changing too.
+
+It was folding. That was the only word Harry could find for it afterwards. The lines that had always been in it, round the eyes and the mouth, were going deeper. New lines were coming. The skin of his cheeks was going thin, and soft, and loose, the way skin goes on very old people. His shoulders, which had always been straight, were bending. His hand on his wand, which had always been steady, was spotted now, on the back, with brown marks Harry had never seen there.
+
+Harry read him.
+
+He could not stop himself. Dumbledore was open, and he read him, and under the great still effort of holding a whole room in his mind and telling every piece of it what to be, there was something else.
+
+It was cost.
+
+No pain, and nothing Harry had a word for. Only the feeling of a man who is paying for something, and knows exactly how much, and is paying it anyway, out of the only account he has. He was paying it in years. Harry could feel them go. They went out of him into the rain and the birds and the water, one after another, the way coins go out of a purse, and he did not stop.
+
+A minute.
+
+Two.
+
+His beard was white now. All of it. White as the snow on a step at Hogsmeade, white as thistledown. His back was bent. His face was the face of a man much older than any man Harry had ever met, except one, in a tower in Austria, whom Harry had never met and had been told about.
+
+He did not stop.
+
+* * *
+
+The fireplaces went green.
+
+All of them. All down both sides of the Atrium, every fireplace at once, the flames going up green and high, and out of them, one after another, came people. Wizards and witches in Ministry robes. Aurors, with their wands out. A dozen of them, twenty, coming out of the green fire into the rain and the birds and stopping dead.
+
+And in front of them, out of the largest fireplace on the left-hand side, in a pinstriped cloak and a lime-green bowler hat, with his mouth open, came Cornelius Fudge.
+
+He stopped.
+
+He looked at the Atrium.
+
+Harry read him. He read him the way he had read him on a night in June, in a hospital wing, through a door, the fear that had gone hard, gone to *no*. It was still there, the hard thing. It had been there for a year. It had been there through a hearing in Courtroom Ten and a parchment with a name at the top and every page of the *Prophet* since.
+
+It broke.
+
+Harry felt it break. It was like hearing ice go on a lake. It broke all the way across at once, and under it there was nothing at all but the fear, the old fear from the bottom of Cornelius Fudge, which had been there since before Harry was born, and it came up and filled him, every floor of him, and there was nothing left over.
+
+He was looking at the fountain.
+
+At the man standing on the rim of it, in the rain, very thin, very white, with no nose and red eyes and his wand raised.
+
+"He's…" said Fudge. "He's… that's… that's…"
+
+He did not finish.
+
+He did not need to. Every Auror in the Atrium was looking at the same thing. Twenty of them. They had their wands out and their faces white, and they were standing in the green light of the fireplaces in the Atrium of their own Ministry, in the rain, looking at Lord Voldemort.
+
+And beside him, half a step behind, on the rim of the fountain where the water had become nothing, a small round balding man with watery eyes and a silver hand.
+
+"That's Pettigrew," said one of the Aurors.
+
+Harry did not know her. She was young and thin and had her hair tied back, and she was pointing. Her voice was very high.
+
+"That's Peter Pettigrew," she said. "That's… he's dead. He's meant to be dead. Black killed him. Black blew him up in the street. That's *Peter Pettigrew*."
+
+* * *
+
+Voldemort looked at the fireplaces.
+
+He looked at Fudge. He looked at the twenty Aurors in the green light. He looked at the old man in front of the largest fireplace, bent and white and still, holding a whole room in his mind.
+
+Harry read him do it. He read him count.
+
+It was not fear. There was no fear in him. It was arithmetic. It was the arithmetic of a man who has just opened a door he has been trying to open for fifty years, and walked through every room behind it, and found, in the last room, an old man who would not give, and twenty Aurors coming through the walls, and the whole Ministry about to wake up.
+
+He could hold the room. Harry read that. He could go on holding it. Every will in it was his, except the old man's, and one other. He could stand on the rim of the fountain for an hour, if he chose, and press.
+
+But he could not move. And the old man would not give. And the Ministry was waking up.
+
+Voldemort lowered his wand.
+
+The rules of the room changed back.
+
+Harry felt it go. He felt his arm come back to him, all at once, heavy and aching, and fall to his side. He felt the Order stagger up off their knees, and Millicent come up off the floor with a roar, and Ron's wand drop out of Ron's hand and clatter on the wood, and Ron sit down on the floor beside it with his face in his good hand.
+
+The Death Eaters were in the water. They were struggling. Some of them were coming out of it, onto what was still floor.
+
+"Bella," said Voldemort. "Wormtail. We are leaving."
+
+Bellatrix came up out of the water. She was laughing still. She was soaked to the waist and laughing, and she went to him, and Pettigrew scuttled after her, and the others who could get out of the water came after them.
+
+Voldemort stepped down off the rim.
+
+He looked at Harry once as he went.
+
+He looked across the whole of the Atrium, through the rain, past the Aurors and Fudge and the Order and the golden birds, at Harry on the floor with his back against Evelyn's knee. It was a long look. It was a very interested look. It had no hurry in it at all.
+
+Then he turned on the spot, and was gone, and Bellatrix was gone, and Pettigrew, and the others, one after another, with small sharp cracks, like the sound of a great many people snapping their fingers.
+
+The rain stopped.
+
+* * *
+
+The birds came down.
+
+They came down all over the Atrium, the hundred golden birds that had been gates. They came down onto the floor and the rim of the empty pool and the shoulders of Aurors. And as they came down they stopped being birds. They did not become gates again. They became small heaps of gold, lying on the polished floor, quite still, the way snow lies after it has fallen.
+
+The water under the Death Eaters' ring was going. It went down into the floor, and the floor came back, and there were wet boot prints on it, and a mask, and three or four wands, and a long black glove.
+
+For a while nobody said anything at all.
+
+Then everybody did.
+
+"Minister! Minister, did you see…"
+
+"Get the healers, get St Mungo's…"
+
+"…was *him*, I saw him, I saw his *face*…"
+
+"Dawlish, the lifts, seal the lifts…"
+
+"…Pettigrew, it was Pettigrew, I'd know him anywhere, I was at school with…"
+
+"Minister?"
+
+"Minister, your orders?"
+
+Fudge was standing by the fireplace with his mouth open. The Aurors were standing round him. Moody was on his feet, leaning on the wall, breathing very hard. Kingsley had gone straight to Ron. Hermione was on her knees beside Ron with her arms round him, and he was saying something to her, over and over, very quietly, that Harry did not try to hear. Millicent was standing in the middle of the floor with her fists clenched, looking at the place where the Death Eaters had been, as though she would like very much for one of them to come back.
+
+Neville was standing very still, looking at the place where Bellatrix had gone.
+
+Luna was looking at the golden heaps on the floor, interested.
+
+"Minister," said Kingsley. He had come back from Ron. He was standing in front of Fudge, very tall, very calm, with rain still running off his bald head. "Minister. You saw him."
+
+"I…"
+
+"You saw him. And you saw Pettigrew. Alive. At his side." Kingsley did not raise his voice. "There are twenty Aurors in this room who saw the same. I should like it written down, Minister. Tonight. Before anybody goes home."
+
+Fudge looked at him.
+
+"Yes," he said. His voice was very small. "Yes. Written down. Yes."
+
+Harry read him. There was nothing hard left in him anywhere. There was only fear, and under the fear, so faint that Harry nearly missed it, something that might one day be shame.
+
+Harry sat up.
+
+Evelyn let go of his shoulders. She did not say anything. He felt her silence beside him, steady, the way it always was, and he did not look at her yet.
+
+He was looking at Dumbledore.
+
+* * *
+
+Dumbledore had opened his eyes.
+
+He was standing in front of the largest fireplace, where he had been standing the whole time, with his wand in his hand. He did not seem to know quite what to do with it. He was looking at the place where the fountain had been.
+
+It was not there.
+
+There was a pool, round and dry, with a low stone rim. In the bottom of it there were heaps of something that had been gold and was nothing now, grey and soft, like ash. There were no statues. There was no wizard with his wand raised and no witch and no centaur and no goblin and no house-elf with its ears in the air, adoring. There was nobody looking up at anybody.
+
+Dumbledore walked towards it.
+
+He walked slowly. He walked the way Lockhart had walked down a corridor at St Mungo's with a stick, very carefully, as though the floor might not be where he expected it to be. His back was bent. His hair was white, and his beard was white, and his face, when he passed Harry, was the face of a man Harry did not know.
+
+It was older, certainly. A great deal older. A decade, perhaps more, in the time it had taken the rain to fall. But that was not what Harry noticed.
+
+What Harry noticed was that he was tired.
+
+He had always been tired. Harry had read it in him for five years, under the twinkle and the sherbet lemons and the gentle evasions, the tiredness of a very old man who has been carrying something for a very long time. He had read it in a chintz armchair in Courtroom Ten. He had read it at ten past midnight in December.
+
+Nothing was on top of it now.
+
+It was the top of him. It was the whole of him. It had come up from wherever he had kept it, and filled him, and there was nowhere left to put it.
+
+Dumbledore reached the rim of what had been the fountain.
+
+He stood there for a moment, looking down at the grey heaps in the dry pool.
+
+Then he sat down on the rim, quite slowly, the way very old men sit, with one hand on the stone to lower himself, and put his wand across his knees, and folded his hands on top of it.
+
+He did not say anything.
+
+He sat on the rim of the empty fountain in the middle of the Atrium, with the Aurors and the Minister and the Order and the students all round him, and the gold heaps on the floor, and the wet boot prints going nowhere, and he looked at his hands.
+
+They were spotted on the backs, with brown marks.
+
+He looked at them for a long time, as though they belonged to somebody else.
+
+<->
