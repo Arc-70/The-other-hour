@@ -17421,3 +17421,465 @@ She looked at the sign, and then at the door, and then at him, the face he could
 She pushed it open.
 
 <->
+
+## Chapter 28: The Hog's Head
+
+"We're shut," said the barman.
+
+He did not look up. He was behind the bar at the far end of the one small room, wiping a glass with a cloth that was very much dirtier than the glass, and the room was dark, lit by two stubs of candle on tables nobody was sitting at, and it smelled strongly of goats.
+
+"The door was open," said Evelyn.
+
+"Door's always open. Doesn't mean I'm not shut." He put the glass down and picked up another one. "What do two Hufflepuff second-years want in my pub at midnight? Besides a hiding."
+
+Harry read him.
+
+He had been reading him through the door, and it was the same now, only closer. The man was old. He was very old, and he was tall and thin, with long grey hair and a long grey beard that both wanted cutting, and he was wearing something that might once have been a robe and was now mostly patches. And he was loud.
+
+He was not loud the way Hagrid was loud, or Aunt Marge. He was loud the way a cellar full of something is loud, from underneath, through the floor. Everything in him had been held down for so long that it had gone hard and packed together, like earth.
+
+On the top there was irritation. That was ordinary. That was a man who wanted to go to bed.
+
+Under the irritation there was bitterness.
+
+It was very old. It was older than anything Harry had ever felt in a person, older than Hagrid's grief or Filch's sourness or Snape's loathing. It had been there so long that it had a shape, and the shape was aimed, quite precisely, at one person. Not at anybody here. At somebody a long way off, somebody the old man thought about every day without wanting to.
+
+And under the bitterness, very deep, so deep that Harry nearly missed it, there was something else. It was gruff, and it was clumsy, and it did not want to be there at all. It was aimed at the two of them. It was the feeling of a man who does not like children and has never once in his life been able to stand by while somebody hurt one.
+
+It was not going to tell anybody they were here.
+
+Harry was nearly sure of that. He read it again, carefully, all the way down, and he was sure.
+
+And there was one more thing, small and sour and very human, on the top of the bitterness. The old man was used to being wrong about people. He was used to being told he was wrong. He would have liked, very much, just once, to be shown that he was right about something.
+
+Harry let the faces go.
+
+He did it all at once. He had been holding them for so long that letting them go was like putting down two suitcases at the top of a hill, and his knees nearly went. He put a hand on the back of a chair.
+
+The barman looked up.
+
+He looked at Harry. He looked at the black hair, and the glasses, and the face, and the scar. Then he looked at the robes, which were Slytherin green with a snake on them. Then he looked at Harry's height, which was a thirteen-year-old's, and at Evelyn beside him, plain and brown-haired, in the same green. His eyes were very blue. They were bright and sharp and they did not miss anything.
+
+They went back to the scar.
+
+He did not say anything for a long moment.
+
+"Well," he said at last. "That's new."
+
+He put the glass down.
+
+"You're too short," he said. "And you're too young. And you're in the wrong house." He looked at Evelyn. "And you're nobody I've ever seen. And you came out of nowhere at midnight wearing two other children's faces." He folded the cloth. "Sit down before you fall down. I'll get you something to eat. And then you can tell me as much as you like, and I'll decide how much of it I want to hear, which won't be much."
+
+* * *
+
+He gave them bread and a hard yellow cheese and two cups of milk that tasted very strongly of goat, and he sat down on the other side of the table with his arms folded and watched them eat.
+
+He did not ask them anything.
+
+Harry ate three slices of bread and most of the cheese. He had not known he was so hungry. Evelyn ate one slice of bread, slowly, in four pieces, and drank all of her milk, and did not say anything about the taste, and Harry knew from the way she put the cup down that it had been very bad indeed.
+
+"There's a room upstairs," said the old man. "It's got a bed in it. It's not much of a bed. Nobody's slept in it for about ten years except a goat called Mabel, once, when she was poorly. You can have it."
+
+"Thank you," said Evelyn.
+
+"Don't thank me. I haven't decided anything." He looked at Harry. "You're Potter."
+
+"Yes."
+
+"Not the one up at the school."
+
+"No."
+
+"I didn't think so. I've seen the one up at the school. He's taller, and he's got a face like a slapped arse every time anybody mentions the Ministry, and he's in Gryffindor, God help him." He looked at Harry's robes again. "Slytherin. Well. Well, well. Somebody somewhere got a nasty shock."
+
+"Do you want to know where we came from?" said Harry.
+
+"No," said the old man.
+
+Harry looked at him.
+
+"I've lived in this village a long time, boy. I've learned that people who come in at midnight and tell me where they came from are mostly lying, and the ones who aren't lying are mostly worse. You're here. You're hungry. You can't keep that face up much longer, I can see it on you." He nodded at Harry's hands, which were shaking, slightly, on the table. "That's all I need to know tonight."
+
+He stood up.
+
+"Aberforth," he said. "If you're wondering. Aberforth Dumbledore."
+
+Harry went still.
+
+He read him, and the bitterness came up, right up to the top at the sound of his own surname, and settled down again, slowly, like silt in a glass of water. Aimed at one person. A long way off.
+
+"Dumbledore," said Harry.
+
+"Albus is my brother," said Aberforth. "Before you ask. I'll tell you once and then we needn't talk about him." He picked up the plate. "Bed's up the stairs and on the left. Mind the third step, it isn't there."
+
+* * *
+
+They stayed at the Hog's Head for two days before anything happened.
+
+Harry slept. He slept for fourteen hours the first night, in a narrow lumpy bed in a room that smelled faintly of goat, while Evelyn slept on a pile of blankets on the floor, because she said she would rather sleep on the floor than in a bed Mabel had been poorly in. He woke at two in the afternoon and did not know where he was. Then he knew, and lay on his back for a long time looking at the ceiling, and did not hold anything.
+
+He could feel the village.
+
+It was not like the castle. The castle was a roar, three hundred children and a dozen teachers and Umbridge's quiet sweet certainty under all of it. Hogsmeade was small and scattered. A woman in the house behind, worried about her sister. Two men in the street arguing about a cart. Somebody in the Three Broomsticks, at the far end of the high street, who was frightened all the time in a low steady way, and who Harry thought, from the weight of it, might be Madam Rosmerta. A great many goats, very faintly, like voices in another field.
+
+And under him, in the bar, Aberforth.
+
+Aberforth was always there. He did not seem to go out. He wiped glasses and served the few people who came in during the day, who were mostly hooded and mostly did not speak, and in the evening he went out through the back to the goats, and Harry could feel him out there, in the yard, and the bitterness in him went quiet when he was with the goats. Not gone. Quiet. As though it had been told to wait outside.
+
+On the second evening Harry went down and sat at the bar.
+
+He did not have a plan. He had found that he did not need one with Aberforth. Aberforth said what he thought, and what he thought was usually exactly what he felt, which made him the easiest man to read Harry had met since Hagrid.
+
+"Where's the girl?" said Aberforth.
+
+"Asleep. Or reading. She found a book under the bed."
+
+"That'll be the almanac. Nineteen sixty-two. It's under there to stop the leg wobbling." Aberforth poured him something from a jug. It was more goat's milk. "Tell her to put it back after."
+
+"She will."
+
+They sat. Aberforth wiped a glass.
+
+"You can feel things," said Aberforth. "Can't you."
+
+Harry looked at him.
+
+"I watched you come in. You stopped in the door. You stood there like a dog that's heard something. And then you let those faces go, and you'd never have done that unless you'd made up your mind I wasn't going to sell you." He put the glass down. "I've seen it once before. A long time ago. In a girl. She could feel things. Couldn't stop. Feeling everybody, all the time." He picked up another glass. "It didn't do her much good."
+
+"What happened to her?"
+
+"She died," said Aberforth. "She was fourteen." He wiped the glass. "Next question."
+
+Harry did not ask a next question for a while.
+
+He read the old man. The bitterness was there, but it had changed shape slightly, and under it there was a grief that was even older than the bitterness, and had been there before the bitterness, and was what the bitterness had grown on, the way moss grows on a stone.
+
+"You don't like your brother," said Harry.
+
+Aberforth laughed. It was a short hard sound like a stick breaking.
+
+"Does it show?"
+
+"A bit."
+
+"I'll tell you something about my brother, boy," said Aberforth. He put the glass down and leaned on the bar and looked at Harry with his bright blue eyes, which were Albus Dumbledore's eyes and were nothing like them. "Since you're a Potter, and since it'll come in handy, whatever world you crawled out of. My brother loves people. He does. He's not lying about that. He loves people more than most, and he's cleverer than all of them, and he always knows what's for the best." He tapped the bar with one finger. "And he'll use you. He uses everyone he loves, and he loves you, so watch out."
+
+Harry was quiet.
+
+He was thinking about a mirror in a disused classroom, and an old man in a blue dressing gown telling him a kind lie, and the thing under the sorrow that had been turning him over like a stone in its hands. He was thinking about a hospital wing, and a quiet satisfaction, the satisfaction of a man who has seen the last piece go exactly where he meant it to go. He was thinking about a hut on a night in May, and calm.
+
+He had three lines in his head under Dumbledore's name. He had kept them for two years. He had shown them to Evelyn once.
+
+He added a fourth.
+
+*His brother says: he uses everyone he loves.*
+
+"I know," said Harry.
+
+Aberforth looked at him.
+
+"Do you," he said. It was not a question. He looked at Harry for a long time, and the gruff buried thing under the bitterness came up a little way and looked at Harry too. "Yes. I think you probably do."
+
+He picked up the jug.
+
+"I've sent word," he said. "To somebody. About you. Last night."
+
+Harry went very still.
+
+"Not to him," said Aberforth. "Don't look at me like that. I'd sooner feed you to Mabel. To somebody else. Somebody who's got a right to know there's a Potter in my upstairs room, and who won't go running to my brother with it, because he can't stand being told to sit still any more than I can." He poured. "He'll come or he won't. If he comes, it'll be by the back stairs, and it won't be in a hurry, because he's not allowed out. And if he comes, you'll want to be sitting down."
+
+* * *
+
+He came on the third night.
+
+Harry was in the room upstairs. It was after eleven. Evelyn was sitting on her blankets on the floor with the 1962 almanac on her knee, reading the tide tables for Grimsby, because, she said, they were the only thing in it that was not out of date. Harry was at the window. The window looked out over the yard at the back, where the goats were, and a narrow lane, and beyond the lane the dark fields going up towards the forest.
+
+He felt it before he saw it.
+
+He felt it the way he had felt it once before, on a street corner in Little Whinging, at a dead lamp post by a gap between a garage and a fence.
+
+It was a person's feeling.
+
+It was coming up the lane from the fields, low down, fast, and it was enormous. It was loud the way only a very few people Harry had ever met were loud, Hagrid, Mrs Weasley, the whole of the Slytherin stand at a match. It was loud and it was all one thing, coming up the lane, and this time there was no grief in it, and nothing wild. Harry had felt it before only once, in a room with a mirror in it, from a man with glasses and black hair who had stood behind him in the glass.
+
+It was aimed at the window.
+
+"Evelyn," said Harry.
+
+She looked up.
+
+Something came over the wall of the yard. It came over in one long leap and landed among the goats, who did not seem to mind, and it was a dog. It was a very large black dog, thin, shaggy, with eyes that shone in the dark from the light of the window. It looked up.
+
+It looked straight at Harry.
+
+Then it crossed the yard, and Harry heard the back door, and he heard it come up the stairs, and he heard it miss the third step, which was not there, and swear.
+
+Dogs do not swear.
+
+The door opened.
+
+It was a man.
+
+He was tall and thin, much too thin, with a great deal of black hair that had been washed recently and still needed cutting, and a face that had been handsome once and was still handsome, underneath, in a starved, hollow, used-up way. His eyes were grey. They were very bright. He was wearing robes that were much too good for the Hog's Head, and they were covered in dog hair.
+
+He stopped in the doorway.
+
+He looked at Harry, at the window.
+
+Harry knew the face. He had seen it on the television in Privet Drive, and on the front of Stan Shunpike's newspaper, and on a poster on the wall of the post office four nights ago, blinking at him from very far back. Now it was right here, six feet away, in the doorway of a room that smelled of goats, and it was looking at him.
+
+Sirius Black.
+
+Harry did not move.
+
+He had a list in the inside pocket of his robe. It was folded twice. It said: *When he comes, I don't fight him. I read him instead.*
+
+He read him.
+
+And it was love.
+
+It was all love. It came across the room at him like a wave coming up a beach, and it did not stop, and there was so much of it that for a moment Harry could not find anything else. It was the loudest thing he had ever felt apart from Hagrid on a rock, and nearly louder than that. It was so loud that it was nearly painful, the way a light is painful when you have been in the dark, and it was all for him, every bit of it, and none of it was really for him. Most of it belonged to a boy in a tower, two miles away, who was taller and older and in Gryffindor. And it was for a man with glasses and black hair who had been dead for fifteen years. And Harry was standing where both of them should have been, and it had nowhere else to go, so it all came to him.
+
+Under the love, when he could find it, there was recklessness. There was a great deal of it. It was like a horse that has never been broken.
+
+Under that, despair. Grey and flat and very old, a cage of a feeling, and the man had been living in it for a long time and hated it more than anything in the world.
+
+And under the despair, coming up through all of it, right now, at this moment, looking at Harry: delight.
+
+"Merlin," said Sirius Black. "Look at you."
+
+His voice was hoarse. It sounded like a voice that had not been used properly for a long time.
+
+"Look at you," he said again. "You're tiny. You're about twelve. You're a *Slytherin*." He laughed. It was a bark of a laugh, very like a dog's. "Aberforth said. I didn't believe him. I said, Ab, you've finally gone, you've been at the goats too long. Look at you."
+
+He took a step into the room. Harry did not move.
+
+The man stopped.
+
+"Sorry," he said. "Sorry. You don't know me. Of course you don't know me. I'm…"
+
+"I know who you are," said Harry.
+
+His voice came out quiet. It always did, when he was angry. He had not known he was angry until he heard it.
+
+Sirius Black looked at him.
+
+The delight did not go. It stayed exactly where it was. But something came up beside it, quickly, a sharp new attention, the attention of a man who has been hunted for a long time and has just heard a twig snap.
+
+"Do you," he said.
+
+"In my world," said Harry, "you're a murderer."
+
+He said it quite carefully. He had thought, on the window seat, before the dog came over the wall, about how to say it, if he ever said it, and he had decided to say it plainly, because he wanted to see what happened when he did.
+
+"In my world you were my parents' Secret Keeper. You were my father's best friend and you were my godfather, and you gave them to Voldemort inside a week. And then you killed a man called Peter Pettigrew in a street full of Muggles, and twelve Muggles with him, and you stood in the road and laughed. You've been in Azkaban for twelve years. You got out last summer. You came into the castle in February with a knife and stood over Ron Weasley's bed because you thought it was mine." He stopped. "I've been planning to kill you since December."
+
+Evelyn had put down the almanac.
+
+Sirius Black stood in the middle of the room.
+
+He did not say anything for perhaps five seconds. Harry read him the whole time. The love did not go. The delight did not go. But the despair came up, from the bottom, slowly, and it came all the way to the top and spread out over everything, grey and flat, and Harry thought for a moment that the man was going to sit down on the floor.
+
+He did not sit down.
+
+He laughed.
+
+This laugh was nothing like the bark of a moment ago. It was high and thin and dreadful, and it went on too long, and it did not have anything in it that was funny. It was the laugh, Harry thought, of a man in a street full of bodies, and he stood by the window and listened to it and did not move.
+
+It stopped.
+
+"Of course you have," said Sirius Black. "Of course you have. Why wouldn't you? Everybody else has." He wiped his face with the back of his hand. "Merlin. Merlin, I'm sorry. That wasn't for you. That was… you've no idea how funny that is. You can't have. Sit down. Please. Sit down, Harry, and let me tell you about a rat."
+
+* * *
+
+He told it all.
+
+He told it sitting on the end of the narrow bed with his elbows on his knees and his hands hanging, the way Harry had sat in the Room of Requirement, and he did not stop, and Harry did not interrupt him once.
+
+He told him about four boys at Hogwarts. James Potter and Sirius Black and Remus Lupin and Peter Pettigrew. He told him that Remus was a werewolf, and that the three others had spent five years learning to become Animagi so that they could go with him at the full moon and keep him company, and that it had worked. James was a stag. Sirius was the dog. Peter was a rat.
+
+"A rat," said Sirius. "Should've known. Should've known from the start. But he was so…" He moved a hand. "He was ours. He was always just ours. You don't look at your own like that."
+
+He told him that when the Potters went into hiding, everybody had expected Sirius to be their Keeper. Everybody. Including Voldemort. And that Sirius had thought he was being clever.
+
+"I said, use Peter. Nobody'll think of Peter. They'll come for me, and I'll hold out, and they'll never even look at him." He laughed again, very short. "Brilliant. I was very pleased with myself. I thought I was a genius. I was twenty-one."
+
+He told him that he had gone to check on Peter on the night of Hallowe'en, and found his hideout empty, and no sign of a struggle. That he had gone to Godric's Hollow. That he had seen the house.
+
+He did not tell him what he had seen. He stopped, there, and did not go on for a while, and Harry read him, and did not need him to.
+
+He told him about the street.
+
+"I cornered him. Peter. Next day. I'd gone looking. I found him in a street full of Muggles and I had my wand out and I was going to kill him, I'm not going to pretend I wasn't. And he shouted. So everybody could hear. *Lily and James, Sirius, how could you.* And then, before I could do anything, he blew the street apart behind his back, and he cut off his own finger, and he turned into a rat, and he went down the sewer with the rest of them." Sirius looked at his hands. "That's the finger they found. That's all of him they found. His own finger. He cut it off himself. I've thought about that every day for fourteen years. I couldn't have done that. I'd never have thought of it."
+
+"And you laughed," said Harry.
+
+"I laughed." Sirius did not look up. "Twelve dead Muggles and James and Lily gone and the little rat had done me, done me completely, in about four seconds, and I was going to Azkaban for it, and I knew it. Of course I laughed. What else was there to do?"
+
+Harry read him.
+
+It was true.
+
+He read it the way he had read Hagrid in the Three Broomsticks, all the way down, every layer, and it was true. Every word. There was no lie anywhere in it. There was the old despair, and under the despair the old fury, and under the fury, at the very bottom, so deep it had worn a channel in him, there was grief. It was grief for James. It was the oldest, plainest, most worn-smooth grief Harry had ever felt. It was older than Aberforth's. It had been the floor of this man's life for fifteen years.
+
+It was true.
+
+Harry sat on the window seat.
+
+He thought about a list, folded twice, in the inside pocket of his robe. He thought about writing it in blue-black ink at a black stone desk with snow on his shoulders. He thought about the tenth line. *Quirrell did it himself.*
+
+He thought about a big book with brass corners, and a passage he had marked, and Evelyn sitting on her cushion with her face like a shut door saying *I'm not going to be the person who looked it up.*
+
+He thought about the eighteenth of December. Seven weeks. And two days. And then the rest of February, and the beginning of March.
+
+He had spent three months planning, very calmly, very neatly, to find the deepest thing in an innocent man and give it back to him until his heart stopped.
+
+He did not say anything.
+
+He found that his hands were shaking, and he did not try to stop them.
+
+"Which toe?"
+
+It was Evelyn.
+
+She was sitting on her blankets on the floor with the almanac closed on her knee, and she was looking at Sirius, and her face was the same as always.
+
+Sirius looked at her as though he had only just noticed she was there.
+
+"What?"
+
+"The rat," said Evelyn. "He cut off a finger. When he's a rat, which bit's missing? Which paw? Which toe?" She did not change her voice. "If he's still a rat, somebody might have him. Somebody might have a rat with a toe missing. It would help to know which one."
+
+Sirius stared at her.
+
+Then something happened to his face, and the delight came back up through the despair, all at once, like a bubble up through water.
+
+"Who are you?" he said.
+
+"Evelyn Selwyn."
+
+"Selwyn. One of Corvin's?"
+
+"Yes."
+
+"Merlin. I'm sorry for you." He was grinning now. It was a real grin, a young one, and it made his starved face look about twenty. "Front paw. Right front. The middle toe. Clean off at the first joint. I've seen him. I saw him in the paper, in my world, the summer before I got out. Some Ministry man won a prize and had his family photographed in Egypt, and there was the little rat, sitting on his youngest son's shoulder, bold as you like, with his toe missing."
+
+Harry went very still.
+
+"Egypt," he said.
+
+"Egypt. The Weasleys. Arthur Weasley's lot. Big ginger family. Peter's been living as their pet for twelve years." Sirius looked at him. "Why? What is it?"
+
+Harry thought about a bar in the Leaky Cauldron on the last night of August, and a red-haired boy saying very stiffly that they had won a prize, and going red, and going upstairs. He thought about a rat in the boy's top pocket. Old and thin and miserable. Missing a toe.
+
+He thought about a dormitory in Gryffindor Tower, and a man standing over the wrong bed, with a knife.
+
+Not the wrong bed.
+
+The right bed. The bed with the rat on it.
+
+"I've seen it," said Harry. "In my world. In August. Ron Weasley's got it. He had it in his pocket at the Leaky Cauldron." He heard his voice, very quiet. "You didn't come into the tower for me. In my world. You came for the rat."
+
+Sirius looked at him for a long moment.
+
+"I'd imagine I did," he said. "Yes. I'd imagine that's exactly what I did." He rubbed his face with both hands. "Merlin. Me. In your world. Out there on my own with no idea who to trust, and a boy who hates me, and a rat in a tower." He dropped his hands. "Find it, Harry. When you get home. Find the rat. And for God's sake, save my other self some trouble."
+
+* * *
+
+He stayed until two in the morning.
+
+Aberforth brought up a bottle of something that was not goat's milk, and two glasses, and a third glass with goat's milk in it for Harry, and a fourth with goat's milk in it for Evelyn, who looked at it and thanked him and put it on the floor. He did not stay. He looked at Sirius on the end of the bed and Harry on the window seat and said, "Don't be long. You're not supposed to be out. If my brother finds out I'll never hear the end of it," and went back downstairs.
+
+Sirius drank.
+
+He talked about James. He could not stop talking about James. He talked about him the way some people talk about the weather, or the news, because it was the thing that was there. James at eleven on the train. James at fifteen, failing to get anybody to go to Hogsmeade with him. James learning to be a stag.
+
+"Took him three years," said Sirius. "Three years of nothing, and then one night in our fifth year he got it, all at once, at about two in the morning, in the middle of the dormitory. And he was enormous. Antlers out to here. And he couldn't get out of the dormitory, because the door was a door, and he was a stag, and he couldn't turn back, because he'd forgotten how. So he stood there all night in the middle of the floor between the beds with his antlers wedged in the curtains of Frank Longbottom's four-poster, very dignified, absolutely silent, until about six, when he remembered." Sirius was grinning. "Frank slept through the whole thing. Never knew. Woke up and found his bed hangings full of holes and spent a week blaming the house-elves."
+
+Harry laughed.
+
+He did not expect it. It came up out of him all at once, the way it had in a white ward in St Mungo's with a man signing his own get-well cards, and he could not stop it. He thought about a stag in a dormitory with its antlers in the curtains, very dignified, absolutely silent, until about six. He laughed until he had to hold on to the window seat.
+
+Sirius was watching him.
+
+Harry read him and the delight was all the way up, now, at the top of everything, louder than the despair, louder than anything else in him. A man telling a good story did not feel like that.
+
+"That," said Sirius softly. "That's James. That's his laugh. You do it exactly like him."
+
+Harry stopped laughing.
+
+He did not know what to say.
+
+Sirius looked down into his glass.
+
+"He's…" he said. He stopped. "Harry. The other one. Mine. Up at the school." He did not look up. "You've seen him? Aberforth said you'd been up there a week."
+
+"Yes," said Harry. "I've seen him."
+
+"Is he all right?"
+
+Harry did not answer at once.
+
+"I can't get to him," said Sirius. "I'm not allowed out. Dumbledore's orders. I'm stuck in a house I hate, with a house-elf who hates me, and a portrait of my mother screaming at me from behind the curtains in the hall, and he's up there with that woman, with Umbridge, and I can't… I get letters. Sometimes. When it's safe. He doesn't say much." He turned the glass round. "Is he happy? You'd know. You can tell, can't you? Ab said. Is he all right?"
+
+Harry looked at him.
+
+He thought about the tall boy in the corridor outside the library, with his hands in his pockets and his face set, angry at everything, so angry that it had worn a groove in him. He thought about the red-haired boy and the bushy-haired girl walking either side of him, loving him, and the boy not noticing. He thought about a room full of people who trusted him like a staircase, and a stag walking through a wall.
+
+He thought about the cold thing at the bottom of him, in the place where he lived, that was not his.
+
+He read Sirius.
+
+He read him very carefully. The love, enormous, aimed at the window and the tower and the boy in it. The recklessness. The despair, the grey flat cage of it. And under all of it, right now, holding very still, waiting for the answer, a need. It was the simplest thing Harry had ever felt in him. It was the need of a man in a cage for one thing in the world to be all right.
+
+It needed the answer to be yes.
+
+"Yes," said Harry. "He's all right. He's got friends. Two of them. They're always with him. He's teaching a club. Defence. A dozen people. They'd follow him anywhere." He paused. "He's angry. About the Ministry. But he's all right."
+
+Sirius closed his eyes.
+
+Harry read the need go, all at once, the way a held breath goes. Something came up behind it that was so much like relief that Harry could not tell it apart.
+
+"Good," said Sirius. "Good. That's good." He opened his eyes and grinned again, and finished his drink. "Course he is. James's boy. He'd be all right in a cellar."
+
+Harry did not say anything.
+
+He did not know if it was true. He had read every bit of the tall boy that he could reach, and he had read the anger and the love round him and the cold at the bottom, and he did not know whether any of it added up to a boy who was all right, and he had said yes because a man who was going back to a cage needed him to.
+
+He thought that he had done it very well. He thought it was the kindest lie he had ever told.
+
+He was not sure the two things were different.
+
+* * *
+
+Sirius went at two.
+
+He stood up and stretched, and his back cracked, and he looked round the small room with the goat smell and the lumpy bed and the almanac on the floor, and at Evelyn on her blankets, who had not said anything since the toe, and at Harry on the window seat.
+
+"I'll come back," he said. "If Ab'll let me. If I can get out." He hesitated. "You'll be here?"
+
+"I don't know," said Harry. "We're trying to get home."
+
+"Right. Course you are." Sirius looked at him. "If you get there before I come back. If I don't see you." He stopped. Something moved in his face, quickly, and was gone. "Find the rat."
+
+"I will."
+
+"And Harry." Sirius was at the door. "The other me. Out there in your world, on his own, with his knife." He said it lightly. "Go easy on him. He's had a rotten time. And he's an idiot. But he'd die for you, whatever he looks like. I know he would." He grinned. "I would."
+
+He went out.
+
+Harry heard him on the stairs. He heard him miss the third step again, and swear again, more quietly. He heard the back door.
+
+He went to the window.
+
+The yard was dark. The goats were huddled together against the far wall, asleep. And then the back door opened below him, and a dog came out of it.
+
+It was a huge black dog, thin and shaggy, and it crossed the yard without hurrying, between the sleeping goats, to the wall. It stopped at the bottom of the wall. It turned its head and looked up at the window, at Harry, with its eyes catching the light.
+
+It looked at him for a long moment.
+
+Then it went over the wall in one long leap, and down the lane, low and fast, towards the dark fields and the forest, and Harry stood at the window and watched it go, and went on watching the place where it had gone long after there was nothing in the lane at all.
+
+Behind him, Evelyn picked up the almanac again and opened it at the tide tables for Grimsby, and did not read them.
+
+<->
