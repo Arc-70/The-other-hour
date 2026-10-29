@@ -16463,3 +16463,497 @@ She did not say anything.
 She did not have to. Her face was quite white, and she was holding her grandmother's watch so tightly in her hand that Harry could see the shape of the lid through her fingers, and the date in the corner of the frame said 1995.
 
 <->
+
+## Chapter 26: The High Inquisitor
+
+"We can't stay in the corridor," said Evelyn.
+
+"I know."
+
+"Somebody will come. A teacher. Filch. Whoever there is here, instead of Filch." She was still looking at the pink frame. "We can't go to the common room. There'll be people in our beds."
+
+"I know," said Harry.
+
+"There'll be a person in my bed," said Evelyn, "who is me."
+
+She said it quite flatly. Then she turned away from the notice and looked up and down the dark corridor, left towards the marble staircase, right towards the corner, as though she were reading a timetable. Harry watched her do it. He did not know what she felt. He thought that she was very frightened, and that she was dealing with it by deciding what to do next, and he thought that he might be wrong about all of it.
+
+He took the Map out of his pocket.
+
+His hands were not steady. He noticed that. He touched it with his wand and said the words, and the lines spread out across the parchment, and the castle came up in ink, the same castle, every corridor in its place.
+
+And it was full of names.
+
+Most of them were in the right places. Dormitories. Towers. *Argus Filch* on the third floor, moving slowly. *Peeves* in the trophy room. But *Albus Dumbledore* was not in the headmaster's study, or anywhere else. Harry went over the whole Map and could not find him. There was a dot in the headmaster's study, and it was labelled *Dolores Umbridge*.
+
+Evelyn had her finger on the Slytherin dungeons.
+
+She did not say anything. She only held her finger there, under a small cluster of dots in the sixth-year girls' dormitory, and Harry bent his head and read the name under her fingernail.
+
+*Evelyn Selwyn.*
+
+He looked at Gryffindor Tower. He did not mean to. His eyes went there by themselves, up past the fifth floor and the sixth and into the tower, into a dormitory with five beds in it.
+
+*Harry Potter.*
+
+"Right," said Evelyn, very quietly.
+
+She took her finger off the Map.
+
+"Right," she said again. "We need to be somewhere else before anybody comes. We need to sleep. We need to eat in the morning. We need to know what the date is." She looked at him. "And we need to not be us. Can you do that?"
+
+Harry thought about it.
+
+He had made a coin. He had made a coin walk across a desk. He had never once made anything larger than a coin, and he had never held one for longer than about a minute, and the book had said in the margin, *never begin with a face*.
+
+"I can try," he said.
+
+* * *
+
+He made them Hufflepuffs.
+
+He did it in an empty classroom on the third floor, by wandlight, with the door shut. He did it because Hufflepuff was the house nobody looked at twice, and because a Hufflepuff second-year was the most forgettable thing he could think of in the whole of Hogwarts. He thought about the Hufflepuff second-years he knew, at home. He thought about how he had never been able to remember any of their names.
+
+He took bits of them.
+
+A round face from one. Mousy hair from another. A nose that was nothing much. Ears that stuck out a little. He held them together in his head the way he had held the Galleon, until they were clear, and then he looked in the black window of the classroom at his own reflection, with his glasses and his scar and his hair that would not lie flat, and he put the face over it.
+
+It went on like a mask goes on.
+
+He looked at the window. A round-faced boy with mousy hair and ears that stuck out looked back at him, wearing Hufflepuff robes, which he had not even thought about, and which had come with the rest because a Hufflepuff second-year wore Hufflepuff robes.
+
+The boy had no scar.
+
+Harry looked at him for a long time.
+
+"Is it working?" said Evelyn.
+
+"Can't you see?"
+
+"I can see you," said Evelyn. "You. Glasses. Hair. The scar. Slytherin robes. You look exactly the same as you looked on Monday."
+
+"There's a different face on me."
+
+"I'll have to take your word for it."
+
+He did her.
+
+He did her more carefully than himself, because he could not see it work. He gave her straight fair hair, because hers was brown, and a small pointed chin, because hers was not, and freckles, which she did not have at all, and Hufflepuff robes. He made her a little shorter. He made her a girl you would sit next to in Herbology for a year without once wondering what she was thinking. He put the face on her the way he had put his own on, and he looked at her reflection in the black window, and a small fair freckled girl looked back at him.
+
+He could feel it.
+
+That was the strange part. He could feel both of them, the two faces, the way you feel something you are carrying. They were not heavy. They were more like something he was holding shut. As though he had his shoulder against two doors, in a wind, and the wind was not very strong yet, but it was there, and it was pushing, and if he stopped pushing back the doors would come open.
+
+"Well?" said Evelyn.
+
+"You're a Hufflepuff," said Harry. "You've got freckles."
+
+"I have not got freckles."
+
+"You have now. Lots."
+
+Evelyn looked at her own hands. She looked at her reflection in the window. She looked for a long time, and Harry knew what she was seeing, which was herself, exactly as she had always been, plain brown hair and a face people forgot and a Slytherin badge, and nothing else at all.
+
+"I can't see any of it," she said.
+
+"I know."
+
+"I'm going to walk about this castle tomorrow morning in front of hundreds of people, looking like myself, wearing a Slytherin badge, and I'm going to have to believe you that nobody can see me." Her voice did not change. "I'm going to have to trust you that it's there. That it's working. That you haven't let it slip. That I'm not standing in the middle of the Great Hall being me."
+
+"Yes."
+
+"I hate this," said Evelyn.
+
+"I know."
+
+"I want you to know that I hate it. I'm not going to say it again. I'm telling you once, so that it's on record." She looked at the window. "I've never in my life not been able to check something."
+
+Harry did not say anything.
+
+He thought that he had spent two and a half years not being able to check her, and that this was what it felt like from the other side, and that she had never once said she hated it.
+
+He did not say that either.
+
+* * *
+
+They slept in the classroom on the third floor, on the floor, under the Cloak, with their bags for pillows.
+
+Evelyn slept. Harry did not.
+
+He found that he could not. Every time he started to go under, the faces started to slip. He could feel them go, the way you feel your grip go on a rope when you are tired, and he would come back up, and catch them, and hold them shut again. He did not know whether he had to hold them when nobody was looking. He did not dare find out. He lay on his back on the cold boards and looked at the ceiling and held two doors shut against a wind that never stopped and never got any stronger, hour after hour, until the windows went grey.
+
+He thought about a lot of things.
+
+He thought about the skeleton in the Chamber. He thought about the dust on the desk, and the date in the corner of a pink frame, and a dot on a map that said *Harry Potter* in a tower he had never once been inside.
+
+He thought about the watch, stopped, in Evelyn's hand.
+
+He thought that he had grabbed her hand to stop her, and that if he had not, she would be here on her own.
+
+He did not know whether that was better or worse.
+
+* * *
+
+A Hufflepuff prefect stopped them on the stairs to the entrance hall at five past eight.
+
+She was a tall girl with a long plait and a badge and a clipboard, and she was tired and harassed and cross with the world, and none of it was aimed at them. Harry read that first. Then he read that she was going to ask them something.
+
+"Names," she said.
+
+Harry held the two doors shut.
+
+"Sorry?" he said.
+
+"Names. Second-years. Professor Umbridge wants everybody out of bed after hours put on a list, and I've got two second-years down as missing from the dormitory last night, and I'd quite like it to be somebody else's problem." She looked at them over the clipboard. "Well?"
+
+Harry read her. She did not know their faces. She did not know any second-year's face, particularly.
+
+"Not us," he said. "We were in."
+
+"Names," said the prefect again.
+
+"Cuthbert," said Evelyn. "Gwendolyn Cuthbert. He's my cousin. Ambrose."
+
+The prefect looked at the clipboard. She looked at them. Her eyes went over the faces Harry was holding on them, and did not catch on anything at all.
+
+"Not you, then," she said. "Hurry up. You'll miss the post."
+
+She went on down the stairs.
+
+"Cuthbert," said Harry.
+
+"It was the name of a horse at my grandmother's," said Evelyn. "When I was six. It bit me." She did not look at him. "Did it hold?"
+
+"Yes."
+
+"Good," said Evelyn. "Then I'll stop asking."
+
+* * *
+
+The *Daily Prophet* was on the Hufflepuff table at breakfast.
+
+They had walked in through the doors of the Great Hall at ten past eight with a crowd of other students, and nobody had looked at them. Harry had felt the eyes go over them and off again, the way eyes go over the furniture in a waiting room. Two Hufflepuff second-years. Nobody. They had sat down at the end of the Hufflepuff table, by a fourth-year who was asleep on his toast, and Harry had felt the doors push, and pushed back, and reached for the paper.
+
+Evelyn read it first.
+
+She read it under the edge of the table, quickly, the date first and then the front page and then the inside, and she put her finger under things as she went, the way she did in the library. Harry watched her face. It did not change at all. It did not change for the whole of the front page. Then she turned to page two and something at the corner of her mouth went very slightly tight, and she turned it back.
+
+She slid it across to him.
+
+*Friday, 26 April 1996*, it said, along the top.
+
+Harry looked at it.
+
+Two years. Two years and seven weeks. March was gone. It was the end of April, and it was two years on, and the boy in the tower with Harry's name was fifteen years old.
+
+He read the front page. It was about a Ministry decree on the registration of something. He read page two. Page two was about Dumbledore.
+
+It said that Dumbledore had been removed as headmaster of Hogwarts in March, after he had been found to be running an illegal student organisation dedicated to overthrowing the Ministry, and that he had escaped arrest by attacking the Minister for Magic and two Aurors, and that he was now at large. It said that Dolores Umbridge, the Senior Undersecretary to the Minister, had been made headmistress in his place. It said that there was no truth whatever in the rumours, put about by Dumbledore and a certain boy, that He Who Must Not Be Named had returned.
+
+There was a picture of Umbridge.
+
+She was squat and toad-like, with a black velvet bow in her hair and a pink cardigan, and she was smiling into the camera, and she had a small fat hand raised in a wave.
+
+"*He Who Must Not Be Named*," said Evelyn, very low, beside him. "*Returned*."
+
+"Yes."
+
+"*A certain boy.*"
+
+"Yes," said Harry.
+
+He looked up from the paper. He looked down the Great Hall, at the staff table, and Dumbledore's great gold chair was not in the middle of it. There was a smaller chair in the middle, with a cushion on it, and in the chair was a squat woman in pink with a velvet bow, eating a boiled egg with a very small spoon.
+
+He read her.
+
+He did not have to try. She was not loud, the way Aunt Marge had been loud. She was quiet. She was very pleased with herself, quietly, all the time, like a kettle that has been just off the boil for a very long while and is never going to cool. And under that pleasure there was a certainty. It was the most complete certainty Harry had ever felt in anyone. She was right. She was right about everything. She had always been right and she always would be, and anybody who said otherwise was something to be dealt with.
+
+And under the certainty, a long way down, very sweet, there was something that enjoyed the dealing with.
+
+Harry looked away.
+
+"Don't," said Evelyn.
+
+"Don't what?"
+
+"Don't look at her like that. You're making the face. The one you made at your aunt." She folded the *Prophet* and put it back on the table exactly where it had been. "Somebody might notice a Hufflepuff second-year staring at the headmistress."
+
+"They can't see my face."
+
+"They can see where you're looking," said Evelyn. "Lockhart said."
+
+* * *
+
+He saw the other Harry on the Saturday, in the corridor outside the library.
+
+He had not been looking for him. That was what he told himself afterwards. He had come up the stairs with Evelyn at a quarter past ten in the morning, two Hufflepuffs with books under their arms, because the library was the one place in any school where two people could sit all day without anybody asking what they were doing. And they had come round the corner by the hanging of the trolls, and there were three people coming the other way.
+
+Harry knew him at once.
+
+He would have known him anywhere. He did not know how. He was taller. He was much taller, a head taller than Harry, with longer legs and bigger hands and a face that had got thinner and older and sharper round the jaw. His hair was the same. His glasses were the same. He had a red and gold scarf wound round his neck, even indoors, and his robes had a lion on them where Harry's had a snake, and he was walking fast, with his hands in his pockets, talking.
+
+He had a red-haired boy on one side of him, a head taller still and very long and thin. Ron Weasley. Fifteen. He had a bushy-haired girl on the other side of him, carrying more books than Harry and Evelyn put together. Hermione Granger.
+
+They went past. They did not look at the two Hufflepuffs. The bushy-haired girl was saying something about Umbridge and the red-haired boy was saying something rude back, and the tall dark boy in the middle was not listening to either of them.
+
+Harry read him.
+
+He went into him the way he went into everybody, without thinking, and the first thing he found was anger.
+
+It was enormous. It was the loudest thing in the corridor. It was louder than the bushy-haired girl's worry and the red-haired boy's grumbling and the whole library's quiet put together. Nobody in particular had it. Everything did. It was aimed at Umbridge and the Ministry and the *Prophet* and the teachers and the Slytherins and the corridor and the stairs and the morning, and it had been going so long that it had worn a groove in him. It was the anger of somebody who was being told every day that he was a liar, and was not, and had nobody to hit.
+
+And it was loved.
+
+That was the second thing. That was what made Harry stop on the stairs with a book under his arm. The red-haired boy loved him. He did not show it, he was grumbling, he was saying something rude about Umbridge's bow, but under the grumbling it was there, steady, plain, a thing he did not think about any more than he thought about his own feet. The bushy-haired girl loved him. Hers was louder and more worried and it went out to him all the time, the way a hand goes out to a cup that is too near the edge of a table.
+
+They were walking either side of him. They were always going to be walking either side of him. Harry could feel that it had been that way for years.
+
+The tall boy did not notice. He was too angry to notice. He walked between them with his hands in his pockets and his face set, and the two of them loved him, loudly, on both sides, and he did not notice, because he did not have to. It was simply there. It was the floor he walked on.
+
+Harry stood on the stairs and read him.
+
+It was like reading his own handwriting upside down. He knew every shape of it. He knew the way the anger went quiet before it went loud, because his did that too. He knew the place under it where the boy kept something he was not going to say. He knew the way he walked, fast and a little ahead, as though the others might not keep up. He knew it all. And it was all the wrong way round, and slanted, and in a colour he would never have chosen, and he could not make it come out the right way up however hard he looked.
+
+And then he went further down.
+
+He did not mean to. He was a very good reader by now, after Slytherin's book. He went down into people the way most people go down the stairs, without looking, and he went down into the tall boy, past the anger, past the thing the boy kept that he was not going to say, all the way to the bottom.
+
+There was something there.
+
+It did not belong to the boy. It was in him, the way a stone is in a shoe. It was cold. It was very cold, and very still, and very old, and it had a shape that Harry knew. Nobody in the corridor was its target. It was pointed out, through the boy, at the whole world, and it was also pointed in, at the boy himself, at the place where he lived. And it did not have a top and a bottom. It was the same all the way through.
+
+He knew it.
+
+He had felt it once before. He had felt it in a moonlit clearing in the forest, bent over a dead unicorn, with its hood up. He had felt it on the back of a man's head, under a turban, in a room with a mirror in it. He had felt it go through him, screaming, the coldest thing he had ever felt.
+
+It was the same.
+
+It was very much smaller. It was a sliver of it, a splinter, a single cold drop. But it was the same.
+
+The three of them went round the corner and were gone.
+
+Harry stood on the stairs.
+
+"Potter," said Evelyn.
+
+He did not answer.
+
+"Potter. You're very pale. I can't tell if they can see that." She took his sleeve. "Come on."
+
+"That was me," said Harry. "In the scarf."
+
+"I know. I saw." She did not let go of his sleeve. "He's taller than you."
+
+"He's fifteen."
+
+"He's taller than you'll be at fifteen. You don't eat enough." She looked at the corner where they had gone. "Did they see us?"
+
+"No. They were talking about Umbridge's bow."
+
+"What did you read?"
+
+Harry did not answer.
+
+"Potter."
+
+"Later," said Harry.
+
+He let her take him into the library. He let her sit him down at a table at the back, behind a shelf of books on the goblin wars, and he sat there for about a minute, and then he got up very quickly and went out again, and found the boys' bathroom on the fourth floor, and was sick in it.
+
+He stayed there a while afterwards, with his forehead on the cold side of the cubicle.
+
+He held the two faces shut. He kept holding them. He found that he had held them all the way through being sick, and he did not know whether that was good or bad.
+
+* * *
+
+Evelyn had worked out the watch by Sunday afternoon.
+
+She did it in the library, at a table behind the goblin wars, with the watch open in front of her and her notebook open beside it. Potter was asleep. He had put his head down on his arms at half past one and gone out the way a lamp goes out, all at once, and she had sat very still and waited to see whether she could tell if the faces went.
+
+She could not. She could see him. She could only ever see him.
+
+A third-year Ravenclaw had walked past at a quarter to two and looked at their table and gone on, and had not looked twice, and so Evelyn had decided it was probably holding, and had let him sleep.
+
+She had a column.
+
+*1. It was wound backwards three turns. The third hand moved one tick back. We moved.*
+
+*2. We did not move in space. We were in the study; we woke in the Chamber, forty feet from the study door. Approximately the same place.*
+
+*3. We moved in time, forwards. Two years, seven weeks, as near as I can tell. (26 April 1996 by the Prophet.)*
+
+*4. That is not all.*
+
+She looked at the fourth line for a while.
+
+It was not all. If it were only time, they would have come out in a Hogwarts two years later than their own, and there would have been a fifteen-year-old Potter in it, and a seventeen-year-old her, but the fifteen-year-old Potter would have been in Slytherin. He would have had a snake on his robes. He would have been sitting at a table in the dungeons, being read by nobody.
+
+He was in Gryffindor.
+
+And the other her had never been to the study. Nobody had. The study had been shut for a thousand years and had dust on its desk, and the Chamber's door had a skeleton beside it that should have been grey meat. In this place nobody who could read hearts had ever put his hand on the stone. In this place, Potter was in Gryffindor.
+
+*So it is not our world, later*, she wrote. *It is a world. Near ours. Where some things are different. One of them is that he went to Gryffindor.*
+
+She underlined it.
+
+Then she looked at the watch.
+
+It lay open on the table. Its hands had not moved since the Chamber. The second hand stood at twelve. The fine silver hand stood one tick back from where it had stood every morning for three years and four months. She had tried winding it forwards on the Thursday morning, in the classroom on the third floor, at twenty past six. Twenty turns. The crown went round. Nothing happened. Nothing caught. It was like turning a key in a lock that had been taken out of the door.
+
+*Never wind it backwards. And if you ever do, wind it forwards again at once.*
+
+She had not done it at once. She had been lying on the floor of the Chamber, and then she had been looking at a skeleton, and then at a notice in a pink frame. By the time she had remembered, it had been six hours.
+
+She wrote: *5. Grandmother knew. She knew what it did. She knew because she had done it. Nobody is told "never" and "at once" like that by somebody who is only guessing.*
+
+She looked at that for some time.
+
+*6. If she did it, she came back.*
+
+*7. So there is a way back.*
+
+She turned the watch over in her hand. On the back of the case, under the ivy leaves, very small and worn almost smooth, there was a mark she had always known was there and had never once thought about. A maker's mark. A tiny engraved shape, like a triangle with something inside it, too worn to read.
+
+She did not know whose it was.
+
+She thought about Myrtle, in the bathroom, saying *you look just like that horrible Potter boy*. She thought about the Map, and a dot in the sixth-year girls' dormitory in the dungeons under the lake, labelled with her own name.
+
+If Potter was here, in this world, twice, then so was she.
+
+And if she was here, then so was her grandmother. Or had been. Isadora Hale had lived in this world too, and had a granddaughter, and when the granddaughter was eleven she had given her a watch, and told her to wind it every morning.
+
+There would be a second watch.
+
+There would be a second watch, in this world, the twin of the one on the table in front of her. It would be in a cardigan pocket in the sixth-year girls' dormitory of Slytherin, in the dungeons, under the lake. It would have been wound that morning. Twenty turns.
+
+Evelyn looked across the table at Potter, asleep on his arms, holding two faces shut in his sleep.
+
+She did not know if a second watch would get them home. She did not know if anything would. She did not know what her grandmother had done in nineteen forty-whatever, or where she had gone, or how she had come back.
+
+But if anybody in this world knew how to get out of it, it was going to be whoever had the other watch.
+
+She wrote it down.
+
+*8. Find her.*
+
+* * *
+
+Harry found the room on the seventh floor on the Sunday night, because Tom had told him it was there.
+
+He had not thought about it for over a year. He had been lying on his back on the floor of the classroom on the third floor with the faces held shut, and he had been thinking about where else in a castle two people could sleep, and he had remembered a line in a small neat sloping hand in the pages of a black book, a long time ago, when it had been easy to talk to.
+
+*A room on the seventh floor. It's only there when you need it.*
+
+He found it on the Map first. There was a stretch of corridor on the seventh floor, opposite a wall-hanging of a wizard trying to teach trolls to dance, and there was nothing on the Map there at all, only blank wall. And there were names going into the blank wall.
+
+They were going in at eight o'clock, by ones and twos, over about a quarter of an hour.
+
+*Ronald Weasley. Hermione Granger. Neville Longbottom. Ginny Weasley. Luna Lovegood.* A dozen others. And then, at five past eight, last, *Harry Potter*.
+
+And then nothing. The names were inside the wall, and the Map did not know about the inside of the wall, any more than it knew about the Chamber.
+
+"It's a club," said Evelyn.
+
+She was looking at the Map over his shoulder, in the classroom, by wandlight.
+
+"It's against the decree," she said. "Number twenty-four. *No club, society, team or group of three or more.* That's a dozen people. More." She looked at him. "They're meeting anyway."
+
+"Yes."
+
+"The *Prophet* said Dumbledore was running an illegal student organisation. It said it had been found out. In March." She was quiet for a moment. "This is it. They got caught, and Dumbledore went, and they're still meeting."
+
+Harry folded the Map.
+
+"Who's the girl with the corks?" said Harry. "Lovegood."
+
+"I don't know. There's no Lovegood at home in my year or yours." Evelyn's finger moved down the list of names. "There's no Lovegood at home at all. Or there is, and I've never noticed her." She was quiet. "That's possible. People don't notice."
+
+"I'm going to go and look," he said.
+
+"I know you are," said Evelyn. "I'm not."
+
+He looked at her.
+
+"I'm not going to stand in a room full of people who can see me and trust you that they can't," she said. "Not tonight. Not after this morning. You go. Take the Cloak. Take the face off and put the Cloak on, it'll be one less thing for you to hold." She sat down on the floor with her back against the wall and opened her notebook. "I've got something to work on."
+
+"What?"
+
+"I'll tell you when I'm sure," said Evelyn.
+
+* * *
+
+He walked past the blank wall three times before he understood.
+
+He was under the Cloak, with his own face back on, and it was such a relief to let the two faces go that he had stood in the corridor outside the classroom for a full minute with his eyes shut, not holding anything. Then he had gone up to the seventh floor and stood opposite the dancing trolls and looked at the wall. It was a wall. There was nothing in it.
+
+He thought about Tom's line again. *Only there when you need it.*
+
+He thought, very hard, that he needed to see what was happening inside, and that he needed nobody inside to see him.
+
+He walked past the wall. He turned and walked back. He turned again.
+
+On the third pass, there was a door.
+
+It was a small door, plain, at the far end of the stretch of wall, the sort of door that leads to a broom cupboard. Harry opened it very slowly. It opened onto the back of something, a tall wooden screen, and round the edge of the screen there was light, and voices.
+
+He slipped through and stood behind the screen and looked round its edge.
+
+It was a big room.
+
+It was long and high, lit with torches, with cushions on the floor and bookshelves along the walls, and it was full of people. There were perhaps fifteen of them, from every house except Slytherin, standing in a loose crowd in the middle of the floor with their wands out. Some of them Harry knew. Neville Longbottom, much taller. Ernie Macmillan, broader, with a Prefect's badge. The red-haired twins were not there. Ginny Weasley was, at the front, fourteen, fierce, with her chin up. There was a dreamy-looking blonde girl with a necklace made of corks whom Harry had never seen in his life.
+
+And in the middle of them, with his wand in his hand, was the tall dark boy in the red and gold scarf.
+
+"Again," he was saying. "Think about it properly. Don't just remember it. Think about how it felt."
+
+He was teaching them.
+
+Harry stood behind the screen and watched him teach them.
+
+He was not a good teacher, exactly. He was impatient. He said "No, look, like this," a great deal, and he walked up and down, and when somebody got it wrong he ran a hand through his hair until it stood up worse than ever. But they were watching him. All of them. Every single person in the room was watching him, and Harry read them, one after another, and every one of them had the same thing in them, aimed at the tall boy in the middle.
+
+They trusted him.
+
+Not the way the Slytherin common room had trusted the Heir, with wanting underneath it. Plainly. They trusted him the way you trust a staircase you have walked down every day of your life. He had stood up and said something that the whole country said was a lie, and they had believed him, and they were here, in a room that should not exist, at night, breaking the Ministry's rules, because he had asked them to be.
+
+And the tall boy did not know.
+
+Harry read him and he did not know. He was too angry and too tired and too busy saying "No, look." He did not know what the room felt about him. He could not feel it. He would never be able to feel it. He had all of it, every bit of it, right there, all round him, and he could not feel it any more than he could feel the air.
+
+Harry stood behind the screen for a long time.
+
+He watched the crowd in the middle of the room raise their wands and say the words, over and over, and get silver mist, the way he had got silver mist in the History of Magic classroom with Lupin. He watched the blonde girl with the corks produce something that might have been a hare. He watched Ernie Macmillan produce something that was not anything. He watched Neville try nine times and get nothing and try a tenth.
+
+He read the room. He kept reading it. He could not stop.
+
+He read the red-haired boy, who had given up for the moment and was sitting on a cushion watching the tall boy with exactly the same steady, unthinking love Harry had felt in the corridor. He read Hermione Granger, standing beside the tall boy, correcting someone's wand grip, worried, always worried, and the worry was for him.
+
+He did not read the cold thing at the bottom of the tall boy. He kept well away from it. He did not go down that far again.
+
+"Watch," said the tall boy. "Just watch. And then do it."
+
+He lifted his wand.
+
+He did not seem to think about it very much. He did not close his eyes. He looked at the end of his wand the way you look at a door you have walked through a thousand times, and Harry, behind the screen, read him, just the top of him, and felt the anger go quiet for a moment, all at once, as though a hand had been laid on it. And under the anger, where it had been, something came up that was not anger at all.
+
+"*Expecto patronum*," said the tall boy.
+
+A stag came out of his wand.
+
+It was silver, and it was bright, and it was as real as anything in the room. It had a great spread of antlers, and it stood for a moment at the end of the tall boy's wand with its head up, quite still. Then it began to walk. It walked across the room, between the cushions, through the crowd, which parted for it, and nobody said anything, and the light of it went over all their faces one after another as it passed.
+
+It came very close to the screen.
+
+It came so close that Harry could have put his hand out from behind the wood and touched it, if it had been a thing you could touch. It turned its head. Its silver eye looked at the screen, and through the screen, at the place where he stood under the Cloak with his own face on and his breath held, and for a second he thought it saw him.
+
+It did not stop.
+
+It walked on past him, across the long room, and through the far wall, and was gone.
+
+Harry stood behind the screen in the dark and watched the place where it had been.
+
+He watched it for a long time after the room had gone back to its noise, and the tall boy had turned round and said "See? Like that," to Neville, and Neville had tried for the eleventh time. He watched the empty air at the end of the room until his eyes stung, as though the stag might come back if he kept looking.
+
+It did not come back.
+
+<->
