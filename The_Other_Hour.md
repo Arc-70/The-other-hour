@@ -21617,3 +21617,587 @@ He stood in the doorway and looked at her hand for a long time.
 He did not ask.
 
 <->
+
+## Chapter 35: Durmstrang
+
+"The Triwizard Tournament," said Dumbledore, and the Great Hall went so quiet that Harry could hear the rain on the enchanted ceiling.
+
+Then it went the other way.
+
+It came up off the four tables all at once, the way the stadium had come up off the moor in August, and Harry had his hand flat on the Slytherin table and his attention on the silence at his left elbow before it reached him. He had been ready for it. He had been ready for most things since the moor.
+
+He turned it down and listened.
+
+There would be three schools. There would be three champions, one from each. There would be three tasks, spread over the year, dangerous ones, and the prize was a thousand Galleons and eternal glory, and the champions would be chosen by an impartial judge, and nobody under seventeen would be allowed to put their name forward, because the tasks would be difficult and the Ministry did not wish to lose anybody.
+
+"Not this time," said Dumbledore pleasantly, and sat down.
+
+The Slytherin table erupted.
+
+Harry read it. He did not have to try. It was excitement, mostly, the plain loud excitement of a hundred people who had just been told there would be something to watch all year. But under the excitement at the Slytherin table, much more than at any of the others, there was something hungrier. It was the wanting he had felt in the common room in the winter of his second year, when they gave him the best chair. They wanted it to be one of theirs. They wanted it badly.
+
+"Seventeen," said Millicent. "Seventeen. That's not fair. That's Warrington and Montague and nobody."
+
+"Warrington would die in the first task," said Theo.
+
+"Then he'd have eternal glory."
+
+"He'd have eternal something."
+
+Evelyn was eating her pudding. She had been eating it at exactly the same speed since the announcement started, and she had not looked up, and Harry could not read her, and he had stopped expecting to.
+
+She had been back at school for one day. She had been in black at Selwyn Hall and in black at the World Cup, and she had come onto the train in grey, which was nearly the same thing, and she had sat by the window and read the whole of *Gaudy Night* between King's Cross and Hogsmeade without speaking, and turned every page at exactly the same interval.
+
+He had counted. He had not been able to help it. It was forty seconds a page.
+
+"What do you think?" he said.
+
+"About what?"
+
+"The Tournament."
+
+Evelyn put down her spoon.
+
+"I think," she said, "that in seventeen ninety-two a cockatrice got loose in the second task and three of the judges ended up in St Mungo's, and that the Tournament has been cancelled for two hundred years because of the death toll, and that the Ministry has spent a great deal of money to bring it back, and that people who spend a great deal of money to bring back things that kill people generally have a reason." She picked up her spoon again. "And I think you're not seventeen."
+
+"I know I'm not seventeen."
+
+"Good," said Evelyn. "Then I don't need to think anything else."
+
+* * *
+
+The new Defence teacher had come in during the feast.
+
+He had come in through the doors at the end of the Hall in the middle of Dumbledore's speech, out of a crash of thunder, and walked up between the tables, and every head in the room had turned to watch him. Harry had read him all the way.
+
+He was a terrible thing to look at. Every inch of skin Harry could see was scarred. His mouth looked as though it had been put on with a knife, and a large piece of his nose was missing. One of his legs was wooden and clunked on the stone. And one of his eyes was not an eye. It was a great round electric-blue thing, much larger than an eye ought to be, and it moved on its own, up and down and round, and it rolled right round in his head, so that Harry, at one point, could see only white.
+
+Alastor Moody. Dumbledore said so. Nobody clapped except Dumbledore and Hagrid.
+
+Harry read him because he was the loudest thing in the room.
+
+He expected a great deal of suspicion. He had heard of Mad-Eye Moody. Everybody had. Half the cells in Azkaban, Theo said, had been filled by him. Harry expected suspicion and old anger and the grinding watchfulness of a man who had spent forty years waiting for somebody to try to kill him.
+
+There was some of that. It was on the top.
+
+Under it there was something else, and it was very strong, and it was very fierce, and it came up through Moody the moment he reached the staff table and turned round and looked down the Hall, and the electric-blue eye swung round, and stopped.
+
+It stopped on Harry.
+
+And the fierce thing in Moody came up, all at once, and it was aimed at Harry, straight at him, the way Hagrid's gladness had been aimed at him in the hut on the rock, the way Sirius's love had been aimed at him across a goat-smelling room. It was devotion. It was so large and so fierce that it was almost frightening.
+
+Harry did not know what to do with it.
+
+He thought about it, after. He lay in the dormitory under the lake with the green light coming through the round window and he thought about a man who had spent his whole life catching Dark wizards, looking down the Great Hall at the boy who had made the darkest of them all disappear. He thought about a man who had been at the War, and lost friends in it, and had a piece of his nose bitten off, and a leg, and an eye, and who had never met Harry in his life.
+
+He thought that it was the obvious thing. That an old Auror who had fought Voldemort would look at the boy Voldemort could not kill and feel something fierce. That it was the same thing Fudge had felt in the parlour of the Leaky Cauldron, only bigger and rougher, because Moody was bigger and rougher than Fudge.
+
+That it was protectiveness. That was all.
+
+He decided that, and turned over, and went to sleep.
+
+* * *
+
+The first Defence lesson was on the Thursday of the second week, with the Gryffindors, and Moody began it by calling the register without looking at the register, because the eye could see through the back of his own head.
+
+Then he told them about the Unforgivable Curses.
+
+"Ministry says you're too young," he said. He had a gravelly growling voice that seemed to come from somewhere under the floor. "Ministry says you shouldn't see them till you're in your sixth year. Ministry's wrong. You need to know what you're up against. You need to see it. You need to have looked at it." The eye swung round the room. "Because one day somebody's going to point a wand at you and say one of three words, and if you don't know what's coming, you'll be dead before you've worked it out."
+
+He took a jar out of his desk.
+
+There were three large black spiders in it.
+
+Harry read them. He could read spiders faintly. He had read a hollow full of them in the forest, a long time ago, all hunger and hurry. These were small and hungry and frightened, the way things in jars always were.
+
+Moody took one out. He let it sit on his palm. He pointed his wand at it.
+
+"*Imperio*," he said.
+
+The spider dropped off his hand on a fine thread and began to swing to and fro like a trapeze artist. It did a cartwheel on the desk. It did a tap-dance. The class laughed. Draco Malfoy laughed loudest.
+
+Harry read the spider.
+
+There was nothing in it. Not fear, not hunger, not hurry. The little faint thing that had been a spider was gone, and there was something else in its place, and the something else was Moody, very small and very quiet, sitting in the spider the way a hand sits in a glove.
+
+Harry stopped laughing. He had not been laughing much.
+
+Moody put the spider back in the jar. He took out another.
+
+"*Crucio*," he said.
+
+The spider's legs bent in over its body. It rolled over. It began to twitch, horribly, from side to side.
+
+Harry read it.
+
+He did not mean to. He had been reading the first spider and he was still reading, the way you go on looking at something after it has gone, and the second spider came into his reading at the moment Moody spoke.
+
+It was the worst thing he had ever felt from a living creature.
+
+It was very small, because the spider was very small. It was a spider's feeling. But it was all of it. There was nothing else in the spider. There was no top and no bottom and no thing underneath. There was only the one thing, filling it, the whole of it, every leg, and the thing was pain, and it went on, and on, and it did not stop, and it did not change, and there was no end to it anywhere that the spider could see.
+
+Harry put both hands flat on the desk.
+
+He turned it down. He could not turn it down. It was too close and too pure and too simple, and it went through every door he had.
+
+"Stop it," said somebody.
+
+It was Hermione Granger. She was on her feet. "Stop it! Can't you see it's bothering him? *Stop it!*"
+
+Harry looked up.
+
+She was not looking at him. She was looking at Neville.
+
+Neville Longbottom was sitting two desks from Harry with his hands clenched on the desk in front of him, white to the knuckles, and his eyes very wide and fixed on the spider, and Harry read him, and Neville was not frightened. Neville was not anything Harry had a name for. He was looking at a spider twitching on a desk, and something very old in him had been opened, and what was in it was a room. A room, and two people in it, and they did not know him.
+
+Moody lifted his wand.
+
+The spider's legs relaxed. It lay on its back, twitching very slightly.
+
+Harry read Moody.
+
+He had been reading him since the feast. He read him now, quite carefully, the way he read anybody who did something he did not understand. And on the top Moody was grim. He was hard and grim and ugly and he had done a hard ugly thing in front of a class because they needed to see it. That was the top.
+
+Under the top, very quietly, Moody was enjoying himself.
+
+It was small. It was quite small and it was quite well hidden and it went down again almost at once. But it had been there. While the spider twitched on the desk and Neville Longbottom went white and Hermione Granger stood up and shouted, there had been a part of Mad-Eye Moody, a long way down, that was pleased. That liked it.
+
+Harry looked at the spider.
+
+He thought: *he's an Auror. He's spent forty years with Dark wizards. He's been tortured, probably. He's had his leg taken off. He's half mad, everybody says so.*
+
+He thought that a man like that might come to like the hard ugly things a little, after forty years.
+
+He thought that that was just Moody.
+
+And he did not read the third curse. When Moody took the third spider out of the jar and pointed his wand at it and said the two words Harry had last heard in a room under a trapdoor, from a man kneeling in front of a mirror with his wand at the back of his own head, Harry did not read it. He had turned himself all the way down. He watched the green light. He watched the spider roll over and lie still. He did not read the place where it had been.
+
+* * *
+
+"He enjoyed it," said Evelyn.
+
+She did not ask. She said it. They were in the library, at her table under the window behind the Goblin History shelves, at twenty past four, and Harry had told her about the lesson because he told her most things, and she had listened without saying anything, and then she had said that.
+
+"I didn't say that."
+
+"You didn't have to. You did the thing with your mouth." She turned a page. "When you say *he's an Auror, he's half mad*, and you do the thing with your mouth, it means you read something you didn't like and you've decided it's all right."
+
+"It is all right."
+
+"Is it?"
+
+Harry looked at her.
+
+"He's on our side," he said. "He's fought Voldemort. He's spent his whole life putting Death Eaters in Azkaban. He looked at me at the feast like…" He did not know how to finish it. "He's on our side, Evelyn. He'd die for me, I think. I could feel it."
+
+Evelyn did not say anything for a moment.
+
+"You felt Quirrell," she said.
+
+She said it quite quietly. She did not look up from her book.
+
+Harry did not answer.
+
+"I'm not saying anything," said Evelyn. "I'm saying that you felt Quirrell, and you were right about everything you felt, and you were wrong about what it meant. You told me so yourself. On the lake shore. Two Mays ago." She turned another page. "You can feel what people feel. You can't feel what they're going to do with it. That's all I'm saying."
+
+"I know that."
+
+"Good," said Evelyn. "Then I don't need to say it again."
+
+She went back to her book. Harry looked at her for a while, the face he could not read, bent over a book about fifteenth-century goblin treaties that she did not need for anything.
+
+He thought that she was right.
+
+He thought that he did not like it.
+
+He thought, for some reason, about her right hand closed on a stopped watch in a tent at four in the morning, and about how he had not asked, and about how she had said *you can feel what people feel* and not *I can't feel anything you feel*, and how those were different, and how she had chosen the first.
+
+He did not say any of that.
+
+* * *
+
+Beauxbatons came on the thirtieth of October, at six in the evening, out of the sky.
+
+They came in a carriage the size of a house, powder blue, pulled by a dozen winged horses as big as elephants, palominos, each one with eyes like red fire. The carriage came down over the forest and hit the ground in front of the castle with a crash that knocked three Hufflepuff first-years over, and a boy in pale blue robes jumped down and unfolded a set of golden steps, and down them came the largest woman Harry had ever seen.
+
+She was as tall as Hagrid. She was handsome and olive-skinned and dressed in black satin, with a great many opals, and she came down the steps of the carriage and looked at the school drawn up in rows on the front steps, and Dumbledore went down to meet her, and had to reach up to kiss her hand.
+
+Madame Maxime. Headmistress.
+
+Harry read her. She was proud. She was very proud, and she was tired from the journey, and under the pride, a long way down, she was something that Harry did not expect, which was wary. She looked at the castle and the rows of children and the great bulk of Hagrid at the end of the staff line, and she was wary of all of it, the way a woman is wary who has spent a long time being looked at for being the size she is.
+
+Then she saw Hagrid looking at her.
+
+Harry read that too, and looked away, because it was not his business.
+
+"Well," said Millicent, beside him. "I want one of those horses."
+
+"They drink only single-malt whisky," said Evelyn.
+
+"How do you know that?"
+
+"It was in the *Prophet*. Page nine. A story about the Tournament arrangements. Hagrid's been given the job of looking after them." Evelyn looked at the horses. "I expect he's very happy."
+
+"He's very something," said Millicent, who had seen Hagrid's face.
+
+* * *
+
+Durmstrang came out of the lake.
+
+Harry felt it first. He felt it before anybody saw anything, before the lake moved, before Lee Jordan, at the end of the Gryffindor rows, said "*Look*", because there was somebody under the water.
+
+There were a great many somebodies under the water. Thirty or so. They were very cold and very close together and very bored, and over them, under them, round them, there was something else: a kind of pressure. The same pressure he felt from the lake every night through the round window of the dormitory, only moving.
+
+Then the middle of the lake began to turn.
+
+It turned in a great slow whirlpool, black in the dusk, and out of the middle of the whirlpool came a mast, and then another, and then a ship.
+
+It was a skeleton of a ship. It looked as though it had been raised from a wreck, which perhaps it had, with its portholes glowing faint and misty like the eyes of something drowned. It came up out of the lake with the water pouring off its rigging and sat on the surface, rocking, and a gangplank came down onto the bank, and people came down it.
+
+They were big. They were all big, boys and girls, in thick furry cloaks, shaggy and matted, and they came up the bank in a crowd and the man at the front of them was tall and thin, with short silver hair and a wispy goatee that did not quite hide a weak chin.
+
+"Dumbledore!" he called up the steps. He had a voice like a man who had been told a long time ago that it was charming. "How are you, my dear fellow? How are you?"
+
+Karkaroff.
+
+Harry read him and did not like him. It was very quick. Karkaroff was smiling, and the smile went up and out like a lamp left on in an empty house, and under it, straight away, close to the surface, there was fear. He was frightened all the time. He was frightened the way Pettigrew had been frightened on the floor of the Shack, for himself, only better dressed.
+
+Harry looked past him.
+
+There was an old man at the back of the Durmstrang crowd.
+
+Harry would not have seen him at all if he had not been reading. He was old, very old, older than Dumbledore perhaps, though it was hard to tell, and he walked with a stick. It was a plain black stick with a silver end, and he leaned on it, and he came up the bank last, slowly, behind everybody, and stopped at the foot of the steps and looked up at the castle.
+
+He had a thin brown face, very lined, and white hair cut short, and a pair of small round spectacles, and he was wearing a plain black coat instead of furs. He looked like a tutor. He looked like the sort of man who corrected your Latin.
+
+Harry read him.
+
+There was not much on the top. He was tired. He was cold. He was looking at the castle with something like interest, the way a man looks at a building he has read about in a book.
+
+Then his eyes moved along the front steps, along the rows of Hogwarts students, the Gryffindors and the Ravenclaws and the Hufflepuffs, and came to the Slytherins.
+
+And stopped.
+
+They stopped on Evelyn.
+
+And something came up in the old man so fast and so hard that Harry, three people away from her on the step, nearly took a step back.
+
+It was recognition.
+
+It was the recognition of a man who has seen a face he did not expect to see ever again. It came up through the tiredness and the cold and the interest, all at once, and under it, straight away, close behind it, so close that they were almost the same thing, there was shame.
+
+It was very old. It was older than anything else in him. It had been there so long that it had worn him into its shape, the way Lupin's guilt had worn a shape in Lupin. It was the shame of a man who had done something a long time ago that he had never once, in all the years since, stopped being ashamed of.
+
+And it was aimed at Evelyn.
+
+Harry looked at her.
+
+She was standing on the step between Millicent and Theo with her hands in her pockets, in her grey cardigan, looking at the ship. She was not looking at the old man. She had not noticed him at all. She was looking at the ship's rigging with her head slightly on one side, the way she looked at things when she was counting them, and the old man at the foot of the steps was staring at her as though she were a ghost, and she did not know.
+
+Harry looked back at the old man.
+
+The old man had looked away. He had turned and was speaking to one of the big Durmstrang students in a language Harry did not know, quite calmly, leaning on his stick. The recognition had gone back down. The shame had gone back down with it.
+
+They had not gone away.
+
+"Who's that?" said Harry, very low.
+
+"Who?"
+
+"The old man. At the back. With the stick."
+
+Theo looked. "No idea," he said. "Teacher, I suppose."
+
+"Varga," said Evelyn.
+
+Harry turned his head.
+
+"Elias Varga," said Evelyn. She did not take her eyes off the ship. "Master of Wards at Durmstrang. He's been there forty years. He's written a book on protective enchantments that the Ministry still uses. It's in the library. Third floor, Restricted, under V." She counted something else on the rigging. "He's Hungarian. There was a piece about him in *Transfiguration Today* in nineteen ninety-one. He doesn't like having his photograph taken."
+
+"Why?"
+
+"It didn't say," said Evelyn. "It just said he didn't."
+
+* * *
+
+At the feast, Durmstrang sat with Slytherin.
+
+They sat down the whole length of the table, in their thick furs, and took off their cloaks, and were very big, and the Slytherins were delighted. Draco Malfoy moved up so that Viktor Krum, who was one of them, the Seeker, still hunched and duck-footed and silent, could sit next to him, and talked at him for the whole of the first course without stopping. Krum said four words. Harry counted.
+
+Varga sat at the staff table.
+
+He sat at the far end, next to Karkaroff, and he did not eat very much, and he did not talk to anybody. And four times during the feast, Harry saw his eyes come down the Hall to the Slytherin table and stop at the place where Evelyn sat.
+
+Harry read him every time.
+
+Recognition. Shame.
+
+Every time, the same.
+
+Evelyn did not notice. She was talking to a Durmstrang girl called Poliakova, who had sat down beside her and asked her, in heavy English, what the Hogwarts library was like, and Evelyn was telling her, very precisely, in order, with the opening hours, and Poliakova was looking slightly frightened and very interested.
+
+Harry did not tell her.
+
+He did not know why. He thought about it, after, lying in the dormitory. He thought that it was nothing. That an old man had looked at a girl four times across a feast, and the girl was plain and forgettable and nobody looked at her twice, and the old man had looked at her four times, and each time he had been ashamed.
+
+He thought that if he told her, she would want to know what he had read.
+
+And he thought about her hand, closed on a watch, in a tent, and he did not tell her.
+
+* * *
+
+The Goblet of Fire stood in the entrance hall for a week, on a three-legged stool, inside a thin golden line on the floor that Dumbledore had drawn with his own wand. Nobody under seventeen could cross the line.
+
+Fred and George Weasley tried it with an Ageing Potion on the Thursday and came out with long white beards. The whole entrance hall laughed. Harry laughed. He read the twins as they went to the hospital wing, comparing beards, and they were delighted with themselves, and not sorry, and thinking about what to do next.
+
+He did not go near the Goblet.
+
+He watched people put their names in. He watched Cedric Diggory do it, at eight in the morning, with his Hufflepuff friends round him, cheering, and Cedric red and grinning. He watched the Durmstrang students put theirs in, one after another, Krum last. He watched a tall girl from Beauxbatons with long silver-fair hair walk across the line and drop in her name without looking at anybody, and read her, and found her proud and frightened and homesick all at once and very good at hiding all three.
+
+He watched Warrington put his name in, and Theo say "Oh, dear," very quietly beside him.
+
+He did not go near it at all.
+
+* * *
+
+On Hallowe'en, the Goblet chose.
+
+The Great Hall had been cleared of the feast, and the Goblet stood on the staff table, in front of Dumbledore's empty chair, and the candles had been dimmed so that the only light was the blue-white fire leaping in the cup. The whole Hall was waiting. Harry could feel it. It was the stadium again, a much smaller one, all leaning the same way.
+
+The flames turned red.
+
+A charred piece of parchment came out of them.
+
+"The champion for Durmstrang," said Dumbledore, catching it, "will be Viktor Krum."
+
+The Slytherin table roared, because Krum was sitting at it. Krum got up and slouched up the Hall and through the door behind the staff table.
+
+"The champion for Beauxbatons is Fleur Delacour."
+
+The silver-haired girl. She went up like a swan.
+
+"The champion for Hogwarts," said Dumbledore, "is Cedric Diggory."
+
+The Hufflepuff table went mad. Every one of them on their feet, stamping and yelling, and Harry read them and it was joy, plain, uncomplicated, the joy of a house that never won anything. Cedric went up the Hall grinning, and Harry read him, and he was very happy and very nervous and determined not to show either.
+
+Dumbledore was smiling.
+
+"Excellent," he said. "Well, we now have our three champions. I am sure I can count upon all of you…"
+
+He stopped.
+
+The flames in the Goblet had turned red again.
+
+Harry felt it before he saw it. He felt the Hall change. It went from three hundred people cheering to three hundred people looking, all at once, at the cup on the staff table, and the cheering stopped, and in the place where it had been there was nothing but a long held breath.
+
+A fourth piece of parchment came out of the flames.
+
+Dumbledore reached up and caught it. He held it. He looked at it for a long moment.
+
+"Harry Potter," he said.
+
+* * *
+
+Nobody clapped.
+
+The Hall did not do anything at all for about four seconds, and Harry, sitting at the Slytherin table with his hand on the wood and the silence at his left elbow, read every single person in it.
+
+He read disbelief, first. It was everywhere, all at once, in every house. Nobody could believe it.
+
+Then the disbelief went, all at once, the way ice goes off a pond in a thaw, and what came up under it was different in every house.
+
+From Hufflepuff, anger. It came up hot and sudden and red, and it was all for Cedric. Their champion. The first thing they had won in a hundred years. And Harry Potter, the Heir of Slytherin, the boy who set a snake on Justin Finch-Fletchley, had cheated his way in beside him.
+
+From Gryffindor, the same anger, colder.
+
+From Ravenclaw, envy. Sharp and clever and sour. *How did he do it?*
+
+From the staff table, alarm. Harry could not read Dumbledore, who had closed. He could read McGonagall, and she was white and furious and frightened. He could read Snape, and Snape's loathing had come up, cold and sure, and over it, very quickly, something sharp that Harry did not have time to name. He could read Moody. Moody was looking at him with the electric-blue eye and the ordinary one, both at once, and the fierce devoted thing in him had come all the way up, so large that it was almost the only thing in him.
+
+It was pleased.
+
+Harry did not have time to think about that either.
+
+Because the Slytherin table was standing up.
+
+It stood up all at once, all of it, a hundred people, and the noise that came off it was louder than anything the Hufflepuffs had made for Cedric, and Harry read it, and it was triumph. It was pure, savage, glorious triumph. *One of ours.* The Heir. The boy who talked to snakes. A fourth-year, fourteen years old, and he had beaten Dumbledore's Age Line and the Goblet's judgement and the Ministry's rules and made it in, and it did not matter how, and it did not matter that it was impossible. It only mattered that he had.
+
+"Potter!" Somebody was thumping him on the back. Warrington. "*Potter!* How did you… you sly… *Potter!*"
+
+Draco Malfoy was not standing up.
+
+Harry read him. He was sitting very still at the table, with Krum's empty plate beside him, and he was not cheering. He was jealous, very sharply, all the way through. And under the jealousy he was frightened, and the fright was not for himself. It was for Harry. Draco Malfoy, who hated him, was sitting at the Slytherin table being frightened for him, and did not know it, and would have died rather than know it.
+
+"Potter," said Evelyn.
+
+He turned his head.
+
+She had not stood up. She was sitting exactly where she had been sitting, with her hands on the table, and her face told him nothing, and she was looking at him.
+
+"Did you?" she said.
+
+"No."
+
+She looked at him for one second longer.
+
+"No," she said. "I didn't think so."
+
+"Harry Potter!" called Dumbledore, from the staff table. "Harry! Up here, if you please!"
+
+* * *
+
+The room off the Great Hall was small, with a fire, and portraits on the walls, and the three champions were standing in front of the fire when Harry came in.
+
+Krum looked up and did not say anything. Fleur Delacour turned round and tossed her silver hair and said, "What is it? Do zey want us back in ze 'All?"
+
+Cedric looked at him.
+
+Harry read him, and he did not have time to do anything with it, because the door opened behind him and the adults came in. Dumbledore. McGonagall. Snape. Karkaroff, with a face like thunder, and Madame Maxime, enormous, and Moody, clunking, and a short round man in Quidditch robes who was Ludo Bagman, and behind them, very stiff and very grey, Mr Crouch.
+
+Harry read Crouch as he came in. He could not help it. It was the same as at the World Cup. Terror. Shame. Under the shame, the hard locked thing, very still, not moving.
+
+Then everybody was shouting.
+
+Karkaroff was shouting that it was an outrage. Madame Maxime was shouting that Hogwarts could not have two champions. Snape was saying, in a voice like a knife being drawn across a plate, that Potter had always considered himself above the rules. McGonagall was telling Snape to be quiet. Bagman was saying that it was all most extraordinary, but rules were rules, and Mr Crouch was saying that the Goblet was a binding magical contract and the boy had no choice.
+
+Dumbledore did not shout.
+
+He waited until they had finished. Then he looked at Harry.
+
+"Did you put your name in the Goblet of Fire, Harry?" he said calmly.
+
+"No," said Harry.
+
+"Did you ask an older student to put it in for you?"
+
+"No."
+
+Harry read him.
+
+He was closed. He was nearly always closed, now. But it was a small room, and Dumbledore was standing very close, and he was looking straight at Harry, and Harry was a better reader than he had been a year ago, and there was an edge.
+
+At the edge, there was belief.
+
+Dumbledore believed him. That came first, very quickly, plain. He had looked at Harry and asked him and Harry had said no, and Dumbledore believed it, all the way down.
+
+Then there was alarm. It came up behind the belief, very fast, and it was very large, and it was aimed somewhere else. Not at Harry. At the cup on the table in the Hall. At whoever had put the name in.
+
+And then, behind the alarm, slowly, like water settling in a glass, there was something else.
+
+It was resignation.
+
+"Then there is nothing to be done," said Dumbledore. "Mr Crouch is right. The Goblet is a binding magical contract. Harry's name came out. He must compete."
+
+The room was very quiet.
+
+Harry looked at him.
+
+"You could stop this," he said.
+
+He said it quietly. He did not raise his voice. He said it so quietly that only the people nearest could hear it, and the people nearest were Dumbledore and McGonagall and Cedric Diggory.
+
+"You could stop this, sir," said Harry. "If you wanted to."
+
+Dumbledore looked at him for a long moment.
+
+He did not close. That was what Harry remembered most, afterwards. He did not close, the way he had closed in the hut on the night of the first of May, or at the Mirror, or in the hospital wing with the Stone. He stayed exactly as he was, with the edge open, and Harry read him.
+
+He was sorry. He was very sorry.
+
+And he was not going to.
+
+"I am afraid," said Dumbledore gently, "that I cannot."
+
+Harry read the resignation settle all the way down, like silt, to the bottom of him.
+
+He did not say anything else.
+
+He added a line, in his head, under the six.
+
+*Nothing can be done. He was alarmed. And then he decided to be resigned about it.*
+
+He looked at the line for a long time.
+
+* * *
+
+Cedric caught him in the corridor afterwards, as the adults were still arguing and the other champions were being sent to bed.
+
+"Potter," he said.
+
+Harry stopped.
+
+Cedric was tall and fair and in his sixth year now, and he had his hands in his pockets, and he looked awkward. Harry read him. He had read him once before in a corridor and found him decent all the way down, and been irritated by it. He read him now.
+
+He was confused. He was disappointed, slightly, the way you are disappointed when something you have worked for turns out to have been halved without anybody asking you. That was the top, and it was quite small, and Cedric was ashamed of it.
+
+Under it, he did not believe Harry had cheated.
+
+He had looked at Harry's face in the room off the Hall when Dumbledore asked, and he had seen it, and he did not believe it. Not for a moment. And he was grateful. He was grateful to Harry for not having cheated, for not having taken it from him that way, which was a very strange thing to be grateful for, and he knew it was strange, and so he was hiding it.
+
+"I just wanted to say," said Cedric. "I don't think you did it. Put your name in. I don't think you did."
+
+"Thanks," said Harry.
+
+"The others will. My lot. Hufflepuff. They'll think you did. They're going to be…" He made a face. "I'll tell them. For what it's worth. I'll tell them I don't think so."
+
+"They won't listen."
+
+"Probably not." Cedric looked at him. "I'll tell them anyway."
+
+He went off down the corridor towards the kitchens and the Hufflepuff common room.
+
+Harry watched him go.
+
+He read him all the way down the corridor, and there was nothing in him that was not decent, and Harry was not irritated by it this time. He did not know what he was instead.
+
+* * *
+
+The Slytherin common room was the loudest he had ever known it.
+
+It was nearly midnight when he came through the stone wall, and the whole house was waiting. They had not gone to bed. They were all there, a hundred of them, first-years to seventh-years, and the fire was built up high, and somebody had got Butterbeer from somewhere, crates of it, and somebody else had charmed the green lamps to flash silver.
+
+They cheered when he came in.
+
+It came off them all at once, the way it had in the Hall, and it went over him and under him and through every door he had. It was triumph. It was the same as in the Hall, only closer, and louder, and in a low room under a lake, with nowhere for it to go.
+
+They had put the chair out.
+
+The middle armchair of the three by the fire. The best chair. The one the seventh-years had given up for him in the winter of his second year, when he was the Heir, and he had sat in it, and somebody had brought him tea. It was empty. It was waiting for him. Warrington was standing beside it like a footman.
+
+"Potter," somebody said. "Potter, sit down. Sit *down*. Tell us how you did it."
+
+He did not sit down.
+
+He stood by the stone wall with a hundred people round him, and he read them, every one, and he could not stop. He read the triumph. He read the delight. He read Pucey, who was in his last year, eager and greedy and proud. He read Montague, envious, cheering anyway. He read a crowd of fifth-year girls who had never spoken to him and were looking at him now as though he were made of gold.
+
+He read what was under it.
+
+It was the wanting. The old wanting, from the winter of his second year. It was under every one of them, under the triumph and the delight, very deep, the same in all of them. They wanted it to be true. They wanted it more than anything. They wanted one of theirs to have done the impossible, by any means at all, and they did not care how. They did not care that it was impossible. They did not care that it was dangerous.
+
+They did not care, Harry read, and read again, and could not stop reading, whether he lived.
+
+They did not want him to die. Nothing so simple. It only did not matter. They wanted the triumph. They wanted the Heir in the Tournament. And if the Heir came out of the first task in pieces, they would be sorry, and they would have had the triumph, and that would be worth it.
+
+He stood with his back to the stone wall and the noise went over him like water.
+
+He thought about the Hall. He thought about Dumbledore saying *I am afraid that I cannot*. He thought about Moody, pleased. He thought about Crouch with something locked under the floor. He thought about a cup on a table that killed people, and a name in it that he had not put there.
+
+Somebody had put it there.
+
+Somebody had stood in front of the Goblet of Fire in the night, past the Age Line, past Dumbledore, and put in a slip of parchment with his name on it, so that he would have to stand in front of something that killed people. And he did not know who. And he had read every adult in the room off the Hall and not found it.
+
+And here was his own house, cheering.
+
+He found Evelyn's silence.
+
+She was by the far window, in the chair by the draught, where she had sat every evening for a year and a half before anybody but him noticed. She was not cheering. She was sitting with her book on her knee and her hands on the book and she was looking at him across the whole loud room.
+
+He rested on her.
+
+He put his whole weight on her, across the common room, the way he had at the stadium, and it was the only still thing within a hundred feet, and it was not enough.
+
+It was the first time it had ever not been enough.
+
+The common room roared. Somebody pushed a Butterbeer into his hand. Warrington was saying *sit down, Potter, sit down*, and the green lamps were flashing silver, and a hundred people who did not care whether he lived were cheering his name, and they were happier than he had ever felt them, and he stood against the cold stone wall under the lake and was more frightened of a room than he had ever been in his life.
+
+<->
