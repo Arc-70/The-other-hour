@@ -25040,3 +25040,515 @@ There was the tree, and the footprints, and the dragged mark in the earth, and t
 Harry looked at it for a long time.
 
 <->
+
+## Chapter 41: Pensieve
+
+Dumbledore was not in his office.
+
+The gargoyle had let Harry up at four o'clock on the second of June, because Dumbledore had sent for him, a note at breakfast in green ink, *Would you be so good as to come up at four? I should like to talk about Mr Crouch. A.D.* And Harry had come up the moving stairs and knocked on the polished door, and it had swung open on its own, and the room was empty.
+
+There was a note on the desk.
+
+*Called away to the Ministry. Back by half past. Please make yourself at home. The sherbet lemons are in the jar on the left; the one on the right is cockroach clusters, which are Fawkes's.*
+
+Harry put the note down.
+
+He had been in this room three times. Once at twelve, wet and filthy, with a sword in his hand and Mrs Weasley's arms round him. Once in the third year, with Fudge, that he did not remember well. And once in his head, through the eyes of a boy in a world where he was in Gryffindor, which did not count.
+
+He looked round it.
+
+It was a large round room, full of things. There were silver instruments on spindle-legged tables, puffing smoke and whirring. There were portraits of old headmasters and headmistresses all round the walls, asleep in their frames, snoring gently. There was the Sorting Hat on a shelf, battered and patched. There was Fawkes on his golden perch by the door, who opened one eye and looked at Harry and closed it again.
+
+Harry read him. It was what it always was with Fawkes. A clean wind. Very faint. Pleased to see him.
+
+There was a cabinet.
+
+It was a black cabinet, against the wall behind the desk, and its door was not quite shut. There was a silvery light coming out of the gap, very faint, moving, like light off water.
+
+Harry went to it.
+
+He did not think about it very hard. He thought about it afterwards and he still could not decide whether he had been curious or whether he had been something else. He thought that Lockhart had once told him that a man who leaves a door ajar in a room full of things is either very careless or very much hoping that somebody will look.
+
+He opened the door.
+
+* * *
+
+There was a stone basin inside.
+
+It was shallow and wide and carved round the edge with runes and symbols that Harry did not know, and it was full of something that was neither liquid nor gas. It was silver and it moved. It moved the way clouds move, and the way water moves, and the way light moves on a ceiling when the sun is on a pond outside, all at once, ceaselessly, very slowly, with a faint sound like rain very far away.
+
+Harry looked down into it.
+
+There was a room in it.
+
+Not a reflection. A room, seen from above, from the ceiling, through a window in the bottom of the basin. A large room, dark, with benches round it rising in tiers, full of people. A great many people.
+
+He leaned closer.
+
+He did not mean to touch it. He leaned over it to see better, the way you lean over a well, and the end of his nose touched the silver, and the room in the basin came up at him very fast, and the office went away.
+
+* * *
+
+He was falling.
+
+He was falling through something cold and black, and then he was not, and he was sitting on a bench, very hard, at the back of a large dark room. There were people all round him on the benches. They were all looking down at the floor of the room, which was a long way below, at a chair in the middle of it with chains on its arms.
+
+He knew the room.
+
+He knew it the way you know a place you have never been and have heard described. It was a courtroom. It was very old, and very dark, and the benches rose in tiers on every side, and it felt like the bottom of the Ministry.
+
+Nobody looked at him.
+
+He was sitting next to a witch in a purple hat, and she did not move up, and she did not look at him, and he put his hand out to touch her sleeve and his hand went through it.
+
+A memory. He was inside a memory.
+
+He did not know how he knew that. He did not need to know. He looked round the courtroom and there, on the bench right beside him, sitting very upright with his hands folded in his lap, was Dumbledore. Not the Dumbledore of now. His hair was a little darker, and his beard. His face was the same.
+
+This was Dumbledore's memory. Harry was sitting in it.
+
+He looked down at the chair in the middle of the floor.
+
+* * *
+
+There were three trials. Harry sat through all of them.
+
+He did not leave because he did not know how. And then, by the second, he did not leave because he did not want to.
+
+The first was Karkaroff.
+
+He came in thinner, with his goatee black instead of grey, shaking, between two Dementors, and they put him in the chair with the chains, and he talked. He talked very fast. He gave names. Name after name, of people who had worn the Mark, and a man with a toothbrush moustache, younger, much less grey, sitting behind a desk at the front of the room, wrote the names down and said *that one is dead* and *that one we have* and *that one is not enough*.
+
+And then Karkaroff said a name that made Dumbledore, on the bench beside Harry, stand up.
+
+*Snape.*
+
+"The court has had my word on this already," said the Dumbledore in the memory. "Severus Snape came back to us before the end, and he came back at a cost to himself that I will not describe in this room. I vouch for him. I shall go on vouching for him."
+
+He sat down.
+
+Harry looked at him.
+
+And then he did something he had never done. He did not decide to do it. He was sitting in a courtroom that was not there, inside a memory that was not his, next to a man who was not real, and he reached for him the way he reached for everybody, all his life, without thinking.
+
+And he felt him.
+
+It was very faint. It was much fainter than a real person. It was faint the way the voices in the hall of prophecy had been faint, a voice in smoke, a person in a picture. But it was there. It was a feeling, inside the memory, coming from the young Dumbledore on the bench, and Harry could read it.
+
+He was certain. That was the top of it. Quite certain, and very firm, about Snape.
+
+And under the certainty, small and quiet and very old, there was grief. None of it was for Snape. It was for something Snape had told him, a long time ago, in a cold place on a hill.
+
+Harry sat very still on the bench.
+
+He thought: *I can read memories.*
+
+He thought: *I couldn't do that before.*
+
+He thought about Tom in the diary, a long time ago, showing him a memory of a headmaster's office and a dungeon and a boy with a box. He had read the people in that memory too. He had thought it was because the diary was different, because Tom was in it. He had not thought it was him.
+
+He looked down at the floor of the courtroom and read the man at the desk.
+
+Mr Crouch. Younger. Stiff and grey and upright already. He was angry, very cold, the cold anger of a man who has been at war for years and is winning. Under the anger, there was nothing very much. Righteousness. A great deal of it.
+
+He did not have the locked thing yet. Harry looked for it. It was not there.
+
+* * *
+
+The second trial was a man called Bagman.
+
+He was younger and fitter and laughing too much, and he had passed information, he said, without knowing, to a man he thought was a friend of his father's. The crowd on the benches cheered him. They cheered him because he was a Beater for the Wimbourne Wasps and had won the League. Crouch, at his desk, was furious. Bagman was cleared.
+
+Harry read him. He was frightened. Under the laughing, very frightened. Under the frightened, a gambler's hope, small and greedy, that it would all come out all right if he just kept smiling.
+
+It had, too. Harry thought about the Bagman who had bounced on the balls of his feet with a purple bag of dragons, worried about money.
+
+The courtroom changed.
+
+It went like a page turning. The benches were fuller and the light was different and there was a woman crying somewhere at the back and the man at the desk was greyer.
+
+There were four people in chairs on the floor now, four chairs, in a row.
+
+Two men. A woman. A boy.
+
+The woman had heavy-lidded eyes and thick black hair, and she was sitting in her chair as though it were a throne. Harry knew her. He had seen her face on a poster on the post office wall in another world, blinking. He had seen her on a stone step by an arch with her wand up, three steps up on the left, not laughing for once. The red light.
+
+She was laughing now.
+
+The boy was in the last chair.
+
+He was about nineteen. He was thin and straw-haired and freckled, and he was very pale, and he was shaking, and he was looking up at the man at the desk.
+
+At Mr Crouch.
+
+"Father," the boy said. "Father, please."
+
+Crouch read the charges.
+
+They had tortured two people. They had gone to their house, the four of them, after the Dark Lord fell, looking for him, looking for where he had gone. They had found an Auror and his wife. They had used the Cruciatus Curse on them until the Auror and his wife had lost their minds.
+
+Their name was Longbottom.
+
+Harry did not move.
+
+He thought about Neville in a Defence lesson, white to the knuckles, watching a spider, and a room, and two people in it, who did not know him.
+
+He read the boy in the chair.
+
+He did it on purpose this time. He went into the memory and into the boy, as far as a memory would let him, and it was faint, the way the young Dumbledore had been faint, but it was all there.
+
+The boy was terrified.
+
+It was enormous. It filled him, all of him, the way the spider's pain had filled the spider. He was nineteen and he was in a chair with chains on its arms and his father was reading out what he had done in a voice like iron, and he was so frightened that there was hardly anything else in him at all.
+
+Hardly anything.
+
+Under the terror, a long way down, there was something else. It was very small, and very hard, and it was not frightened at all.
+
+It was devotion.
+
+It was fierce. It was so fierce that it was almost frightening. It was aimed at nobody in the room. It was aimed far away, at somebody who was not there, somebody gone, somebody the boy would have died for and was going to Azkaban for and would go on loving in his cell until he died. It was a devotion so complete that it had no top and no bottom. It was the whole floor of him.
+
+Harry sat on the bench and looked at it.
+
+He knew it.
+
+He did not know how he knew it. He had felt it before. He had felt something exactly that shape, that fierce, that complete, aimed with that same terrible certainty. He reached for where he had felt it and could not find it. It slid away from him, the way a name slides away when you are tired.
+
+He let it go.
+
+He read the man at the desk instead.
+
+Crouch was reading the sentences. He was reading them in his iron voice, without looking at the boy, and the boy was screaming now, *Father, it wasn't me, Father, please, not there, not with them*, and the woman in the front row of the benches who had been crying was crying louder, and Crouch did not look up.
+
+Harry read him.
+
+And there it was. He watched it happen. He watched it form.
+
+It was shame. It began in Crouch as the boy screamed and it was enormous and it was iron-coloured and it came up through the righteousness like a wall going up, stone by stone, very fast. And as it went up, Harry saw that it was going up round something. It was going up round a love, a father's love, small and old and desperate, the love of a man for a thin straw-haired boy who had once been a baby. And the shame went up round the love on every side, and over the top of it, and closed.
+
+It became the thing under the floor.
+
+Harry watched it become it.
+
+"*Take them down*," said Crouch. He did not look up from the paper. "*All four.*"
+
+* * *
+
+"I think," said a voice, very quietly, beside him, "that is quite enough."
+
+A hand had taken his arm. It was a real hand. It was the only real thing in the courtroom. Harry turned his head and there were two Dumbledores, one on the bench beside him, young, upright, watching the boy being dragged out, and one standing behind the bench with his hand on Harry's elbow, old, the Dumbledore of now.
+
+"Come," said the old one. "Up, Harry."
+
+And Harry was rising, through the courtroom, through the dark, like a man coming up through water, and the courtroom went, and he was standing in the office with the silver instruments puffing and the portraits snoring and Fawkes on his perch, and Dumbledore was standing beside him with his hand still on his arm, and his face was very grave.
+
+"I'm sorry," said Harry. "The door was open. I didn't mean…"
+
+"I left it open," said Dumbledore. "That was careless of me." He let go of Harry's arm. "It is called a Pensieve. One siphons thoughts from one's head into it, when one has too many, and looks at them at one's leisure. One sees patterns that way. Connections." He closed the cabinet door. "I was looking at Barty Crouch's son. I had been looking at him since the forest. I wondered whether there was something I had missed."
+
+Harry read him.
+
+He was closed. Of course he was closed. But Harry had just been inside his memory, and he had read the young Dumbledore there, faint as smoke, and he found that he could feel the edges of the old one now, very slightly, the way you can still see a light for a moment after you have looked at it.
+
+At the edge, Dumbledore was worried.
+
+He had been worried for a long time.
+
+"Professor," said Harry.
+
+"Yes?"
+
+He thought about it. He thought about it very carefully, standing in the round office with the instruments whirring. He thought about a cabin on a ship at one in the morning, and an old man in a red dressing gown with a cup of lemon tea, saying a word and then wishing he had not.
+
+He decided to test him.
+
+He did not do it to hurt him. He did it the way you test a stair before you put your weight on it.
+
+"Who is the Concordat?" said Harry.
+
+* * *
+
+Dumbledore went very still.
+
+It was the stillest Harry had ever seen him. It was the stillness of Aberforth at the bar with a watch on a dirty cloth in front of him. Everything stopped. The hand that had been reaching for the jar of sherbet lemons stopped. The kind tired face stopped. The blue eyes behind the half-moon spectacles stopped.
+
+And Harry felt it.
+
+He felt it through the edge, the way he had felt the young Dumbledore in the courtroom. It came up all at once, very fast, enormous, and it was shock. It was the shock of a man who has heard a word he has not heard said aloud by anybody else in fifty years, said in his own office, by a boy of fourteen.
+
+Then the door closed.
+
+Harry felt it close. He had felt Dumbledore close before, many times, at the Mirror and in the hospital wing and at the hut. He had never felt it like this. It did not close gently from the inside, the way it usually did. It shut. It shut the way a door shuts in a wind, all at once, hard, and the edge was gone, and there was nothing.
+
+Dumbledore picked up a sherbet lemon.
+
+He unwrapped it. He did it slowly. He put it in his mouth.
+
+"Where did you hear that word, Harry?" he said pleasantly.
+
+"I read it," said Harry. "In a book."
+
+"Which book?"
+
+"I don't remember," said Harry. "One of Pucey's grandfather's. In my second year."
+
+That was not true. He had never once in his life lied straight to Dumbledore's face with his mouth. He had lied with his head, in a hospital bed, and been believed. He had never told him a plain lie in words.
+
+He did it now. He watched Dumbledore while he did it.
+
+Dumbledore looked at him over the spectacles for a long moment.
+
+"It is an old agreement," he said, "between old people. A very long time ago. About matters that have not troubled anybody for a great many years." He sat down behind the desk. "It is of no concern to anybody your age, Harry, and I hope it never will be. Now. About Mr Crouch."
+
+He began to talk about Mr Crouch.
+
+Harry sat in the chair in front of the desk and listened, and answered, and told him again about the forest and the tree and *Weatherby* and the hand in the glove, though he did not say *hand in the glove*, he said *it was as though he was being made to do it*. And Dumbledore listened, and nodded, and asked careful questions, and his face was kind and grave and tired.
+
+He did not open again.
+
+Harry added a line to the ledger in his head. It was the eighth.
+
+*I said the word Concordat. He flinched. Then he shut the door so hard I heard it. Then he told me it was nothing.*
+
+He looked at it for a long time.
+
+* * *
+
+Evelyn had gone to Nurmengard at Easter.
+
+She had told Potter first. She had told him on the Tuesday before the holidays, in the study, on her cushion, with the watch ticking in her pocket, that she was going, and how, and for how long, and that she would be back on the Sunday night. He had looked at her across the black desk in the cold green light, and she could not tell what he was thinking, and he had said, *Will you tell him about me?*, and she had said, *No*, and he had said, *All right.*
+
+It was the first time she had gone anywhere and told him first.
+
+She found she did not mind it.
+
+* * *
+
+"I should like to meet the boy," said her grandfather.
+
+It was the third afternoon. It was raining at Nurmengard, a thin cold April rain that came in at the narrow window and made a dark stain on the stone floor under it, and he was sitting on the bed with his long white hands on his knees and he had been teaching her a Transfiguration of air into water for two hours, and she had got it eleven times.
+
+She did not look up.
+
+"No," she said.
+
+"No?"
+
+"No."
+
+"Why not?"
+
+Evelyn turned the cup in her hands. It had water in it. She had made the water. It was very cold.
+
+"Because you'd look at him," she said. "The way you look at me. As though he were something you'd been told about for years and finally been let into the room to see. And you'd see things. You'd see what he is. And you'd want something."
+
+"I don't want anything."
+
+"You want to know," said Evelyn. "That's wanting something."
+
+Grindelwald looked at her for a long moment, with his pale eyes, in the grey light from the window.
+
+Then he smiled. It was a different smile from the dry paper one, smaller and older, and it went all the way up into his eyes.
+
+"That," he said, "is very wise."
+
+"Is it?"
+
+"Yes. It is what your grandmother would have said. She said it to me about a great many people, in eleven years. She was always right, and I always met them anyway." He looked at the window. "She would have liked you very much. She would never have said so. But she would have."
+
+Evelyn did not answer.
+
+She drank the water. It was very cold and tasted of nothing at all.
+
+* * *
+
+He said it as she was leaving.
+
+He said it on the last afternoon, the Saturday, at the door, as she was putting on her coat. Varga was waiting at the bottom of the stairs with his stick and his lantern. The rain had stopped and the sky in the narrow window was very clear and very pale.
+
+He had walked her to the door. He did that, now. He stood up from the bed every time she went, and walked the three steps to the door with her, and inclined his head.
+
+"Oh," he said. "One more thing."
+
+She turned round.
+
+He said it quite idly. He said it the way you say a thing about the weather, or about a book you have half-read and do not much care for. He was looking past her, at the window, at the pale sky.
+
+"If you are ever asked to watch a maze," said Gellert Grindelwald, "watch the edge of it. Not the middle."
+
+Evelyn looked at him.
+
+"Why would anybody ask me to watch a maze?"
+
+"I have no idea," said her grandfather. "I am an old man and I say a great many things. Elias will tell you so." He inclined his head. "Safe journey, Evelyn. Wind the watch."
+
+He shut the door.
+
+She stood on the top step of the stairs at Nurmengard for some time, with her coat half buttoned, looking at the door.
+
+Then she went down the three hundred and eighty-one steps behind Varga's lantern, and she counted them, and at the bottom she took out her notebook and wrote it down, word for word, under a line.
+
+*If you are ever asked to watch a maze, watch the edge of it. Not the middle.*
+
+She underlined *edge*.
+
+* * *
+
+Divination was on Monday afternoons, at the top of the North Tower, and Harry had taken it in his third year because Theo had, and because it was supposed to be easy, and because there was nobody in the castle he could read less usefully than a teacher who did not know what she felt about anything.
+
+He had found out, in March of last year, after the Chamber floor and the room of clocks, who she was.
+
+He had climbed the silver ladder to the trapdoor on the first Monday after they came back, and sat down at one of the little round tables in the hot perfumed room with its chintz armchairs and its fire, and the teacher had come out of the shadows in a great many shawls, with her enormous spectacles magnifying her eyes, and said, in a misty voice, *Welcome back, Mr Potter. I have been so worried. The Inner Eye told me you were in great danger.*
+
+And Harry had sat at his round table and not moved for a long time.
+
+It was her.
+
+The woman in the smoke. The shawls and the spectacles and the thin face. The voice had been different, harsh and deep and not hers, and she was not speaking in that voice now, she was speaking in a misty, wavering, rather silly one about the Inner Eye. But it was her.
+
+He read her.
+
+He read her every Monday afterwards, for a year, very carefully. He read her the way he had read the stone behind the statue's feet, looking for the thing at the bottom.
+
+She was lonely. That was the top of her. She was lonely and she was frightened that she was a fraud and she drank sherry, a great deal of it, in the afternoons. Under that, she wanted very badly to be believed. Under that, a long way down, there was nothing. There was no Seer. There was no harsh deep voice. There was a woman in a tower, alone, who had once, once, by accident, opened her mouth and let something much larger than herself speak through it, and did not remember.
+
+He had not told her. He had never told anybody, except Evelyn.
+
+He had sat in her class every Monday for a year and done his homework badly and looked at her.
+
+* * *
+
+He fell asleep on the first Monday in June.
+
+It was very hot. The fire was lit, as it always was, and the windows were shut, and the room was full of the sickly perfumed smoke that came off it, and Professor Trelawney was talking in her misty voice about the influence of Mars on duelling. Theo was making notes he would not read. Millicent was asleep with her head on her arms, very quietly, the way she had learned to.
+
+Harry put his chin in his hand.
+
+He did not mean to sleep. He had been sleeping badly since the forest. He had been sleeping badly since a voice in a courtroom said *take them down*, and he had been lying awake every night under the lake turning over a devotion he knew and could not place. He closed his eyes against the smoke.
+
+He was in a dark room.
+
+It was a sitting room, he thought, in an old house. The curtains were drawn. There was a fire, very low, and dust on everything, and a high-backed armchair turned to the fire with its back to him. There was somebody in the chair. He could not see them.
+
+There was somebody on the floor. A small round man, on his knees, crying. And there was a snake.
+
+It was very large. It was green and long and thick as a man's leg and it was coiled on the hearthrug, and it was looking at the man on the floor.
+
+He was dreaming.
+
+He knew he was dreaming. He knew it the way you know, sometimes, in the middle of a dream, and it makes no difference.
+
+Except that it made a difference to him.
+
+Because he could feel them.
+
+He could feel the man on the floor. He was terrified, and miserable, and self-pitying, and he was cunning, a small busy cunning looking for the weak place in the room and finding none. Harry knew him. He had read him on the floor of a shack. He had watched him change into a rat in the long grass under a full moon.
+
+And he could feel the thing in the chair.
+
+It was cold. It was the cold from the forest, and the back of Quirrell's head, and the bottom of a tall boy in a red and gold scarf in another world. It was the cold that was in Harry too, very faintly, at the very bottom, the cold he had decided was a stain.
+
+It was here. It was in the chair. It was large now, much larger than in the forest, larger than on Quirrell's head, and it was pleased.
+
+Harry should have woken up.
+
+He knew he should. He knew that a boy who has a nightmare about the man who killed his parents is supposed to wake up shouting with his scar burning, and that is the end of it.
+
+He did not wake up.
+
+He was a legilimens. Slytherin's book had said so. He had read a stone and been read back, and set a dragon chasing nothing, and read a memory in a basin for the first time a week ago. He was in a dream that was not a dream, that had people in it he could feel, and he was curious.
+
+He followed it.
+
+He went towards the chair. He did not walk. He moved, the way you move in dreams, closer, and the cold got colder, and the voice from the chair was talking. It was high and cold and very quiet, and it was talking to the man on the floor.
+
+He could not hear all of it.
+
+He heard pieces. He heard *Wormtail*. He heard *our faithful servant*. He heard the word *Hogwarts*, and the word *Tournament*, and he heard *the end of it*.
+
+He heard *the boy will be brought to me*.
+
+He heard *it will look like a prize*.
+
+He heard *and then, Wormtail, you will need a knife.*
+
+He went closer. He tried to see the chair. He tried to see what was in it. He went closer and closer and the cold was enormous now and pleased and something in it turned, very slightly, the way a head turns when it hears a sound in another room.
+
+And his scar split open.
+
+* * *
+
+He was on the floor of the Divination room.
+
+He was on his back on the hot carpet between the little round tables with his hands over his face, and somebody was shouting his name, and his scar was burning so badly that his eyes were streaming, and the whole class was standing round him.
+
+"Potter. *Potter*." Theo, kneeling. "Potter, what…"
+
+"He had a vision," said Professor Trelawney, from somewhere above. Her voice had gone very high. "He had a vision. In my classroom. Oh, my dear boy. Oh, what did you see? What did the Inner Eye…"
+
+"Nothing," said Harry.
+
+He sat up. His hand was still on his scar. It was burning. It had not burned like this since the Chamber.
+
+"Nothing," he said again. "I fell asleep. I had a nightmare. I'm sorry, Professor. It's hot."
+
+He read her. She was disappointed, enormously, and under the disappointment she was frightened, and under the frightened, a long way down, there was nothing at all. No Seer. A woman in a tower.
+
+He looked at her for a moment longer than he meant to.
+
+Then he got up.
+
+* * *
+
+He told Dumbledore some of it.
+
+He went straight from the North Tower to the gargoyle, and the gargoyle let him up, and Dumbledore was there this time, behind the desk, and Harry stood in front of it with his hand on his scar and told him.
+
+He told him about the dark room and the chair and the fire. He told him about Wormtail, on the floor. He told him there was a snake. He told him that the voice in the chair was Voldemort's, and that his scar had burned.
+
+He did not tell him that he had followed it.
+
+He did not tell him that he had been able to feel the two of them, the man and the thing in the chair, the way he could feel people in a room. He did not tell him that he had gone closer on purpose. He did not tell him about *the boy will be brought to me*, or *it will look like a prize*, or *you will need a knife*.
+
+He did not know why. He thought about it on the stairs afterwards, going down, and he did not know, entirely. He thought it might be that he had not understood it yet, and that he did not like to tell Dumbledore things he had not understood, because Dumbledore would understand them first.
+
+He thought it might be the eighth line.
+
+Dumbledore listened. He asked about the room, and the snake, and whether Harry had seen the face. He looked at Harry's scar for a long time, over his spectacles, and his own face did not change.
+
+"Thank you, Harry," he said at the end. "You did right to come to me. If it happens again, I should like you to tell me at once."
+
+"Yes, sir."
+
+"And Harry."
+
+"Sir?"
+
+"The third task is in a week." Dumbledore folded his hands. "Mr Bagman tells me it is to be a maze."
+
+Harry looked at him.
+
+"A maze, sir?"
+
+"A maze," said Dumbledore. "On the Quidditch pitch. Hedges, twenty feet high. Things in it. And the Cup in the middle." He smiled, very slightly, tiredly. "I am told it will be most entertaining."
+
+Harry went down the moving stairs.
+
+He went down to the dungeons, and through the stone wall, and across the common room, and he found Evelyn in her chair by the draughty window with a book on her knee, and he sat down on the floor beside the chair, with his back against the wall, under the window, where the lake leaned on the glass.
+
+"A maze," he said. "The third task. It's a maze."
+
+Evelyn put her book down.
+
+She did not say anything for a long moment. Then she took her notebook out of her cardigan pocket and opened it at a page near the back, and held it out to him, and he read it by the green light of the lake.
+
+*If you are ever asked to watch a maze, watch the edge of it. Not the middle.*
+
+*Edge* was underlined.
+
+He looked at it for a long time.
+
+The third task was in seven days.
+
+<->
