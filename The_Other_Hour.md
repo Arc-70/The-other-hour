@@ -13280,3 +13280,725 @@ Harry looked back out at the hills.
 He was going down again in September.
 
 <->
+
+## Chapter 21: The Knight Bus
+
+Aunt Marge came on the second of August, a Monday, in a taxi from Marjoribanks, with two suitcases, a bottle of brandy for Vernon and a bulldog called Ripper.
+
+Harry heard her before he saw her.
+
+He was upstairs with the window open, finishing an essay on the Shrinking Solution for Professor Snape, and he felt the taxi turn into Privet Drive from the corner. There was a driver in it who was tired and wanted his tea. And there was somebody else in it who was loud.
+
+She was very loud.
+
+He put down his quill and listened to her coming up the path.
+
+"Vernon! There you are. Look at you. Look at the size of you. Petunia's feeding you properly at last."
+
+Harry read her through the floor.
+
+She was pleased, and the pleasure was large and red and pointed at Vernon. That was the top of her. He went down to look at the rest, the way he always did, the way he had done with every person he had ever met since before he could remember, and he found something he had not found very often.
+
+He found that there was nothing much else.
+
+There was the pleasure. And next to it, out in the open, the same size and the same colour, sat something that liked to hurt things. The two of them sat side by side the way two people sit on a bus. It was looking forward to the week.
+
+And under both of those there was nothing that minded.
+
+Harry looked for it. With most people there was always something at the bottom, smaller and older, that did not quite agree with the rest. Uncle Vernon was frightened. Dudley, under the greed, was bored and a little lonely.
+
+Aunt Marge was not anything.
+
+She was cruel, and she enjoyed it, and that was all, all the way down.
+
+"Where's the boy?" she said, in the hall. "Is he still here? I thought you'd have got rid of him by now."
+
+* * *
+
+It was a long week.
+
+She sat in Vernon's armchair, which Vernon gave up to her without being asked, and she fed Ripper out of a saucer from Petunia's best tea service, and she talked.
+
+She talked about dogs. She bred them on a farm outside Marjoribanks, twelve of them, and she talked about each of the twelve in turn and then started again at the beginning. She talked about joyriders, and what she would do to them if anybody had the sense to let her.
+
+And she talked about Harry.
+
+She did it at every meal. She did it the way some people put salt on everything before they have tasted it.
+
+"Still here, then," she said, at breakfast on the Tuesday, without looking at him. "Still eating."
+
+"Yes, Aunt Marge."
+
+"Where is it you send him, Vernon? That school?"
+
+"St Brutus's," said Vernon. "Secure Centre for Incurably Criminal Boys."
+
+"Do they use the cane?"
+
+Harry read Vernon. Vernon did not know whether they used the cane, because there was no such place, and he was afraid of the question in a small hot way, and he looked at Harry.
+
+"Oh, yes," said Harry. "All the time."
+
+Aunt Marge looked at him for the first time that morning.
+
+"Good," she said.
+
+He read her. She was pleased again, the same large red pleasure, and it was aimed at him now, and it was the pleasure of a person who has been told that a dog she does not like has been kicked.
+
+He ate his toast.
+
+He was very good, that week. He had decided to be, before she came. Seven days was nothing. He had done eleven summers in this house before he knew what he was.
+
+He did not answer back. He did the washing up. He took Ripper round the block twice a day, and Ripper tried to bite his ankles all the way to Wisteria Walk and all the way back. He used the narrow place in his voice that made adults feel they had been answered, and he went to his room when it was not useful to be anywhere else.
+
+He read her all the time.
+
+He read her all the time, because she was the loudest thing in the house. Most of the cruelty he had known had been complicated. Vernon's had fear in it. Malfoy's had fear in it. Snape's had something in it that hurt the person who had it. Aunt Marge's was like weather in a flat country. It went over everything, and it was not sorry, and there was nothing behind it to talk to.
+
+On the Wednesday the television news showed a man's face.
+
+Harry was in the doorway of the sitting room with a tray of tea, and he stopped.
+
+It was a long, thin, hollow face with a great deal of dark matted hair round it, and eyes that looked at the camera from very far back. The newsreader said that the man's name was Black, that he had escaped from prison, and that members of the public should on no account approach him.
+
+"There's a nasty piece of work," said Uncle Vernon. "Look at the state of him. Look at his hair."
+
+"Hanging's too good for them," said Aunt Marge.
+
+Harry looked at the man on the screen.
+
+He tried to read him. He knew a television was a box with glass on the front. He tried all the same, and got what he got from a stamp, which was nothing, and then the newsreader was talking about a strike at a car plant in Oxford, and the face was gone.
+
+He put the tray down.
+
+"Something wrong with you?" said Aunt Marge.
+
+"No, Aunt Marge."
+
+"Then pour."
+
+He poured.
+
+* * *
+
+The last dinner was on the Sunday.
+
+Petunia had done a roast, because it was the last night. Vernon had opened the second bottle of wine before the potatoes came round. Ripper was under the table, near Harry's feet, breathing.
+
+Harry counted.
+
+He had been counting since Monday. Six days down. One supper. Then a taxi at ten in the morning, and he would write to Evelyn and tell her he had done the whole week and had not done anything at all.
+
+Aunt Marge had had four glasses of wine.
+
+Harry read her. She was very red now, inside and out, and the pleasure had gone loose and sloppy at the edges, the way it does in people who have been drinking. The other thing, the thing that liked to hurt, had not gone loose. It was sitting up very straight. It had been sitting up all evening, waiting for him.
+
+"Pass the potatoes, Vernon," she said. "No. Give them to the boy. Let him pass them. Let's see if he can do that much."
+
+Harry passed the potatoes.
+
+"Hah," said Aunt Marge. "You see, Petunia, I always said. It's all in the breeding. You can tell a lot from a dog by its parents. I've seen it a hundred times. A bitch from a bad line, you can feed it what you like, you can train it how you like, there'll be something wrong with the litter. Something always comes out."
+
+"Marge," said Petunia.
+
+Harry read her. Aunt Petunia was frightened, very suddenly, and it was not of Marge. It was of him.
+
+He kept his face still.
+
+"Nothing personal," said Aunt Marge. She took a long drink. "But there it is. Vernon's told me all about it. The father a layabout. Never had a proper job. And the mother…"
+
+Harry looked at his plate.
+
+He had decided, on Monday, that whatever she said about his father he would not mind, because he had never known his father, and his father was a thin man with glasses and black hair who had been proud of him once, in a mirror, a long time ago, and nothing Aunt Marge said would get anywhere near that.
+
+He had not decided anything about his mother.
+
+"No better than she ought to have been," said Aunt Marge, "I shouldn't wonder. Running off with that sort. Getting herself into God knows what. And then wrapping the pair of them round a lamp post, drunk as lords, I expect, and leaving you lot to pick up the pieces. It's always the way with that kind." She pointed her fork at him. "It'll come out in this one. You mark my words. It's in the blood."
+
+The table was very quiet.
+
+Dudley had stopped eating. Uncle Vernon had gone a dull red and was looking at the salt. Aunt Petunia was looking at Harry, and she was more frightened than Harry had ever felt her, and the other thing in her, the thing he had no word for, had come all the way up to the top, and it was not about Marge, and it was not about him.
+
+Harry did not move.
+
+He thought about his mother in the mirror, with her face wet, smiling at him.
+
+He thought about it for perhaps two seconds.
+
+And then he decided.
+
+It was nothing like the thing with Quirrell. He thought about that afterwards more than anything. With Quirrell he had been on the floor with hands round his throat, and something had come out of him the way a shout comes out, and he had not known what he was doing until it was done.
+
+This time he was sitting at a table with his knife and fork in his hands, and he was quite calm, and he knew exactly what he was going to do before he did it.
+
+He looked at Aunt Marge.
+
+He reached into her, the way he reached into everybody, and he found the place at the bottom where there should have been something that minded, and there was nothing there. It was an empty room. It had never had anything in it.
+
+So he gave her something to put in it.
+
+He did not have to look far. He had a great deal of it. He had the freckled boy on the stairs, white in the face, running. He had six weeks of a black book behind his bed curtains. He had a man with a turban kneeling on a stone floor with his wand against the back of his own head. He had stood in the hospital wing and looked at Evelyn's open eyes and not known whether she was there, and he had kept the diary anyway, and Ginny Weasley had nearly died of it.
+
+He had all the shame anybody could want.
+
+He took it, and he made it larger, and he put it into her.
+
+It went in very easily. That was the second thing he thought about, afterwards. There was nothing in the way. It went into the empty room and filled it up, and kept on filling it, and he pushed it in until he felt the room was full, and then a little more, and then he stopped.
+
+It took about as long as passing the potatoes.
+
+Aunt Marge put her fork down.
+
+She looked at it, lying on the tablecloth. Then she looked at Vernon. Then she looked at Petunia, and at Dudley, and then she looked at Harry, and her big red face did something Harry had never seen it do.
+
+It crumpled.
+
+"Oh," said Aunt Marge.
+
+And she began to cry.
+
+* * *
+
+She cried for an hour.
+
+Harry knew it was an hour because the clock on the mantelpiece in the sitting room struck eight while she was still at the table and nine while she was on the sofa, and she had not stopped in between.
+
+It was not ordinary crying. It came up out of her in big hopeless heaves, and she kept trying to say things and could not get to the end of them.
+
+"I'm sorry," she said, to the tablecloth. "I'm so sorry. I'm so, I didn't, I never…"
+
+"Marge," said Vernon. "Marge, old girl. What's the matter?"
+
+"I'm so sorry."
+
+"What for? What are you sorry for?"
+
+She did not know. Harry read her and she did not know. She was ashamed, enormously, of everything at once, of nothing in particular, the way you might be ashamed if somebody poured a lifetime of it into you over a plate of roast beef, and there was nothing in her that had ever learnt what to do with it. She had no practice. She was fifty-four years old and she had never once in her life been ashamed of anything, and now she was ashamed of everything, and she sat at her brother's table and wept into her napkin like a child who has been found out.
+
+Uncle Vernon did not know what had happened.
+
+Harry read him. He was bewildered, all the way through, and embarrassed in front of his son, and sorry for his sister in a clumsy way that Harry had not known he had in him. He patted her back and said "There, there, old girl," over and over, as though she were a horse.
+
+Dudley went upstairs.
+
+Aunt Petunia did not go anywhere.
+
+She stood by the kitchen door with a tea towel in her hands and she looked at Harry.
+
+She knew.
+
+Harry read it in her very clearly. She did not know what he had done, or how. But she knew that he had done it, as surely as though she had watched him pour it out of a jug, and the thing in her that he had never had a name for was right at the top now, and it was mixed up with fear, and he thought for a moment that it was nearly something he understood.
+
+He did not look at it. He got up from the table and took his plate to the sink and washed it, and dried it, and put it away in the cupboard. Then he went upstairs.
+
+He sat on his bed.
+
+Downstairs, through the floor, he could feel Aunt Marge still going. She had moved to the sofa. Vernon had got the brandy out. Ripper was whining.
+
+Harry sat with his hands on his knees and tried to feel bad about it.
+
+He found that he could not quite manage it.
+
+He had expected to. He had expected it the way you expect a bill after a meal. He had put all his shame into her, all of it, every bit he had been carrying about since the summer before last, and now he went to look for it, and it was gone.
+
+He did not feel ashamed.
+
+He felt, if anything, rather light.
+
+That was when he was frightened.
+
+He sat very still on his bed with the summer dark coming down over the gardens of Privet Drive, and he thought about how easy it had been, and how there had been nothing in the way.
+
+He thought that he could do it again tomorrow, to anybody, and that nobody would ever know.
+
+He thought that it had not cost him anything at all.
+
+At a quarter past nine he got up and began to pack.
+
+* * *
+
+His trunk was in the cupboard under the stairs, with his broom and his cauldron. The key was on the hook by the back door.
+
+He did not need the key.
+
+He went down at half past nine with his school bag and Hedwig's empty cage. Behind the sitting-room door Aunt Marge was saying "I'm sorry, I'm sorry," in a voice gone thin. Harry knelt by the cupboard and put his finger on the padlock and thought Tom's charm at it, the silent one, and it opened without a click.
+
+He had not used it since February.
+
+He noticed that, and he noticed that his hand did not shake.
+
+He pulled the trunk down the hall on its little wheels and opened the front door. The night came in, warm, smelling of cut grass and somebody's barbecue.
+
+"Where do you think you're going?"
+
+Uncle Vernon was in the sitting-room doorway. He had his sleeves rolled up and there was a damp patch on his shirt where Aunt Marge had cried on it.
+
+Harry read him. Bewildered still. Under that, coming up slowly, the old fear, the one that had gone away last summer when the letter from the Ministry came. Vernon did not know why it was back. Something in him had worked out that the boy was involved without being able to say how.
+
+"Out," said Harry.
+
+"You'll come back in here this minute."
+
+"No," said Harry. "I don't think I will."
+
+Vernon took a step towards him.
+
+Harry looked at him. He did not do anything. He only looked, and let Vernon see him look, the way he had looked at Aunt Marge across the table.
+
+Vernon stopped.
+
+The fear came all the way up, past the bewilderment, past the anger that was trying to get going and could not, and it sat at the top of him, where it had sat two summers ago when the letters came down the chimney.
+
+"Goodnight, Uncle Vernon," said Harry.
+
+He pulled the trunk out onto the step and shut the door behind him.
+
+* * *
+
+He got as far as Magnolia Crescent.
+
+It was three streets. The trunk was heavy and one of its wheels squeaked. He stopped under a street lamp that was not working and sat down on the trunk to think.
+
+He had eleven Galleons in a sock at the bottom of the trunk. He had his wand and the Cloak. He had nowhere to go.
+
+He could not go to Selwyn Hall at eleven o'clock at night and say that he had made his aunt cry for an hour. Isadora would look at him, and then say something, very courteously, that would be exactly true.
+
+He did not know where Theo lived. Millicent lived in Swindon with a dog that had eaten a chair. He did not know how to get to London at night with no Muggle money, and he thought that he would have to use magic, and found that he did not very much care.
+
+It was then that he felt it.
+
+There was something in the dark on the other side of the road. There was a gap between a garage and a fence, full of black, and something was in it.
+
+Harry went very still.
+
+He read it.
+
+The first thing he thought was that it was an animal, because it was low down and large, and he could just make out the shape of it now: a dog, a huge black dog, with its head lowered, looking at him.
+
+But it was not an animal's feeling.
+
+Animals were far away even when they were close, like voices in another house. This was right there across the road, as close and as loud as a person.
+
+It was a person's feeling.
+
+It was enormous. It was very old and very tired and very thin, the way a feeling gets when it has been kept going on nothing for a long time, and it was all pointed at him. There was no hunger in it, and no anger. There was grief, he thought, and something wild and fierce on top of the grief, and under both of them something that he would have called, in a person, a kind of wonder.
+
+It was looking at him as though he were somebody it had not seen for a very long time.
+
+Harry stood up.
+
+He took his wand out of his pocket and said "*Lumos*," aloud, without thinking about the Ministry at all, and held it up.
+
+The light went across the road.
+
+There was nothing in the gap between the garage and the fence. There was a dustbin, and a bicycle with no front wheel, and a lot of weeds.
+
+And then a great deal of noise came round the corner behind him and he threw himself backwards off the kerb.
+
+It was a bus.
+
+It was three decks high and violently purple, and it had stopped dead six inches from where he had been standing, with its headlamps blazing. The trunk had gone over. Harry was sitting in the gutter with his wand still lit in his hand.
+
+A door opened in the side of the bus.
+
+A young man in a purple uniform leaned out of it.
+
+"Evening," he said. "Knight Bus. For witches and wizards what's stuck. You stuck your wand out, so here we are. Stan Shunpike, conductor." He stopped. He looked down at Harry in the gutter. "What you doin' down there?"
+
+"I fell over," said Harry.
+
+"What d'you fall over for?"
+
+"You nearly hit me."
+
+"Didn't, though," said Stan, cheerfully. "Ern's never hit nobody. Well. Not for ages." He jumped down. "Is that your trunk? Wotcher want? London?"
+
+Harry read him.
+
+Stan Shunpike was about eighteen, with big ears and a good many spots, and he was bored and interested at the same time, which Harry had always found was the easiest kind of person in the world. He would tell you everything he knew if you only looked as though you wanted to hear it.
+
+Harry looked across the road again.
+
+The gap between the garage and the fence was empty. He could not feel anything in it any more. Whatever it had been, it had gone, and it had gone fast, and he had not felt it go.
+
+"Yes," he said. "London. The Leaky Cauldron."
+
+"Eleven Sickles to London," said Stan. "Two more for a drink of something 'ot." He heaved the trunk up the steps one-handed. "What's your name, then?"
+
+Harry pushed his fringe down over his forehead.
+
+"Tom," he said.
+
+He did not know why he said it. It was the first name that came.
+
+"Tom what?"
+
+"Riddle," said Harry, and then wished, very much, that he had not.
+
+Stan only wrote it down on a ticket with a stub of pencil and said, "Right you are, Tom."
+
+* * *
+
+There were no seats on the Knight Bus. There were beds.
+
+There were six brass bedsteads on the bottom deck, with candles in brackets beside them, and in one of them a small wizard in a nightcap was asleep, saying "Not now, Mother, I'm pickling," every so often. The driver was an elderly wizard in thick glasses called Ernie, who drove with his nose very close to the windscreen.
+
+"Take it away, Ern," said Stan.
+
+There was a bang, and Harry found himself flat on his back on the bed.
+
+The Knight Bus went through Little Whinging like something fired from a gun. It went through gaps between parked cars that were not wide enough for it, and the post box on the corner of Wisteria Walk jumped out of its way. The beds slid. The wizard in the nightcap rolled gently from one side of his bed to the other without waking.
+
+Harry held on to the bedstead.
+
+He thought that he had never been in anything so stupid in his life, and that he did not want to get off.
+
+"First time?" said Stan. He was on the end of the next bed with his feet up, reading a newspaper. "You get used to it. Took me a fortnight."
+
+Harry paid for the hot chocolate, and Stan poured it out of a tall jug on a hump-backed bridge somewhere in Kent, and most of it went in the mug.
+
+He looked at Stan's newspaper.
+
+It was the *Daily Prophet*. The face on the front was the face from the television news, the long thin face with the matted hair, and it was moving. It blinked. It turned its head very slightly, as though it had heard something to one side.
+
+**BLACK STILL AT LARGE**, said the headline.
+
+"Him," said Stan. He turned the paper round so that Harry could see it better. "You 'eard about him?"
+
+"A bit," said Harry. "On the… I heard something."
+
+Stan's face lit up.
+
+Harry read him. He was frightened. It was a real fear, Harry thought, and it was a long way down. But the top of him was something else entirely, something bright and greedy and delighted, the way people are delighted by a very bad storm when they are indoors.
+
+"Sirius Black," said Stan, with relish. "Out of Azkaban. Nobody's ever done that. Thirteen people he killed. With one curse. Twelve Muggles and a wizard, in the middle of a street. And then he just stood there and laughed." Stan lowered his voice. "When the hit wizards come, he was standing in the road laughing. My mum knew a bloke who was there."
+
+"Why?" said Harry.
+
+"Why what?"
+
+"Why did he do it?"
+
+Stan looked at him as though he had asked why it rained.
+
+"He was You-Know-'Oo's man, wasn't he? Everybody knows that. And when You-Know-'Oo went, he was cornered, so he took a load of people with him." Stan shook the paper. "Twelve years inside. And now he's out, and nobody knows how."
+
+Harry looked at the moving face.
+
+It blinked at him from very far back.
+
+He tried to read it and got nothing, the way he always got nothing from ink and paper. He thought about the black gap between the garage and the fence, and the thing in it that had looked at him as though it had not seen him for a long time.
+
+He did not think about the two things together.
+
+He did not think about them together for a long time.
+
+"Where's 'e going to go, that's what I want to know," said Stan comfortably, and turned to the sports pages. "Ern. ERN. Leaky Cauldron. Young Tom's for the Leaky."
+
+* * *
+
+The Knight Bus stopped outside the Leaky Cauldron at twenty past two in the morning. The record shop next door had a poster in its window for an album by somebody called Suede.
+
+Stan got the trunk down onto the pavement.
+
+"Ta-ra, Tom," he said.
+
+And then he stopped, because the door of the Leaky Cauldron had opened, and a small, portly man in a pinstriped cloak was standing in it, with Tom the barman behind him holding a lamp.
+
+Harry knew him.
+
+He had last seen him through the window of Hagrid's hut on the first of May, turning a bowler hat round and round in his hands. He was holding the same bowler hat now.
+
+"There you are," said the man in the pinstriped cloak. "Harry. There you are. Thank goodness."
+
+Stan's mouth fell open. He looked at the man in the doorway. He looked at Harry. Harry watched him look at the forehead, at the fringe, at the forehead again.
+
+"Tom," said Stan slowly. "Tom Riddle. You said."
+
+"Sorry," said Harry.
+
+"Get on with you, Shunpike," said the man in the doorway, quite kindly. "Thank you very much. That will be all."
+
+Stan got on with him. The Knight Bus went off down Charing Cross Road with a bang, and the last thing Harry saw of it was Stan's face at the back window, pressed against the glass.
+
+* * *
+
+The man was Cornelius Fudge, the Minister for Magic, and he took Harry into a small private parlour off the bar, and ordered tea and crumpets, and sat down with a sigh, and beamed.
+
+He was very relieved.
+
+That was the top of him, and it was large and warm and real. Cornelius Fudge was more relieved to see him than anybody had ever been to see him, apart from Hagrid on a rock and Mrs Weasley in Dumbledore's office.
+
+"Well," said Fudge. "Well, well. You've led us a merry dance, Harry. A merry dance."
+
+"I'm sorry, sir."
+
+"Not at all, not at all." Fudge waved a crumpet. "No harm done. You're here now, safe and sound, that's all that matters. Eat up."
+
+Harry ate up.
+
+He read Fudge while he ate. Under the relief was the thing Harry had felt in him through the window of Hagrid's hut: a man looking carefully at a situation to see whether any of it could be his fault. It had not found anything yet, and it was pleased.
+
+"I'll be quite honest with you, Harry," said Fudge. "We had a bit of a turn at the Ministry tonight. A bit of a turn. A Lumos charm at seven minutes past eleven, on a street corner in Little Whinging, and you nowhere to be found."
+
+"I'm sorry," said Harry again. "I know I'm not allowed."
+
+"Oh, as to that." Fudge waved the crumpet again. "We are hardly going to expel a boy for lighting a lamp in the dark. Not at all. Not in the circumstances. Certainly not." He leaned forward. "What on earth were you doing out there at that time of night, Harry? With your trunk?"
+
+Harry looked at him.
+
+He had decided on the Knight Bus that the best thing to tell the Minister for Magic was something true, because something true could be checked, and then nobody would check anything else.
+
+"My aunt came to stay," he said. "My uncle's sister. She doesn't like me. There was a row at dinner." He shrugged. "I left."
+
+Fudge's face went soft and understanding.
+
+"Ah," he said. "Families. Yes. Say no more." He patted Harry's arm. "Well, there's no need for you to go back there this summer. None at all. We'll put you up here, at the Ministry's expense, until term starts."
+
+"Thank you," said Harry.
+
+He did not say that he did not think his aunt and uncle were going to calm down.
+
+"Only," said Fudge, and here his voice changed.
+
+Harry read him.
+
+Fudge was frightened.
+
+It was much larger than the relief. It had gone a long way down and spread out at the bottom, the way water spreads out under a floor, and it was very old for a fear about something that had only happened in July. It was the fear of a man who had stood in a street twelve years ago and seen what one curse could do.
+
+And it was aimed, Harry noticed, very carefully, at the door.
+
+"Only," said Fudge, "I want you to promise me something, Harry. While you're here. I want you to stay in Diagon Alley. Not into Muggle London. Not Knockturn Alley, certainly. Just Diagon Alley, and back here by dark. Every night. Tom will keep an eye. Will you promise me that?"
+
+"Why?" said Harry.
+
+Fudge laughed. It was a very jolly laugh. It did not have anything under it at all.
+
+"Oh, well," he said, "you know. One likes to know where people are."
+
+He reached for another crumpet.
+
+He did not mention a man called Black. And Harry, who had felt the Minister's fear go out towards the door every time a floorboard creaked in the bar, sat by the fire and ate his crumpet and promised.
+
+* * *
+
+It was the best three weeks of his life.
+
+He knew it at the time, which he thought afterwards was unusual. Most people did not know until later.
+
+He woke every morning in a room on the second floor with a window over Diagon Alley, and nobody told him to get up. Tom brought him eggs and would not take money for them. Then he went out through the back yard and tapped the bricks, and spent the day doing exactly what he liked.
+
+Mostly what he liked was nothing in particular.
+
+He looked in the window of Quality Quidditch Supplies, where a new broom called a Firebolt stood on a stand with a crowd round it and a sign that said its price was available on request. He bought his books, and the assistant in Flourish and Blotts had to put on thick gloves to get *The Monster Book of Monsters* out of its cage, and it bit him anyway.
+
+He did his homework at a table outside Florean Fortescue's ice-cream parlour, in the sun.
+
+Florean Fortescue was round and pink and cheerful, and he knew a great deal about medieval witch burnings, and he came out every afternoon with a free sundae and told Harry things for his History of Magic essay that were not in any book. Harry read nothing in him but kindness and a quiet pleasure in being asked.
+
+Nobody knew who he was unless he showed them.
+
+He kept his fringe down and his face ordinary and his voice quiet, and people looked at him and went past.
+
+He thought about Aunt Marge sometimes.
+
+He thought about her at night, mostly, with the noise of Charing Cross Road coming over the roofs. He thought about the empty room at the bottom of her, and how easily it had filled.
+
+He did not do it again.
+
+He was careful. Twice in the first week he felt the place in himself where it came from, the way you feel a step under your foot before you put your weight on it, and both times he stepped off. Once was when a wizard in the bar shouted at Tom about his bill. Once was when the assistant in Flourish and Blotts sneered at a small Hufflepuff girl who could not afford a second-hand book.
+
+He did not do anything either time.
+
+He noticed, both times, that he wanted to.
+
+* * *
+
+Evelyn came on the Tuesday of the third week.
+
+Her letter had come on the Saturday, by Cato, the Selwyns' old grey owl, who did not like Harry any more than he liked Evelyn and bit him on the way out of the window. It said:
+
+*Potter. Grandmother has business at Gringotts on Tuesday and I am coming with her. We will be at Fortescue's at half past two. Do not make me wait, there is a draught on that corner. You did not say in your last letter why you are at the Leaky Cauldron and not in Surrey. You said "it's a long story." I have time for long stories. E.S.*
+
+He was at Fortescue's at two.
+
+He saw them coming up Diagon Alley from Gringotts at twenty-five past, and he saw them a long way off, because Isadora Hale was still the tallest and straightest thing in any street. She was in grey. She was always in grey. She had the same small grey hat, and the same long grey coat, and the same silver-topped cane.
+
+And she was walking with it.
+
+Harry watched her come up the street.
+
+Last summer she had carried the cane the way some people carry an umbrella on a dry day. Now she put weight on it at every step, and the steps were shorter, and there was a moment in each one, very small, when she stopped before she went on.
+
+Harry thought about it.
+
+He looked at Evelyn, beside her grandmother. Evelyn was carrying two parcels and a library book and walking at exactly her grandmother's pace, and she was looking straight ahead, and she did not look at the cane once.
+
+Then they got to the table, and Evelyn put the parcels down, and looked at Harry, and Harry knew that she had seen him notice.
+
+Neither of them said anything about it.
+
+"Mr Potter," said Isadora.
+
+"Mrs Hale."
+
+He held a chair for her. She put a hand on the table before she sat.
+
+"Thank you," she said. "You are well?"
+
+"Yes, thank you."
+
+"You are brown," said Isadora. "And you have grown. Evelyn tells me that you have been living in a public house for three weeks at the expense of the Ministry of Magic." She looked at him. "I hope it agrees with you."
+
+"It does," said Harry. "Very much."
+
+"Good," said Isadora. "So few things do."
+
+He tried her handle. He knew she would know, and he did it anyway, and there was nothing there, the same smooth complete nothing as always. She looked at him with something in her face that might have been amusement.
+
+"Evelyn," she said. "I am going to sit here for half an hour and eat an ice. Mr Fortescue will bring me one. You will both go away and walk somewhere, and come back at three, and Mr Potter will tell you his long story, and I shall not ask what it was."
+
+* * *
+
+They walked up to the top of Diagon Alley, where it turned and the shops got smaller and older, and they stopped outside a shop that sold nothing but quills, and looked in the window at the quills.
+
+"Well?" said Evelyn.
+
+Harry told her.
+
+He had thought on the way up the street that he would tell her the short version. Aunt Marge came, she was horrible, there was a row, I left. That was the version he had told Fudge, and it was all true, and Fudge had believed it.
+
+He found that he could not tell Evelyn the short version.
+
+She always knew when he was leaving something out. She could not feel anything about anybody, and she knew anyway, by counting things. And he had said he would tell her first.
+
+So he told her all of it. The week. Aunt Marge's nothing, all the way down. The dinner. His mother. The empty room. What he had put in it, and where he had got it from. The hour. Aunt Petunia's face. How light he had felt afterwards.
+
+Evelyn did not say anything while he talked.
+
+She looked at the quills in the window. There was a swan's feather in the middle, very long and white, on a little velvet stand, and she looked at it the whole time he was talking as though she would be asked to describe it later.
+
+When he had finished she went on looking at it.
+
+"How long did she cry?" she said.
+
+"An hour."
+
+"An hour exactly?"
+
+"About an hour. The clock struck eight and then nine."
+
+"So between an hour and two hours," said Evelyn. "If she started before eight." She was quiet. Then she said, "Did you mean to?"
+
+"Yes."
+
+"You decided."
+
+"Yes."
+
+"Before or after she said the thing about your mother?"
+
+Harry thought about it.
+
+"After," he said. "About two seconds after."
+
+Evelyn nodded slowly, as though that were an important figure, and it was the right one.
+
+"Would you do it again?" she said.
+
+Harry did not answer for a long time. A witch with a pram went past behind them. The pram had a small furious baby in it, and Harry felt the baby's fury, small and red and all-consuming and gone again, as the pram went round the corner.
+
+"I don't know," he said.
+
+Evelyn turned round from the window and looked at him.
+
+He could not read her. He never could. He looked at her face, which was the same face as always, the one people forgot, and he did not have any idea at all what was behind it, and for the first time in two years that frightened him a little, because he wanted very much to know what she thought of him.
+
+"Thank you for telling me," she said.
+
+That was all she said about it.
+
+They walked back down the street. At the door of the apothecary, where there were three steps up from the pavement, Isadora was waiting for them with her ice finished. She had come up the street to meet them. Harry did not know why.
+
+When they reached her she held out her arm to him.
+
+He took it. He thought she wanted to be helped down the three steps, and she did, and she leaned on him all the way down, and she was much lighter than he had expected, and much heavier than she had been a year ago when she had walked into Privet Drive and made Uncle Vernon sit.
+
+At the bottom she let go.
+
+"Thank you, Mr Potter," she said.
+
+Evelyn was looking at the pavement.
+
+* * *
+
+The Weasleys came back from Egypt on the last night of the holidays.
+
+They had won seven hundred Galleons in a *Daily Prophet* draw and spent a month in Egypt visiting their eldest son. Mr Weasley told Harry so three times. Ron told him once, very stiffly, and went red and went upstairs. Ron had a rat in his top pocket, old and thin and missing a toe.
+
+Hermione Granger was there too, with a cat.
+
+It was large and ginger and bandy-legged, with a squashed face, and it hated the rat, and it looked at Harry with flat yellow eyes. Harry read it. It was faint, like all animals, and cleverer than a cat ought to be.
+
+Hermione said hello to him. He said hello back.
+
+She looked as though she wanted to say something else, and did not. Harry read that she was remembering a misty pitch at six in the morning, and a word, and him standing there. He did not know what to do with that, and so he did nothing.
+
+He went to bed at ten.
+
+His room on the second floor was next to the room that Mr and Mrs Weasley had been given, and the walls of the Leaky Cauldron were old and thin and full of gaps, and Harry did not need gaps.
+
+He was not trying to listen. He was lying on his bed thinking about the door behind the stone feet, which he could feel even here, faint and steady, a long way north.
+
+And then Mrs Weasley was frightened.
+
+It came through the wall all at once, the way it does when somebody has been told something. It was very large and it was all aimed at one person, and it was a mother's fear, which is a particular kind, and which Harry had felt once before at King's Cross.
+
+It was not aimed at Ron.
+
+"…but he has a right to know," Mr Weasley was saying. His voice was low, but Harry could hear it. "Molly, he's thirteen. He's not a baby. He went down into that Chamber on his own…"
+
+"Arthur, he's a child, and he's had the most dreadful year, and if you tell him there's a murderer looking for him he'll never sleep again…"
+
+"He'll be safer if he knows. If he knows to keep his head down. Fudge wants him told nothing, Fudge wants everybody told nothing…"
+
+"Fudge is right."
+
+"Fudge is terrified." Mr Weasley's voice dropped further. "Molly. Listen to me. The guards at Azkaban said Black had been talking in his sleep. For weeks. The same thing. Over and over." A pause. "*He's at Hogwarts*."
+
+Mrs Weasley did not say anything.
+
+"Black wants Harry Potter," said Mr Weasley. "That's what Fudge thinks. He thinks Black's got it into his head that if he kills Harry, it'll bring You-Know-Who back. He was his right-hand man. He gave the Potters away. And Harry's the reason it all ended. Black's had twelve years in a cell to think about that."
+
+Harry lay very still.
+
+He read Mr Weasley through the wall. He was worried, deeply and steadily, and the worry was all for Harry, and he was not lying, and he was not exaggerating. He believed every word.
+
+So did Mrs Weasley. She was crying now, quietly.
+
+"He's safe at Hogwarts," she said. "Dumbledore's there. He's safe there, Arthur. Isn't he?"
+
+"There'll be Dementors at every gate," said Mr Weasley. "Fudge has insisted. Dumbledore's furious about it." Another pause. "Yes. He's safe there."
+
+Harry read him.
+
+He did not believe it. He wanted to, very much. He did not.
+
+Harry lay on his bed in the dark and looked at the ceiling.
+
+He thought about the face on the newspaper. Twelve years. Thirteen people with one curse, and then laughing in the street. He thought about the word *gave*. He thought about his mother in the mirror, afraid for him.
+
+He thought that a man had given his parents to Voldemort, and that the man was out, and that he was coming.
+
+And he thought, very clearly and very calmly, the way he had thought at the dinner table in Privet Drive with the potatoes going round, about what he was going to do.
+
+He was not going to tell anybody. Not Mr Weasley, who would want to help. Not Dumbledore, who would want to protect him. Not even Evelyn, yet.
+
+He was going to go down to breakfast in the morning and say good morning to Mrs Weasley, and eat his eggs, and get on the train, and be ordinary. He was going to do absolutely nothing at all that anybody could see.
+
+He turned over and went to sleep.
+
+He slept very well.
+
+<->
