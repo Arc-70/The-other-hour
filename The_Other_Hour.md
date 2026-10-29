@@ -23167,3 +23167,643 @@ He did not answer.
 She did not look up. She turned another page.
 
 <->
+
+## Chapter 38: Nurmengard
+
+"I'm going home for Christmas," said Evelyn.
+
+She said it on the Monday, the twelfth of December, at breakfast, in exactly the voice she used for everything. She said it to Potter, across the table, while she was winding nothing, because she had taken the watch out of her pocket and opened the lid and put her thumb on the crown and turned it twenty times the way she had every morning for four years, and it had not caught, and she had done it anyway.
+
+"Are you?" said Potter.
+
+"Mother wants me. It's the first Christmas since Grandmother."
+
+"Of course," said Potter. "Of course she does."
+
+He did not ask anything else. He looked at her across the table for about a second, and then he went back to his toast.
+
+Evelyn put the watch away.
+
+She thought about it afterwards, on the stairs to Arithmancy. She thought that it was the first lie she had ever told him. She had not told him things, a great many things, for a long time. She had not told him about her grandfather, or the letters, or Rita Skeeter in a jar. But she had never, until that morning at breakfast, looked at him and said a thing that was not true.
+
+She noted it.
+
+She noted, too, that it had been very easy.
+
+And on the Wednesday she wrote to her mother, on a Thursday's paper, a day early, and told her that she would be staying at school for Christmas, because of her OWLs, and the library, and because the castle would be quiet. And her mother wrote back by return, three pages, loose and crossed out, *of course, darling, of course you must, I understand completely*, and at the bottom, in the smaller hand, *I'll miss you*.
+
+That was the second lie.
+
+She noted it too.
+
+* * *
+
+The Portkey was in a lay-by on the A49, two miles south of Ludlow, on the seventeenth of December, at four in the afternoon.
+
+She had come from London on the train. She had said goodbye to Potter at Hogsmeade station on the Thursday, because champions stayed for the Ball, and she had got off the Hogwarts Express at King's Cross with everybody else and said goodbye to Bulstrode and Nott and walked out through the barrier, and she had not gone to the place where her father's car would have been if she had been going home. She had gone across the concourse to the Underground, and from Paddington to Shrewsbury, and spent the night in a bed and breakfast on the Shrewsbury road under the name of Gwendolyn Cuthbert, and in the afternoon she had taken a small cold train to Ludlow with four other people on it, and from Ludlow station she had walked.
+
+It was dark by the time she reached the lay-by. It was very cold. There was frost on the verges and a lorry parked at the far end with its cab light on and the driver asleep inside.
+
+Varga was waiting.
+
+He was standing by the hedge at the near end of the lay-by in his plain black coat, leaning on his stick, with the lorry's light on the side of his face. He did not say good evening. He looked at her, and nodded, and took something out of his coat.
+
+It was a shoe.
+
+It was a very old shoe, a child's, black leather, cracked, with a buckle. He held it out on his palm.
+
+"It knows your blood," he said. "Only yours, and his, and one or two others who are no longer living. If anybody else touched it, it would be a shoe." He did not look at her. "Put your finger on it. You will feel a pull behind your navel. Do not let go."
+
+"Are you coming?"
+
+"I am coming," said Varga. "I always come. That is the arrangement." He held out his other hand, the one without the shoe, very correctly, palm up. "I must hold on to you, Miss Selwyn. I am not of the blood. It will not take me alone."
+
+Evelyn put her hand on his.
+
+It was very thin and very cold and it was shaking, slightly, the way old men's hands sometimes do. She did not know whether it was the cold.
+
+She put her finger on the shoe.
+
+* * *
+
+It was snowing.
+
+That was the first thing. She was on her hands and knees in snow, deep, soft, new snow that went up to her wrists, and it was coming down on her out of a dark sky in great slow flakes, and there was no sound at all. There was no lorry and no road and no hedge. There was snow and dark and a cold so clean and so complete that it went straight through her cardigan and her coat and into her bones.
+
+She stood up.
+
+She was on a mountain. She could feel it, rather than see it, the way you feel the edge of a step in the dark. There was ground going up steeply in front of her, white, and falling away steeply behind her, into nothing, into dark, and the snow was coming down between.
+
+And there was a tower.
+
+It stood above her on the slope, perhaps two hundred yards up, black against the snow and the dark sky, very tall, very narrow, with no lights in it except one, a single small yellow square at the very top. There was a wall round its foot. There was a gate in the wall. There was something over the gate.
+
+Varga was beside her. He was holding his stick in one hand and her arm in the other, and he was breathing hard.
+
+"Come," he said. "It is a climb."
+
+It was a climb.
+
+It took twenty minutes, and she counted every step, three hundred and eighty-one, because there was nothing else to do and because if she counted she would not think. The path went up in turns, cut into the mountain, under the snow. Varga went first, slowly, with his stick, and she went behind him, and neither of them said anything at all.
+
+At the gate he stopped.
+
+Evelyn looked up.
+
+The words were cut into the stone over the gate, in tall letters, very deep. They had been there a long time. The snow had settled in the bottoms of the letters, so that they showed white against the black.
+
+*FÜR DAS GRÖSSERE WOHL*
+
+She read them.
+
+She had German. She had it from Mr Pelham, who had said that German was the only language worth reading philosophy in and the worst language in the world to be told off in, and she had always assumed he was joking.
+
+*For the greater good.*
+
+"He had it carved there himself," said Varga, beside her. He did not look up at it. "In nineteen thirty-nine. When he built this place. For other people." He took a key out of his coat, a long iron one. "And then, in nineteen forty-five, they put him in it, and they did not take the words down. They thought it would be a good joke." He put the key in the gate. "He agrees with them. He says it is the best joke anybody has ever made at his expense, and that it has kept him warm for fifty years."
+
+He turned the key.
+
+"He is waiting for you," he said. "He has been waiting since Tuesday. Please be kind to him." He paused, with his hand on the gate. "No. I am sorry. That is not my place. Be whatever you like to him. He will enjoy it."
+
+* * *
+
+The room at the top of the tower was very small.
+
+She had thought it would be smaller. She had read about the cell at Nurmengard in two books, both of which described it as a stone box. It was a stone box. It was perhaps ten feet across, square, with bare stone walls and a bare stone floor and a low stone ceiling. There was a narrow window in one wall, no wider than her hand, with no glass in it and snow blowing in at the edges. There was a bed, very narrow, against one wall, with a thin grey blanket on it. There was one chair. There was a lamp, which was the yellow square she had seen from the foot of the mountain, burning on the floor in the corner.
+
+There was a man by the window.
+
+He had been looking out of it. He turned round when the door opened.
+
+He was old. He was the oldest person she had ever seen. He was very thin, much thinner than Varga, and he was wearing a grey robe that hung off him the way washing hangs off a line, and his hair was white and very long, down past his shoulders, and very fine, like thistledown. His face was all bones. The skin had gone thin over it, nearly transparent at the temples, and there were lines in it, a great many, deep. His hands were long and white and very still.
+
+His eyes were pale. They were very pale, nearly colourless, the colour of ice on a puddle. They had been, she thought, blue once. They were looking at her.
+
+He stood up straight.
+
+He did it slowly, because he was very old. But he did it. He stood up as straight as she had ever seen anybody stand, straighter than her father, as straight as her grandmother had stood in the hall at Privet Drive, and he inclined his head to her, very slightly, the way a man inclines his head when somebody important has come into a room.
+
+"Evelyn," he said.
+
+His voice was thin and dry and very precise. It had an accent in it, faint, Germanic, that put a small hard edge on every consonant, as though each word had been cut out with a very sharp knife and laid down carefully.
+
+"Thank you for coming," said Gellert Grindelwald. "Please sit down. There is only the one chair, I'm afraid. I have been meaning to ask for another since nineteen forty-five, but there has never been anybody to sit in it."
+
+* * *
+
+She sat in the chair.
+
+He sat on the bed. He did it slowly, folding himself down onto the thin grey blanket the way a heron folds itself onto a bank, and he put his long white hands on his knees and looked at her.
+
+He looked at her for some time.
+
+She did not look away. She had been looked at by Potter, every day, for three years. She knew how to be looked at by somebody who was trying to see into her. This was not that. He was not trying to see into her. He was only looking, the way you look at a painting you have been told about for years and have finally been allowed to stand in front of.
+
+"You have her chin," he said at last.
+
+"Everybody says I have nobody's anything."
+
+"Everybody is wrong. That is very frequently the case. It is the chief consolation of my position." He tilted his head. "You have her chin, and her way of sitting, which is as though the chair has been told to behave. You have your own face. That is good. Hers was a very difficult face to have. People looked at it." His thin mouth moved. "Nobody looks at yours, I expect."
+
+"No."
+
+"How restful for you."
+
+"It is, mostly," said Evelyn.
+
+He laughed.
+
+It was a very small laugh. It was dry, like paper. But it came all the way up out of him, and it seemed to surprise him, and he put one long white hand over his mouth, as though to catch it, and looked at her over the hand with his ice-pale eyes, and she saw that they were delighted.
+
+"Oh," he said. "Oh, dear. You are going to be very bad for me. I can tell already." He lowered the hand. "Elias said you would be. He said, *she is exactly like her grandmother, only she does not try*. I did not believe him. Elias is a sentimental man. He was always a sentimental man, even when he was helping me burn things." He folded his hands on his knees. "You do not try at all, do you?"
+
+"Try to do what?"
+
+"Impress me."
+
+"No," said Evelyn.
+
+"Why not?"
+
+"Because I don't see what I'd get for it."
+
+He looked at her for a long moment. Then he laughed again, the dry paper laugh, and this time he did not try to catch it.
+
+* * *
+
+He offered to teach her on the first afternoon.
+
+He did it quite casually, as though it were something he had just thought of. He said that he had a great deal of knowledge and a great deal of time and nothing whatever to do with either. He said that he understood she was sitting her Ordinary Wizarding Levels in the summer. He said that he had read the syllabus, which Elias had brought him, and that it was a disgrace, and that he could teach her more about Transfiguration in an afternoon than the Hogwarts staff could teach her in a year, and more about Charms in a week, and more about the theory of magic in a month than anybody alive.
+
+"In exchange," he said, "for news."
+
+"News."
+
+"Of the world. Outside." He moved one hand towards the window, the narrow slot with the snow blowing in at the edges. "That is my world. A mountain and some snow. Elias brings me the newspapers, but newspapers are written by people who think they know what is happening, and I prefer to hear it from people who know they do not. You will tell me about the school. About the Tournament. About the Ministry, and your father, and what people are saying in the corridors." He smiled. It was a very thin smile. "About the boy."
+
+Evelyn looked at him.
+
+"That's not a fair exchange," she said.
+
+"No?"
+
+"You'd be teaching me something that's worth a great deal. And I'd be telling you things you could read in the *Prophet*." She folded her hands. "It isn't fair. You'd be giving much more than I would."
+
+"Yes," said Grindelwald. "I know."
+
+"Then why offer?"
+
+He looked at her with his pale eyes for a moment, and something moved in his face, very small, and was gone.
+
+"Because I do not care whether it is fair," he said. "I am a hundred and eleven years old, Evelyn, and I have been in this room for forty-nine of them. I would like somebody to sit in that chair and talk to me. That is all. I am offering to teach you because it is a reason for you to come, and you are the sort of person who needs a reason." He spread his long white hands. "If you would rather come for no reason at all, I should like that even better. But I did not think you would."
+
+She did not answer for some time.
+
+"I'll think about it," she said.
+
+"Of course you will," said Grindelwald, and looked out of the window at the snow with an expression of great contentment.
+
+* * *
+
+He talked about his reputation on the second afternoon.
+
+She had not meant to bring it up. She had come up the three hundred and eighty-one steps in the snow at two o'clock from the inn in the valley where Varga had found her a room, a small wooden inn with carved balconies where nobody spoke English and the landlady gave her soup without being asked. She had sat down in the chair. And he had asked her what she had read about him, and she had told him.
+
+She told him precisely. Four books. Two histories of the war on the Continent, one biography, and a chapter in a book about famous Dark wizards that had his photograph in it. She told him what each of them said. She told him what each of them got wrong, where she had been able to check.
+
+"And Albus," said Grindelwald. "What do they say about Albus?"
+
+"That you were friends. When you were young. For a summer. In the village where his family lived." She paused. "One of them says more than friends. The biography. It says…"
+
+"I know what it says." He waved a long white hand. It was an impatient gesture, and it was the first impatient thing she had seen him do. "I know exactly what it says. A woman came to the gate in nineteen sixty-one and asked to interview me, and I sent her away, and she wrote it anyway. She wrote it very badly. It is always the badly written ones that people believe."
+
+He looked out of the window.
+
+"History," he said, "has decided that I loved one person, and that he was a man."
+
+He said it to the snow. Then he turned his head and looked at her.
+
+"History is half right," he said, "which is the most irritating way to be wrong. I loved your grandmother for eleven years. I loved him for one summer. And history, being a romantic, prefers the summer." He folded his hands. "It always does. A summer is very easy to write about. Eleven years is a great deal of work."
+
+Evelyn did not say anything.
+
+She thought about a letter in the left pocket of her cardigan, upright and black, every line the same distance from the one above it. *I knew what he was. I stayed.*
+
+"Why do you care?" she said. "What history says."
+
+He looked at her with some surprise.
+
+"I don't," he said. "Not in the least. I care that it is wrong. I find that I mind being wrong about things much more than I mind being hated for them. I have been hated for a very long time. It has become quite comfortable." He looked back at the window. "But she was the one, Evelyn. Not him. She was the one who left. And I should like somebody, before I die, to have that the right way round."
+
+* * *
+
+He asked for the watch on the third afternoon.
+
+He had not mentioned it since his letter. He had talked about Transfiguration, which he had begun to teach her on the second afternoon, without waiting for her answer, because, he said, she had come back, and that was an answer. He had talked about the Tournament, and Karkaroff, whom he described in four words that made her laugh before she could stop herself. He had talked about Durmstrang, and the Ministry, and her father, whom he had never met and appeared to understand perfectly.
+
+He had not said anything about the watch.
+
+On the third afternoon, when she sat down in the chair, he held out his hand.
+
+He did not say anything. He held it out, palm up, long and white and very still, and he looked at her, and she knew what he meant.
+
+She took the watch out of her pocket.
+
+She held it for a moment. She did not know why. It was cold from the climb and the gold was dull in the light from the lamp and the ivy leaves on the lid were worn smooth in the middle, the way they had been worn smooth since before she was born, by her grandmother's thumb, and then by hers.
+
+She put it in his hand.
+
+He closed his fingers round it.
+
+He did not open it at once. He held it, closed, in his hand, and looked at it, and his face did something she had not seen it do in three afternoons. It went quite still. All the amusement went out of it, and the theatre, and the elegance, and what was left was only an old man in a grey robe on a narrow bed, holding a watch.
+
+"Nineteen thirty-eight," he said. "In Paris. In the winter. In a room over a bakery in the rue Mouffetard, because she liked the smell of the bread in the mornings." He turned it over. He looked at the mark on the back. "I made it so that she would never have to be in only one world. I thought that was a kindness. I thought, if there is ever a day when this one is unbearable, she will have the next one, and the next one after that. She will never be trapped." He was quiet for a moment. "I was thirty-five. I was very clever. I thought a great many things were kindnesses."
+
+He opened the lid.
+
+He looked at the face, at the second hand standing at the twelve and the fine silver third hand between the seven and the eight. He looked at it for a long time.
+
+"You wound it backwards," he said.
+
+"Yes."
+
+"Why?"
+
+"I wanted to know what she was afraid of."
+
+He looked up at her.
+
+His pale eyes were very bright. She thought, for a moment, that he was going to laugh again. He did not. He looked at her as though she had said something that was the most important thing anybody had said to him in fifty years, and then he looked down at the watch again.
+
+"And did you find out?"
+
+"No," said Evelyn. "I found out what I'd be. If I didn't have him."
+
+Grindelwald did not say anything to that.
+
+He put one long white finger on the face of the watch. He did not wind it. He did not touch the crown. He put the tip of his finger on the glass, over the place where the fine silver hand stood, and he held it there.
+
+The hand quivered.
+
+She saw it. She was watching it, and she saw it, the hair-fine silver hand that had never moved, not once, in four years of breakfasts, except one tick backwards in a study under a lake. It quivered under the glass, very slightly, the way a compass needle quivers when you bring something near it.
+
+He took his finger away.
+
+The watch began to tick.
+
+It was very quiet. It was the smallest sound in the room. It was smaller than the snow at the window and the lamp in the corner and her own breathing. Tick. Tick. Tick. The second hand moving round from the twelve, one mark, two marks, three, the way it had moved round every day of her life until a room full of clocks in a world she could not get back to.
+
+He closed the lid. He held it out to her.
+
+She took it.
+
+She held it in her hand, closed, and she could feel it. It was very faint. It was the faintest thing. Through the gold and the ivy leaves and the bones of her hand, a small steady beat, like something alive.
+
+She did not let herself show anything.
+
+She was almost entirely certain she did not show anything. She sat in the one chair in the cell at the top of Nurmengard with the watch ticking in her closed hand, and she looked at the old man on the bed, and her face did exactly what it always did, which was nothing, and she put the watch in her right pocket, and buttoned it.
+
+"Thank you," she said.
+
+"It is nothing," said Grindelwald. "It is the only thing I ever made that I am not ashamed of." He looked at the window. "And even that, I find, I am a little bit ashamed of."
+
+* * *
+
+He told her about nineteen forty-four on the same afternoon, because she asked.
+
+"She wound it backwards," said Evelyn. "Didn't she. Once. That's how she knew. That's why she told me never."
+
+"Yes."
+
+"What did she see?"
+
+Grindelwald looked at the window for a long time.
+
+"A world," he said, "where I had won."
+
+He said it quite simply. He did not dress it. He sat on the narrow bed with his hands on his knees and said it to the snow.
+
+"She was gone for six weeks. Here, it was four days. I thought she was dead. I turned Europe upside down looking for her, which, as it happened, was something I was already doing, so nobody noticed the difference." The thin mouth moved, very slightly. "Then she came back. She came into the room where I was, in Vienna, at three o'clock in the morning, with the watch in her hand and snow on her shoes. It was June. There was no snow in Vienna in June. She had brought it with her."
+
+He was quiet.
+
+"She told me what she had seen. All of it. She told me what I was there, in the world where I had won. What I had done with it. What I had become." He did not look away from the window. "She described it to me in great detail, in her very precise voice, for about an hour. And at the end of the hour she said, *Gellert, I have seen what you are for. I don't want it.* And she picked up the baby, and left."
+
+"And you let her."
+
+"I let her." He turned his head and looked at Evelyn. "I am the greatest Seer who has lived in five hundred years, Evelyn. I have seen every hour of my own life from the outside, more times than I can count. I saw that one coming for eleven years. I knew exactly what she would say, and when, and in what tone of voice." He spread his long white hands. "And I argued with her anyway. For an hour. I was very eloquent. I am always very eloquent. I used every argument I had." He smiled, very thinly. "It was the only argument I ever lost."
+
+* * *
+
+He told her she walked a Path on the fourth afternoon.
+
+He did not explain it. She asked him to and he did not. He had been teaching her a Transfiguration, a difficult one, a teacup into a tortoise, and she had got it wrong four times, and on the fifth she had got it wrong in a new way, which was that instead of the teacup becoming a tortoise, the teacup had stopped.
+
+It had not stopped anything. It had been a teacup on the floor of the cell, and she had pointed her wand at it, and said the words, and the teacup had not changed. But for a moment, a very short moment, everything round the teacup had stopped. The snow at the window had stopped. The lamp flame in the corner had stood perfectly still, not flickering. And the sound of the watch in her pocket, which she had been able to hear all afternoon, very faint, had stopped.
+
+Then it started again.
+
+She looked at the teacup.
+
+Grindelwald was looking at her.
+
+He had gone very still on the bed. He was looking at her with his pale eyes very wide and very bright, and he did not say anything at all for some time.
+
+"What was that?" said Evelyn.
+
+"That," said Grindelwald softly, "was you."
+
+"I didn't do anything."
+
+"No," he said. "You didn't. That is rather the point." He leaned forward slightly on the bed. "Evelyn. Has anybody ever told you about the Paths?"
+
+"No."
+
+"No. Of course not. Who would?" He sat back. "Elias will tell you. One day. He will hate it, and he will do it very well." He looked at the teacup, and then at her. "You walk one. I suspected it. I have suspected it since the first afternoon, from the way you sat in that chair. I had hoped it would be mine."
+
+"Yours?"
+
+"Sight. The Path I walk." He looked at the window. "It is not. It is something else. Your grandmother made you close your mind every morning from the age of five, and you did, and you went on doing it until there was nothing left in you that was not closed, and the magic in you, the grain of it, ran the same way. It ran towards stopping." He turned back to her. "Stillness. You walk the Path of Stillness. There has not been a Walker of Stillness in Europe for two hundred years."
+
+Evelyn looked at the teacup.
+
+"How disappointing," said Grindelwald. And then, after a moment, very softly, with his pale eyes on her face: "How interesting."
+
+* * *
+
+He asked about the boy every day.
+
+He asked about him on the first afternoon and the second and the third and the fourth. He asked about him in the middle of Transfiguration and in the middle of talking about her grandmother and in the middle of nothing at all. He asked what Potter ate. He asked whether he slept. He asked what he did when he was angry, and who his friends were, and what he was reading, and whether he still talked to snakes.
+
+Evelyn told him nothing.
+
+She told him what was in the *Prophet*. She told him that Potter was the fourth champion, and a Slytherin, and a Parselmouth, and that he had got past a Hungarian Horntail with forty points. She told him what anybody in the country could have told him.
+
+She did not tell him about two Harrys and a dragon. She did not tell him about a lamp that lit for one person in a room under a lake. She did not tell him about a world where a hat had said a different word, or a stag on the water, or a boy who could feel everybody in a room except her.
+
+She did not tell him where Potter stood.
+
+He knew she was not telling him. She could see that he knew. He asked anyway, every day, with great patience, and every day she told him what was in the *Prophet*, and every day he listened as though it were the most interesting thing he had ever heard, and did not press.
+
+On the fifth afternoon he stopped asking.
+
+He sat on the bed with his hands on his knees and looked at her for a long time. The snow had stopped. There was a strip of very blue sky in the narrow window, and the light from it fell on his face and made the skin at his temples look like paper with a lamp behind it.
+
+"You won't tell me about him," he said.
+
+"No."
+
+"Why not?"
+
+"Because you're Gellert Grindelwald," said Evelyn. "And he's Harry Potter. And I don't know what you want with him."
+
+Grindelwald smiled.
+
+"That," he said, "is the first sensible thing anybody has said to me about him in fifteen years." He looked at the window. "I don't want anything with him. I want to know about him. I am a Seer, Evelyn. I have seen him. I saw him before he was born. I saw him the way I see everything, in pieces, out of order, too many at once." He was quiet. "I saw you."
+
+She did not move.
+
+"I saw you beside him," said Grindelwald. "Over and over. In a great many hours. I saw it the year before you were born, and I wrote to your grandmother and told her, and she did not answer, and when she sat in the east window of that house in Shropshire and heard his name for the first time, over an egg, I expect she went very still." He looked back at Evelyn. "I saw you beside him. I did not see how it ended."
+
+"What does that mean?"
+
+"It means exactly what it says," said Grindelwald.
+
+"Nothing means exactly what it says."
+
+"This does." He held her eyes, pale and very bright. "I see a great many things. I see them more clearly than anybody alive. I see them so clearly that I have lost, over sixty years, the ability to tell which of them is happening now, and which happened yesterday, and which will happen in a hundred years, and that is why Elias has to bring me the newspapers, because I cannot always be sure which day it is." He spread his long hands. "And I have looked at you, and him, more than at anything else in fifteen years. I have looked very hard. I can see you beside him in a great many places. I can see you in a stone room and a cinema and a snowfield and a shack. I cannot see the end. Every time I come to it, it is closed." He was quiet for a moment. "Like you."
+
+Evelyn sat in the one chair and did not say anything for some time.
+
+The watch ticked in her pocket.
+
+"Thank you for the tea," she said at last.
+
+There had been no tea. There was never any tea. He looked at her, and then he laughed, the dry paper laugh, all the way up, and put his hand over his mouth, and did not catch it.
+
+* * *
+
+Millicent asked him on the Friday before the end of term, at breakfast, in four words.
+
+"Ball. You're taking me."
+
+Harry looked at her.
+
+She was sitting across the table with her arms folded and her jaw out, and she was very red, and she was looking at him as though she would hit him if he said the wrong thing and also if he said the right thing.
+
+"Am I?" said Harry.
+
+"Champions have to have partners. McGonagall said. For the first dance. Everybody's going to be looking at you." Millicent's face got redder. "You don't want some fifth-year who'll go all giggly and fall over her own robes. You want somebody who'll stand there. And I'll stand there. I'm good at standing." She glared at him. "And it's not like *that*. Before you say anything. It's not like that at all, and if you laugh, Potter, I'll sit on you."
+
+Harry read her.
+
+She meant it. She meant every word, all of it, very fiercely. It was not like that. It was something much plainer and much older than that, and it went all the way down in her, the way it always had, since a bathroom on Hallowe'en with a troll in it. She was frightened that he would have to stand in the middle of the Great Hall with the whole school looking at him and some girl who did not care about him at all. She was frightened, too, very slightly, that he would say no.
+
+Harry laughed.
+
+He could not help it. It came out of him all at once.
+
+Millicent's face went thunderous. She started to get up.
+
+"Yes," said Harry. "Yes. All right. Sorry. Yes."
+
+Millicent stopped half up.
+
+"Yes?"
+
+"Yes. I'd like that." He meant it. He read himself, for once, and he meant it. "I can't dance."
+
+"Neither can I," said Millicent, sitting down again. "Mum tried to teach me once in the kitchen. Brian ate her shoe." She picked up her fork. "We'll be terrible. It'll be brilliant."
+
+Theo, beside her, was looking at his porridge with enormous concentration and shaking very slightly.
+
+Evelyn's place was empty. She had gone home on the Thursday.
+
+* * *
+
+They were terrible.
+
+They were, Theo said afterwards, the worst dancers he had ever seen, and he had once watched his great-uncle Septimus dance at a funeral. They went round the floor of the Great Hall in a sort of lurching box step while the Weird Sisters played something slow, and Millicent trod on Harry's foot eleven times and Harry trod on hers six, and every time either of them did it Millicent said "Sorry" very loudly and kept going, as though it were a march.
+
+The whole school was watching.
+
+Harry read it. He had to. He had turned the Hall down to a roar and kept it there, but he could not help catching the edges of it as they went round. There was a great deal of laughter. Most of it was not unkind. The Slytherins were not laughing; they were looking at Millicent Bulstrode, big and plain and red in the face in a dress robe of very dark blue, with a kind of astonishment, as though they had never seen her before.
+
+And Millicent, under the red face and the gritted teeth and the counting, was happy.
+
+He had not known. He went round the floor with her for three minutes, being trodden on, and he read her and it was all happiness, very large, very plain, very surprised at itself, and none of it was anything but the plainest kind.
+
+Somebody had asked her to do something, and she was doing it.
+
+"Potter," she said, through her teeth, on the fourth time round. "Stop reading me."
+
+"I'm not."
+
+"You are. You've got the face. Stop it." She trod on his foot. "Sorry. Look at Krum."
+
+Harry looked at Krum.
+
+Krum was dancing with a girl in periwinkle blue robes, and she was very pretty, and her hair was not bushy at all, but up, sleek and shining, and it took Harry three full turns of the floor to realise that she was Hermione Granger.
+
+He read her. She was happier than he had ever felt her. She was happy in a dizzy, astonished, slightly frightened way, as though she had walked into the wrong room and found that it was the right one.
+
+He read Krum. Krum was very quiet inside, as he always was. But it was a different quiet. It was the quiet of somebody who has found something he was looking for and does not want to frighten it away.
+
+Harry looked away. It was not his business.
+
+He saw Cedric, dancing with Cho Chang, the Ravenclaw Seeker. Cedric was laughing. Cho was laughing up at him. Harry read them both and they were the same, warm and pleased and new, and he looked away from that too.
+
+He saw Draco Malfoy.
+
+Draco was not dancing. He was standing by the wall with Pansy Parkinson, who was talking at him, and he was not listening to her. He was watching Krum and Hermione Granger go round the floor.
+
+Harry read him.
+
+It was fury. It was cold and white and very large, and Harry could not, at first, make sense of it. It was aimed at the floor. At the girl in periwinkle blue. And it was not the fury Harry would have expected, the old contemptuous one, *Mudblood*, that he had heard on a misty pitch at six in the morning in their second year. It was something else. It was the fury of somebody who has been told all his life that a thing is worthless, and has just watched the most famous Seeker in the world look at it as though it were not.
+
+Under the fury, very deep, there was something that Draco would have died rather than know was there.
+
+Harry did not look at it. He looked at Millicent.
+
+"Sorry," said Millicent, treading on his foot.
+
+* * *
+
+Lucan Selwyn was at the ball as a guest of the Ministry.
+
+He was with Ludo Bagman's party, at a round table by the wall, in very good dress robes of dark grey, with his white smile, and he found Harry at half past eleven, when the Weird Sisters were playing something loud and Millicent had gone to get drinks.
+
+"Potter," he said. "Splendid. Splendid dancing. Very… vigorous."
+
+"Thank you."
+
+"No, really. I've never seen anything like it." Lucan was smiling. Harry read him and the smile was real, slightly, and under it the calculation, going, always going, and under the calculation, tonight, something small and bright and very pleased with itself. "Father sends his regards. He was sorry not to come. The Wizengamot sits on the twenty-seventh."
+
+"Of course."
+
+"And Mother sends her love to Evelyn. Obviously." Lucan took a glass from a passing tray. "She was so disappointed not to have her home. But OWLs, she said. The library. The quiet." He sipped. "Very sensible girl, my sister. Always was."
+
+Harry did not move.
+
+"She's at home," he said.
+
+Lucan looked at him over his glass.
+
+"Is she?" he said. "How odd. Mother had a letter from her on the fifteenth saying she was staying here. Because of her OWLs." He smiled, very white. "Mother cried. She cries at most things, but she cried at that. I was there." He took another sip. "I assumed she was in the library. Isn't she?"
+
+Harry read him.
+
+He went all the way down. He did it very carefully, the way Slytherin's book said, the third exercise, the house of many floors. He went past the smile and the calculation and the small bright pleasure, down, looking for the thing underneath, looking for the lie.
+
+There was no lie.
+
+Lucan was telling the truth. Every word. His mother had had a letter on the fifteenth. She had cried. He had been there. He had assumed his sister was at school.
+
+And he was enjoying telling Harry so.
+
+That was the small bright thing. It was pleasure. It was the pleasure of a man who has been handed something interesting and is watching to see what it does when he puts it down. He did not know where his sister was. He did not much care. He wanted to see Harry's face.
+
+Harry gave him nothing.
+
+He had been giving people nothing all his life. He stood in the Great Hall in his dress robes with the Weird Sisters playing and the whole school dancing and he looked at Evelyn's brother with his face perfectly still, and gave him nothing at all, and read Lucan be very slightly disappointed.
+
+"I expect she's in the library," said Harry.
+
+"I expect so," said Lucan. He finished his glass. "Merry Christmas, Potter."
+
+He went back to Bagman's table.
+
+Millicent came back with two Butterbeers. She looked at Harry's face.
+
+"What?" she said.
+
+"Nothing," said Harry.
+
+* * *
+
+The Owlery at two in the morning was the coldest place in the castle.
+
+Harry sat on the bench by the window-hole in his dress robes, which were too thin, with the wind coming in, and the owls asleep on their perches all the way up into the dark, and he did not do anything.
+
+He thought about the platform at Hogsmeade on the Thursday, and Evelyn saying goodbye, and getting on the train.
+
+He had read the platform, because he always did. He had not read Evelyn, because he could not. And she had got on the train and he had not watched to see which carriage, or who was in it, or anything at all.
+
+He thought about *I'm going home for Christmas.*
+
+He thought about *Mother wants me. It's the first Christmas since Grandmother.*
+
+He thought about how she had said it. Exactly the way she said everything. He had looked at her for about a second, across the breakfast table, and he had not been able to read anything, because he never could, and he had gone back to his toast.
+
+She had lied to him.
+
+He sat with that for a long time.
+
+He had lied to her. He had lied to her about the voice in the walls in his second year, and kept a diary from her for six weeks, and asked her to read a page about stilling a heart without telling her what was on it. He had lied to her, and she had always known, and she had always told him she knew, and she had always, in the end, made him tell her.
+
+She had never lied to him.
+
+Not once. Not in three years. She had not told him things. She had said *I'd rather not talk about it*, and *I'll tell you when I'm sure*, and *don't ask*. But she had never looked at him and said a thing that was not true.
+
+Until the twelfth of December, at breakfast.
+
+He had a ledger. He had kept it for three and a half years, in his head, for one person. Seven lines. *Sorry for me, and weighing me up. The Stone was bait. He was good enough to raise no objection.* He knew it by heart.
+
+He found that he was starting another one.
+
+He did not want to. He sat on the cold bench in the Owlery in his dress robes and felt it start, the way you feel a cold start, at the back of your throat, before you can do anything about it.
+
+*Twelfth of December. Said she was going home. She did not go home.*
+
+*She wrote to her mother on the fifteenth. She said she was staying here. She is not here.*
+
+*She is somewhere. With somebody.*
+
+He looked at it.
+
+He thought about her hand on a sofa in a tent at four in the morning, closed on a watch. He thought about an old man on the front steps going white when he saw her face. He thought about an empty seat at the end of the third row of the Slytherin stand, and *you looked, didn't you*.
+
+He thought about *thank you for telling me*, outside a quill shop, in August, a year and a half ago.
+
+He thought that he could ask her.
+
+He thought that when she came back on the eighth of January, on the train, he could sit down across from her and say *where were you*, and she would look at him, and she would either tell him or she would not, and either way he would know.
+
+He decided not to.
+
+He did not know why. He thought about it afterwards and he still did not know, entirely. He thought it might be that if he asked and she lied again he did not know what he would do. He thought it might be that if he asked and she told him the truth, and the truth was something she had chosen to keep from him, that would be worse.
+
+He thought it might be simpler than that. He thought it might be that he had never once, in three and a half years, managed her. Never moved her, never steered her, never given her exactly enough. He had done it to everybody else in his life. He had never done it to her, because he could not, because there was nothing in her to steer.
+
+And he thought, sitting in the Owlery in the cold, that he could try.
+
+He sat on the bench until the owls began to wake, one by one, up in the dark, and the window-hole went grey.
+
+* * *
+
+In a small wooden inn with carved balconies, in a valley in the Austrian mountains, on the morning of the twenty-sixth of December, Evelyn sat up in a narrow bed under a feather quilt the size of a cloud, and took the watch off the bedside table, and opened the lid.
+
+She wound it. Twenty turns. Forwards.
+
+It caught.
+
+She felt it catch, on the first turn, the way it had caught every morning for six days now, and every morning of her life before the second of March. The crown went round under her thumb and something inside went round with it, small and certain, and the second hand moved, and went on moving.
+
+She held it in her palm.
+
+It ticked. Very small. Very steady. Like something alive.
+
+Outside the window the snow was very white in the early sun, and the mountain went up, and at the top of it, very small, she could see a black tower with a single window at the top, and she looked at it for a long time.
+
+* * *
+
+In the Owlery at Hogwarts, Harry stood up, stiff with cold, as the window went grey.
+
+He went down the stairs.
+
+He had decided. He would not ask. He would be pleasant, and warm, and interested. He would be exactly what he was to everybody else.
+
+He would not ask her where she had been.
+
+<->
