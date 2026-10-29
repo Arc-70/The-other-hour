@@ -23807,3 +23807,604 @@ He had decided. He would not ask. He would be pleasant, and warm, and interested
 He would not ask her where she had been.
 
 <->
+
+## Chapter 39: What You'd Miss Most
+
+"How was Christmas?" said Harry.
+
+He said it on the train, on the eighth of January, at about a quarter past eleven, as the Hogwarts Express came out of the long tunnel north of King's Cross into the grey light. He said it the moment she came into the compartment. He had been waiting for her to come in since eleven. He had read the platform from the window and not found her in it, because he could never find her in anything, and then he had felt the train go quiet in one place, in the corridor outside, the way it always did, and she had opened the door.
+
+She was in grey. She had her bag over her shoulder and her book under her arm and her hands in her pockets.
+
+She looked at him.
+
+"Fine," she said.
+
+"Good. I'm glad." He moved his feet off the seat so that she could sit down. "Your mother all right?"
+
+"Yes."
+
+"Good," said Harry again. He smiled at her. "Sit down. Theo's got a new opening. He's going to make you lose to it."
+
+"I'm not going to make her do anything," said Theo. "I'm going to offer her the opportunity."
+
+Evelyn sat down by the window.
+
+Harry watched her do it. He had decided in the Owlery, at two in the morning on the twenty-sixth, what he was going to do, and he was doing it, and he had been doing it since she opened the door, and he was very good at it. He had been doing it to everybody he met since he was six years old.
+
+He had never done it to her.
+
+He did not read her. He could not. But he watched her, the way he had learned to watch her, by the small things. He watched her take her book out from under her arm and put it on her knee. He watched her not open it.
+
+He watched her look at him across the compartment for about two seconds longer than she needed to.
+
+"Millicent," he said, turning, "tell Evelyn about the Ball."
+
+"No," said Millicent.
+
+"She trod on me eleven times."
+
+"Twelve."
+
+"Eleven. I counted."
+
+"I counted *twelve*, because I trod on you once in the queue for the drinks, and that counts, it was in the same building."
+
+Theo laughed. Millicent went red. Harry laughed too, and looked at Evelyn, and saw the corner of her mouth move, very slightly, the way it moved when something was funny and she had decided not to let it be.
+
+He had made it move. He had chosen the Ball because it would.
+
+He looked away out of the window.
+
+* * *
+
+He did it all January.
+
+He did it at breakfast. He asked her how she was, every morning, warmly, and said *good* before she had finished answering, and turned to Theo. He did it in the library. He sat at her table under the window behind the Goblin History shelves and was interested in her homework, and asked her about her OWLs, and agreed with her about the Goblin Rebellion of 1612, which he did not care about at all. He did it in the corridors. He made her laugh. He knew how to make her laugh, he had known for three years, and he had never once done it on purpose until now. He did it on purpose now, whenever she looked at him for too long, because when she laughed she looked away.
+
+He was charming. He was warm. He was attentive.
+
+He was exactly what he was to Pucey, and Warrington, and the fifth-year girls who left notes, and Fudge in the parlour of the Leaky Cauldron. He gave her exactly enough.
+
+He did not go down to the study.
+
+He went down twice in January, on his own, and sat at the black desk in the cold green light and did not practise anything. Her cushion was there. Her flask was there. The Latin dictionary was on the shelf. He did not ask her to come.
+
+She did not ask either.
+
+On the second Tuesday in January she said, at breakfast, "Potter."
+
+"Mm?"
+
+"You've had that egg for six weeks."
+
+"I know."
+
+"Have you opened it?"
+
+"Once. It screams."
+
+"Have you thought about why it screams?"
+
+"I've been busy," said Harry, and smiled at her. "Have you been sleeping? You look tired."
+
+She looked at him.
+
+She did not answer the question. She looked at him across the table for a long moment, with her face that told him nothing, and then she picked up her tea, which she always drank last, and drank it first.
+
+He noticed. He did not say anything.
+
+* * *
+
+Cedric caught him on the stairs at the end of January.
+
+"Potter. Got a minute?"
+
+Harry stopped.
+
+He read him. Cedric was awkward, as he always was with Harry, slightly, and under the awkwardness there was something that had been there since a corridor outside the library in November, and a dragon. It was a debt. Cedric did not like owing things. He had been looking for a way to pay it back.
+
+"The egg," said Cedric quietly. "You worked it out yet?"
+
+"No."
+
+"Take a bath." Cedric looked round. There was nobody on the stairs. "The prefects' bathroom. Fifth floor, behind the statue of the wizard with his gloves on the wrong hands. Password's *lavender soap*. Take the egg. Take your time." He grinned, suddenly, and looked about fifteen. "Trust me."
+
+"Why?" said Harry.
+
+"Because you'd have told me," said Cedric, and went on up the stairs.
+
+* * *
+
+The prefects' bathroom was the most splendid room Harry had ever been in.
+
+It was all white marble, lit by a chandelier of candles, and the bath in the middle of it was the size of a swimming pool, sunk into the floor, with a hundred golden taps round its edge, each one with a different coloured jewel set into the handle. There was a diving board. There were long white linen curtains at the windows and a pile of fluffy white towels in one corner. There was a single painting on the wall, in a gilt frame, of a blonde mermaid asleep on a rock.
+
+He turned the taps on.
+
+Different taps gave different things. Bubbles the size of footballs. Foam so thick he could have lain on it. Pink and blue clouds. One tap gave purple steam that smelled of violets. He filled the bath, which took a long time, and got into it with the egg, and sat there in the hot foam up to his chin feeling stupid.
+
+He opened the egg. It screamed.
+
+He shut it.
+
+"I'd try putting it under the water, if I were you."
+
+He nearly dropped it.
+
+It was Moaning Myrtle. She was sitting cross-legged on top of one of the taps, with her round glasses glinting in the candlelight.
+
+"Myrtle," said Harry. "I'm in the *bath*."
+
+"I closed my eyes when you got in," said Myrtle. "Mostly." She sniffed. "Cedric Diggory put it under the water. He took ages to work it out. Weeks. I watched him. He's very handsome." She looked at the egg. "Go on, then. Under the water."
+
+Harry looked at her.
+
+He read her. Her grey note, sulky and sharp, with the edges. And under it, very faintly, something he had felt in her once before, the night she let Millicent into her bathroom: she was pleased. Somebody had come into her bathroom and was going to stay a while, and she was being useful to them.
+
+He put the egg under the water and opened it.
+
+It did not scream. It sang.
+
+He put his head under the water to hear it. It was a strange high wavering song, many voices, very beautiful, and it came up through the bubbles and the foam and the water in his ears, and it went:
+
+*Come down where the cold lies under the lake,*
+*Come down where we sing. There is something to take.*
+*It's yours, and you'll miss it the most of it all,*
+*And you've an hour to find it, an hour, that's all.*
+*If you're longer than that, you'll be too late to save it.*
+*It's ours, then, for good. You should never have gave it.*
+
+He came up, gasping.
+
+"Merpeople," said Myrtle, with relish. "They live in the lake. They've got something of yours."
+
+"*You should never have gave it*," said Harry.
+
+"They're merpeople," said Myrtle. "Their grammar's dreadful. Everybody knows that."
+
+Harry sat in the bath and looked at the egg in his hands.
+
+*It's yours, and you'll miss it the most of it all.*
+
+He thought about it.
+
+He thought about the Firebolt. He thought about the Cloak, and the Map. He thought about his wand.
+
+He did not think about anything else. He was very careful not to.
+
+* * *
+
+He did not tell Evelyn.
+
+He had told her about the dragons the night he saw them. He had told her about the plan before he told anybody. He had told her first, every time, for a year and a half, since a lake shore and a flat rock and *next time, tell me first*.
+
+He did not tell her about the egg.
+
+He found Neville Longbottom instead.
+
+He found him in the greenhouses on the Saturday, because Neville was always in the greenhouses on Saturdays. He was in Greenhouse Three with his sleeves rolled up, repotting something with long blue tendrils that kept trying to get into his ears, and he looked up when Harry came in and went very slightly pink.
+
+"Hello," said Neville.
+
+"Hello. Can I ask you something?"
+
+"Me?"
+
+"You," said Harry.
+
+He read Neville. Neville was surprised. That was the top, very large. Nobody from Slytherin ever came to ask Neville anything. Under the surprise there was the thing Harry had felt in him on the train in his first year, before anything, before the Sorting, when a round-faced boy had put his head round the compartment door looking for a toad.
+
+Kindness. All the way down. Frightened kindness, but kindness.
+
+"If you had to breathe underwater," said Harry. "For an hour. Is there a plant for that?"
+
+Neville looked at him.
+
+He did not ask why. Harry read him not ask. Neville knew why. The whole school knew there was a second task on the twenty-fourth and nobody knew what it was, and here was the Slytherin champion in Greenhouse Three asking about breathing underwater, and Neville added it up the way anybody would, and decided, all at once, that he was going to help.
+
+"Gillyweed," said Neville.
+
+"Gillyweed?"
+
+"It grows in the Mediterranean. If you eat it, you get gills. For about an hour. Webbed hands and feet too." He went pinker. "I read about it. Professor Moody lent me a book. *Magical Water-Plants of the Mediterranean*. He said I might find it interesting. He said I had a real gift for Herbology." He looked down at the blue tendrils. "Nobody's ever said that before."
+
+Harry read him.
+
+He was proud. He was very quietly, very shyly proud. A teacher had noticed him. A famous teacher, an Auror, a man who had been in the War, had noticed that Neville Longbottom was good at something, and lent him a book.
+
+Harry thought that it was a very kind thing for Moody to have done.
+
+"Where do I get it?" he said.
+
+"Professor Snape's got some. In his private stores." Neville looked alarmed. "You can't get it from there."
+
+"No," said Harry. "I suppose I can't."
+
+He got it from there on the Wednesday night, with Tom's silent charm, and a face in the corridor that was not his.
+
+* * *
+
+Evelyn was called to McGonagall's office on the evening of the twenty-third.
+
+Harry was in the common room when it happened. A third-year came in through the stone wall at half past seven with a message, and looked round, and could not find who it was for, because nobody ever could, and said, "Selwyn? Is there a Selwyn? Fifth year?"
+
+Evelyn looked up from her chair by the draughty window.
+
+"Professor McGonagall wants you," said the third-year. "In her office. Now."
+
+Evelyn put her book down.
+
+She did it carefully, square to the arm of the chair. She stood up. She looked across the common room at Harry, who was by the fire with Theo and Millicent and the egg, and Harry looked back at her, and smiled, warmly, the way he had smiled at her all January.
+
+"Good luck," he said. "Whatever it is."
+
+She looked at him a moment longer.
+
+Then she went out.
+
+She did not come back.
+
+He knew she had not come back at ten, when she would have been in her chair. He knew it at eleven, when the common room emptied. He knew it at midnight, lying behind his curtains with the Map open on his knees and his wand lit, looking at the girls' dormitories, where there was no dot with her name on it, and at McGonagall's office, where there was not either, and at the whole of the castle, where he went over every corridor twice and did not find her.
+
+He found Ron Weasley missing from Gryffindor Tower too, and a Beauxbatons girl called Gabrielle Delacour missing from the carriage, and a Gryffindor girl called Hermione Granger missing from the place where she slept.
+
+He looked at the Map for a long time.
+
+*It's yours, and you'll miss it the most of it all.*
+
+He thought about Krum, dancing with a girl in periwinkle blue. He thought about Fleur's little sister, whom he had seen at the Ball, eight years old, silver-haired, clinging to her sister's hand.
+
+He thought about Cedric, and Cho Chang.
+
+He folded the Map.
+
+He lay in the dark under the lake for a long time.
+
+He did not sleep.
+
+* * *
+
+The second task was at half past nine in the morning on the twenty-fourth of February, and the stands had been built along the shore of the lake, and the whole school was in them, and the lake was very flat and very grey and very cold.
+
+Harry stood on the platform at the water's edge with the gillyweed in his pocket and read the crowd.
+
+He did not look for her. He knew she was not there.
+
+He stood at the edge of the lake with his toes over the edge of the platform and he read it anyway, the whole shore, the whole school, from one end of the stands to the other, the way he had read the Slytherin stand from a bed in the medical tent in November. He looked for the still place. He looked for it in every row.
+
+It was not anywhere.
+
+He looked at the lake.
+
+It lay there, grey and flat and very cold, and under it, somewhere, a long way down, there were merpeople who had taken something of his, and there was an hour.
+
+The whistle went.
+
+He ate the gillyweed.
+
+* * *
+
+It was like being stabbed in the neck. He felt the gills open, two slits either side of his throat, and the air went wrong in them, and he fell forward off the platform into the water without deciding to, and the cold hit him all over at once like a slap.
+
+He breathed in.
+
+It was water. It went in through the slits in his neck and it was the best breath he had ever taken. His hands had gone webbed. His feet had become flippers. He kicked, once, and went down a long way.
+
+The lake was green and dim and very quiet.
+
+He could not read anything.
+
+That was the first thing. He was under the water, going down, and there was nobody. The school on the shore had gone. The stands, the crowd, the whole roar of it, gone, the way it went when he flew very high. There was green water, and weed, and the dim light from far above, and silence.
+
+He did not like it as much as he liked the sky.
+
+He went down and down. He swam over a forest of black weed, tall as trees, swaying. He swam past a Grindylow, which came at him out of the weed with its long brittle fingers and its little horns, and he read it as it came, faint and spiteful, and hit it with a stinging hex, and it went back into the weed screaming silently.
+
+He swam on.
+
+Then he heard the song.
+
+It was the song from the egg. It was coming from somewhere ahead, in the gloom, many voices, and it got louder, and he swam towards it, and the weed opened out, and there was a village.
+
+It was a village of rough stone dwellings, stained with algae, under the lake, with dark windows, and there were faces in the windows. Grey faces, with long dark green hair, and yellow eyes, and broken teeth, and necklaces of shark's teeth, and they watched him swim past.
+
+Merpeople.
+
+He read them.
+
+They were not like the merpeople in the painting in the prefects' bathroom. They were not like anything he had ever felt. They were cold, all of them, cold the way the lake was cold, and they were curious, very slightly, the way you are curious about a fish that has swum into the wrong part of the river. And under the curiosity, in every one of them, very hard, there was something that was nearly anger and nearly pride and was neither.
+
+It was *ours*. It was a fence round something. It was a whole village of people who had lived under this lake since before the castle was built, and who had been asked, this one morning, to let some children from up above come into their village and take something back, and who had agreed, and did not like it.
+
+He swam through the village. They watched him go.
+
+In the middle of the village there was a square, and in the middle of the square there was a statue, a great stone merperson hewn from a boulder, and tied to its tail with thick ropes of weed there were four people.
+
+They were asleep.
+
+They were floating very gently in the water, with the weed round their ankles and their heads lolling, and their hair moving slowly round their faces.
+
+Ron Weasley. Hermione Granger. A small girl with silver hair, who could not have been more than eight.
+
+And Evelyn.
+
+* * *
+
+He swam to her first.
+
+He did not decide to. He was simply there, in front of her, with his webbed hand on the weed round her ankles, looking at her face.
+
+She was asleep. Her eyes were closed. Her hair had come out of its band and was floating round her face, brown and very long in the green water. Her hands were at her sides. Her face was the same face, the face he could not read, the face people forgot.
+
+He read her.
+
+He did it without thinking. He did it the way he did it to everybody, every day, all his life. He went to her the way you put your foot down for a stair.
+
+Nothing.
+
+There was nothing. There was the same smooth, complete, perfect nothing there had always been. He had felt it every day for three and a half years. He had rested on it at the World Cup and in the Great Hall and in a hundred breakfasts. He had felt it on a hospital bed with a page in its fist, and not known whether she was there.
+
+He did not know whether she was there.
+
+He floated in front of her in the green silent water with his hand on the weed round her ankle and he did not know whether she was alive. He could not tell. He had never been able to tell. She was asleep, she was enchanted, they would have made sure it was safe, the judges, Dumbledore. She was all right. She was certainly all right.
+
+He did not know.
+
+He could not feel her breathing. He could not feel her heart. He could not feel anything at all, because there was never anything to feel, and he had told himself all his life that it did not matter, that he rested on it, that it was the stillest thing in any room.
+
+He cut the weed round her ankles with the stinging hex. His hand was shaking. He got his arm round her.
+
+Then he looked at the others.
+
+Ron Weasley. Asleep. Harry read him, and there was something, very faint, a long way down, like a lamp at the end of a long corridor: sleep. Plain enchanted sleep. Ron was there.
+
+Hermione Granger. The same.
+
+The little silver-haired girl.
+
+He read her.
+
+She was very small. And she was not like the others. She was not like Ron and Hermione, faint and far off and sleeping. She was nearly nothing. He could hardly feel her at all. She was so young and so small and so far down in the enchantment that what was left of her was smaller than a candle at the end of a corridor. It was a match, at the end of a very long tunnel, very nearly out.
+
+He did not know if that was what it was supposed to be.
+
+He did not know if she was supposed to feel like that. He did not know whether it meant she was all right, deeply asleep, or whether it meant something had gone wrong. He looked at her floating there with her silver hair round her face, eight years old, and the match at the end of the tunnel, and he could not tell. He could not tell. And Fleur was not here. He looked up through the green water and there was no Fleur, no Krum, no Cedric, nobody, only him.
+
+He thought: *I can't read Evelyn and I don't know if she's alive.*
+
+He thought: *I can read this one and I still don't know.*
+
+He did not leave.
+
+He floated in the square by the statue with Evelyn's weight against his side and his eyes on the small silver-haired girl, and the minutes went, and he did not leave, because he could not bear not to know.
+
+Cedric came.
+
+He came out of the gloom with a bubble round his head, and he cut Cho loose, and he looked at Harry, and Harry read him. Cedric was puzzled. Then something else. Then he pointed upwards, sharply, *come on*, and Harry shook his head. Cedric looked at the small girl, and at Harry, and something went across his face, and then he went up, with Cho, kicking.
+
+Krum came. He came with the head of a shark and bit through Hermione's ropes with his teeth and went up with her, very fast, and did not look at anybody.
+
+Fleur did not come.
+
+The merpeople were closing in.
+
+Harry felt them. They had been watching from the edge of the square, the whole village, cold and curious and *ours*, and now the time was running down, and they were coming in round him, a ring of grey faces and yellow eyes and spears. One of them was very close. One of them put out a hand, very slowly, towards Evelyn.
+
+"*Leave her*," said Harry.
+
+It came out as bubbles. It did not matter.
+
+He did the thing he did.
+
+He had held a dragon's eyes for eleven seconds. He had held three people not there and an empty room at the bottom of the Ministry of Magic. He had never once done it under water, with gills in his neck, with a sleeping girl against his side and another one he could not leave.
+
+He set something in front of them.
+
+He set it in front of every grey face and every yellow eye in the ring. He did not think about what. It came out of him the way the stag had come out of him on the lake shore. It was the thing he had felt in them, the *ours*, the fence round the village. He gave it back to them. He set, at the far edge of the square, behind them, in the weed, the shape of something coming. Something large and dark, moving in the weed, coming towards their houses. A Grindylow, enormous. A dozen Grindylows. Something from up above, coming into their village where it had no right to be.
+
+They turned.
+
+All of them. The whole ring turned at once, the way a shoal turns, to face the thing in the weed. Their spears came round. Their faces went hard.
+
+Harry cut the small girl loose.
+
+He got her under his other arm. He kicked off from the bottom of the lake with both his flippers and both girls and he went up, up through the green water, with the merpeople turned round behind him facing nothing in the weed, and he held it, the whole way, for as long as he could see them, and then for longer, until he could not see the square any more and the light was coming down from above, grey, and getting brighter.
+
+His gills were going.
+
+He could feel them start to close. The hour. He kicked. Evelyn was heavy against his side. The little girl was light. He kicked, and kicked, and the water was getting lighter and lighter.
+
+He broke the surface.
+
+* * *
+
+The noise was enormous.
+
+It came down at him from the stands the moment his head came out of the water, the whole school, screaming, and it was not the dragon's screaming, it was something else, and he did not care what. He was breathing air. It hurt. He was in the lake with his arm round two people and his gills closing in his neck and he could see the platform.
+
+Evelyn woke.
+
+He felt her wake. He could not feel her. He felt her move. She went stiff against him, all at once, the way you go stiff when you wake in a strange place, and she coughed, and opened her eyes, and looked at him.
+
+Then she looked at the little girl under his other arm.
+
+"Who's that?" she said.
+
+Her voice was perfectly flat. It was full of lake water. She coughed again.
+
+"Fleur's sister," said Harry. "Fleur didn't come."
+
+"So you brought her."
+
+"She didn't feel right. I didn't know if she was all right." He kicked towards the platform. "I couldn't tell. I couldn't tell with either of you."
+
+Evelyn did not say anything.
+
+She swam beside him the rest of the way, with one hand on the little girl's arm, not letting go.
+
+* * *
+
+On the bank there was chaos.
+
+There was Madam Pomfrey with blankets. There was Fleur Delacour, soaking, with cuts on her face and arms, who had been attacked by Grindylows and never reached the village, and who took her sister out of Harry's arms and held her and wept, and kissed Harry on both cheeks, and wept some more, and said something in very fast French that ended in "*mon dieu*". There was Percy Weasley in the water up to his knees for Ron. There was Krum, with a blanket, standing by Hermione.
+
+There was Dumbledore, on the bank, crouched, talking to a merwoman in the shallows in a language that sounded like screeching.
+
+Harry read him. He was closed.
+
+There were the judges. There was a great deal of noise.
+
+Harry stood on the bank with a blanket round him and lake water coming out of his ears and his gills gone, and he did not hear any of it.
+
+Evelyn was beside him.
+
+She had a blanket round her too. Madam Pomfrey had put it round her and told her to drink something and gone to Fleur. She was standing on the bank, dripping, with her hair loose and soaked all down her back and the blanket clutched round her shoulders, and she was not drinking anything.
+
+She was looking at him.
+
+"Potter," she said.
+
+"Are you all right?"
+
+"Yes."
+
+"Good." He smiled at her. He did not know how not to. He had been doing it for seven weeks. It came. "Good. I'm glad. I couldn't tell, down there. You were…"
+
+"Stop it."
+
+He stopped.
+
+She was looking at him with her face, the one he could not read. It was very white, from the cold. There was lake weed in her hair. She was shivering, very slightly, inside the blanket, and her voice was perfectly flat and very quiet, so quiet that nobody on the noisy bank could have heard it but him.
+
+"They told me," she said. "Last night. In McGonagall's office. Dumbledore was there. He told me what the task was. He said each champion would have to rescue the person they'd miss most. He said it was me."
+
+Harry did not say anything.
+
+"Me," said Evelyn. "Not Nott. Not Bulstrode. Not your broom. The judges decided. Dumbledore decided. They looked at you, and they decided it was me." She was holding the blanket very tightly. "I'm what you'd miss most."
+
+"Evelyn…"
+
+"I'm what you'd miss most," she said, "and you won't even ask me where I went at Christmas."
+
+The bank was very loud. Somebody was cheering. Bagman was magnified, announcing the scores. None of it reached the place where they were standing.
+
+Harry looked at her.
+
+He thought about seven weeks. He thought about *how was Christmas* and *good, I'm glad* and making her laugh on purpose when she looked at him too long. He thought about an Owlery at two in the morning and a ledger he had started against his will. He thought about a dot that was not on the Map for one night, and a match at the end of a long tunnel, and not knowing whether she was alive.
+
+"Would you have told me?" he said.
+
+He said it quietly. He did not smile.
+
+Evelyn did not answer.
+
+She stood on the bank in her blanket with the water running off her and her face white and told him nothing, and she did not answer, and he waited, and she did not.
+
+Then she turned round and walked away up the bank.
+
+She did it at exactly her own pace. She did not hurry. She walked up the shingle and the grass in her blanket, through the crowd, and nobody noticed her go, because nobody ever did, and she went up towards the castle without looking back.
+
+Harry stood on the bank and watched her go.
+
+Bagman's magnified voice said that Mr Potter had been awarded forty-five points, for outstanding moral fibre.
+
+He did not hear it.
+
+* * *
+
+Sirius was in a cave above Hogsmeade.
+
+He had written in December, after the Goblet, on a scrap of parchment carried by a large tropical bird that Harry had never seen before and that ate half his toast. *I'm coming north. Don't argue. I can't read the papers and sit still at the same time. S.* And he had come. He had come with Buckbeak, Harry learned, by stages, through the winter, sleeping in barns and ditches, and he had found a cave in the side of the mountain above the village, and he had been living in it since February.
+
+Harry went on the first Saturday in March, the Hogsmeade weekend, with a bag of food.
+
+He went on his own. He did not ask anybody to come.
+
+The cave was a long climb, up a stony path that wound round the mountain, and the wind was cold, and there was snow in the gullies. The dog met him at the turn of the path. It was very thin. It had been thin in the forest in March and thinner on the battlements in June, and it was thinner now, and its coat was full of burrs, and it came down the path at him wagging its whole back end, and Harry read it, and it was gladness. Huge, simple, warm, the wave on the beach.
+
+"Hello," said Harry.
+
+The dog took the bag of food in its teeth and went up the path, and Harry followed.
+
+* * *
+
+Sirius ate four chicken legs, a loaf, and half a cake, sitting on a rock at the back of the cave with Buckbeak behind him, and he did not talk at all until he had finished.
+
+Then he wiped his mouth on his sleeve and looked at Harry and grinned.
+
+"Better," he said. "Much better. Thank you. I've been living on rats." He saw Harry's face. "Not that sort. The ordinary sort. Though I'm keeping an eye out." He leaned back against the rock. "Forty-five points. *Moral fibre*. I heard. I've got a *Prophet*, I nicked it off a bench in the village. You stayed for the little Delacour girl."
+
+"Yes."
+
+"Why?"
+
+Harry thought about it.
+
+"I couldn't tell if she was all right," he said. "I can't… I couldn't tell."
+
+Sirius looked at him. He looked at him for quite a long time.
+
+Harry read him. The love was there, enormous, as always. The rage was there, lower down, quieter than in the forest. And something else, which was new, and which Harry had felt on the battlements of the West Tower: a sort of strangeness. Sirius looking at James's son, and seeing that he was not James.
+
+"Listen," said Sirius. He leaned forward. "I want you to listen to me, Harry. I've been sitting in this cave reading the papers for a month and I don't like any of it."
+
+"What?"
+
+"All of it. Crouch, for a start. He's ill. That's what the *Prophet* says. Off sick since November. Percy Weasley's running his office." Sirius snorted. "Barty Crouch doesn't get ill. Barty Crouch never took a day off in his life. He sent his own son to Azkaban. Did you know that? Stood in court and sentenced him. Nineteen years old." He looked at the cave wall. "The boy died in there. A year later. Crouch didn't go to see him. Not once."
+
+Harry thought about a thin stiff man in a wood at night, and something locked under a floor.
+
+"Karkaroff," said Sirius. "He was a Death Eater. Did you know that? Got out of Azkaban by giving names. He's frightened of something. He's been frightened since the World Cup. You'd know, wouldn't you?"
+
+"He's frightened all the time."
+
+"Good. He should be." Sirius rubbed his face. "And Moody."
+
+"Moody's all right."
+
+"Moody's the best Auror the Ministry ever had. He's also half mad. Somebody tried to break into his house the night before term. He hexed his own dustbins." Sirius looked at Harry. "Somebody put your name in that Goblet, Harry. Somebody who knew how to confound a very powerful magical object. That's not a schoolboy. That's somebody who knows exactly what they're doing. And they did it under Dumbledore's nose, and Moody's nose, and they're still there." He jabbed a finger at Harry. "Be careful. Of all of them. Karkaroff. Crouch, if he turns up. Moody too. Moody's hunting Death Eaters at that school, I'd put money on it. A man who hunts Death Eaters for forty years starts seeing them everywhere. You don't want to be standing next to him when he decides he's found one."
+
+Harry thought about Moody, devoted, aimed straight at him.
+
+"Moody likes me," he said.
+
+"I'm sure he does. Moody likes anybody who's had a go at Voldemort and lived." Sirius picked up the last of the cake. "Just be careful."
+
+He ate the cake.
+
+Then he said, with his mouth full, quite casually, not looking at Harry: "And the Selwyn girl?"
+
+Harry did not answer at once.
+
+"Evelyn," said Sirius. "The one with the hippogriff. On the tower. The one who stood there in a dressing gown and told me *go on*." He swallowed. "She was the hostage. In the lake. The *Prophet* said. Your hostage. What you'd miss most." He looked at Harry. "How is she?"
+
+"She's fine," said Harry.
+
+Sirius looked at him.
+
+He did not have Harry's gift. He did not have anything of the kind. He had been in a cell for twelve years and in a cave for a month and he read people the ordinary way, the way everybody does, with his eyes and his ears and whatever he had learned about the people he loved in a dormitory at Hogwarts a long time ago.
+
+He looked at Harry for a long time, with his grey eyes, in the light from the mouth of the cave.
+
+"No she isn't," said Sirius.
+
+* * *
+
+Harry walked back down the hill at four o'clock, with the empty bag over his shoulder and the wind in his face.
+
+He walked slowly. The path wound round and round the mountain, and below it the roofs of Hogsmeade were grey and wet, and beyond the village the castle stood against the cloud, and somewhere in it, in a chair by a draughty window, there was a girl who had not spoken to him for eight days.
+
+He thought about it all the way down.
+
+He thought about *no she isn't*. He thought about how Sirius, who could not feel anything about anybody, had looked at him once and known. He thought about how Harry, who could feel everybody in a building, had looked at her every day for eight weeks and not known.
+
+He had not tried to know.
+
+He had decided, at two in the morning in an Owlery, that he would not try.
+
+He stopped at the last turn of the path, where it came down off the mountain onto the lane behind the Hog's Head, and he stood there for a moment with the wind in his face, looking at the castle.
+
+Then he went on down.
+
+<->
