@@ -40765,3 +40765,452 @@ It had been the best moment of his day. Not the faces, not the Atrium, not getti
 He had liked it.
 
 <->
+
+## Chapter 71: The Hour of His Death
+
+Gellert Grindelwald had known for some time which hour it would be.
+
+He had known since the spring. Not the date. Dates were a thing other people needed. He had known the hour the way you know the shape of a room you have lived in for half a century, by walking into its corners in the dark. It was a morning. It was winter. There was new snow on the slot of the window, a finger's depth of it, blue in the first light. There was a sound on the stairs.
+
+He had seen it a great many times.
+
+He had seen it, in fact, more often than he had seen anything else in his life, because for some months now, whenever he closed his eyes, it was very often the hour that came. He would be lying on the narrow bed in the cell at the top of the tower, with the lamp on the floor and the one chair empty, and he would close his eyes to rest them, and open them, and it would be that morning, with the snow on the sill and the sound on the stairs. Then he would close them again and open them, and it would be an afternoon in the rue Mouffetard in 1938, with a woman in a green dress laughing at him across a table covered in the small brass parts of a watch. Then it would be the hill above Godric's Hollow. Then it would be the morning again.
+
+It was the cost. He had paid it for sixty years, and he had stopped minding. A man who has seen every hour there is, in every way it could go, does not keep his grip on which one he is standing in. He had let go of it slowly, the way a man lets go of a rope he is too tired to hold, and now he lived, as he had told the boy in the summer of last year, in eleven different afternoons, and some mornings, and was not always sure which.
+
+He was sure today.
+
+He opened his eyes at a little after eight, and the snow was on the sill, a finger's depth, blue. And it stayed there. He closed his eyes, and opened them, and it was still there. It did not become Paris, or the hill, or Prague. It stayed.
+
+So.
+
+He lay on his back on the narrow bed and looked at the ceiling of his cell, which he had looked at for fifty-two years and knew better than any face, and thought, with great clarity and a certain amount of irritation, that it was a pity it was today, because he had been halfway through a letter.
+
+* * *
+
+The letter was on the floor beside the lamp.
+
+He could not see it from the bed. He did not need to. He had written it the night before, by lamplight, in his small careful hand, which had become a great deal less careful in the last year and which he resented. It was to the girl. It was about a book.
+
+She had sent him a book in November. It had come with Elias, as everything came with Elias, in a parcel tied with string, with a note in her small square hand that said only: *You will dislike the ending. E.* It was a detective novel. It was about a man in hospital with a broken leg, lying on his back looking at a ceiling, who had nothing to do and so decided to solve a murder that was four hundred years old and that everyone else had solved already, wrongly.
+
+He had read it four times.
+
+He had disliked the ending very much, and had written to tell her so, at length, and had got as far as the third page, and was explaining why the author was quite wrong about the nature of historical guilt, which he was in a position to know about, when he had become tired, and put the pen down, and slept, and woken to snow.
+
+He thought about the letter now.
+
+He thought that she would not get it. That was quite certain. In most of the hours he had seen, nobody ever read it. In one or two, a man with a wand read it, standing in this cell, and that was much worse, and was the reason he had been thinking about this hour every night since the spring.
+
+He thought about the girl.
+
+She had sat in the chair, the one chair, by the slot window, for three winters and four springs. She had sat very upright and told him the news as though she were reading out the minutes of a meeting, and corrected his dates, and refused to be impressed by him, and shown him nothing in her face at all, and he had loved her for it more than he had loved anyone since a woman in a green dress in Paris.
+
+In most of the hours he had seen, the man with the wand learned that she existed.
+
+Not all. Most.
+
+He had counted them, as well as a man can count things that are not yet, and are not quite. There were a great many ways this morning could go, and he had walked into the corners of all of them, and in nine out of every ten the man came up the stairs and went into his head and found her there. Her face in the chair. Her voice. Her name. And then the man would know what she was, and whose, and the man would go to England, and that was the end of all the ways that mattered.
+
+In the tenth way, he did not.
+
+He had found the tenth way in April. It was very narrow. It ran between the other nine like a path along a cliff. It required a number of things to happen in exactly the right order, and some of them were things only he could do, and one of them was a thing he did not want to do at all.
+
+He had been practising it, in the dark, every night since.
+
+Somebody was coming up the stairs.
+
+* * *
+
+It was Elias.
+
+He knew it was Elias long before Elias reached the top. He had heard Elias climb those stairs a great many times in fifty years, and Elias always climbed them the same way, with the silver-tipped stick going down on every third step, and a rest on the hundred and ninetieth, where there was a narrow window with a ledge, and the view of the valley. Elias was old. He was nearly ninety. He climbed slowly.
+
+He was not climbing slowly now.
+
+He was running. Grindelwald lay on the narrow bed and listened to him run, which he had never heard him do, up three hundred and eighty-one steps in the dark at a little after eight in the morning, with the stick going down on every step instead of every third, and his breath coming in great tearing gasps, and he did not stop at the hundred and ninetieth.
+
+He was coming to warn him.
+
+Grindelwald knew that. He had seen it. Elias had come through the gate below and seen something on the mountain road, or felt something in the wards he had set and kept for half a century, and had known at once what it was, and had not gone back down the mountain to the inn in the valley, where he would have been safe. He had come up.
+
+He had always been a coward. He had said so himself, many times. He had said it to the girl, in a letter, the first time he carried one.
+
+Two hundred and forty. Two hundred and sixty.
+
+Grindelwald found that he was sitting up.
+
+He did not remember deciding to. He was sitting up on the edge of the narrow bed with his bare feet on the cold stone floor and his hands on his knees, listening to an old man run up a tower, and he thought, very clearly, *go back down, Elias. You fool. Go back down.*
+
+He did not say it. Elias could not have heard him.
+
+Three hundred and ten.
+
+There was a second sound on the stairs. It was further down. It was not running. It was walking, quite unhurried, quite light, the way a man walks up a staircase in a house he has just bought, looking at the pictures.
+
+Three hundred and fifty.
+
+Elias reached the landing below the cell, the small square landing where the stair turned for the last time, and stopped, and Grindelwald heard him turn round. He heard the stick come down on the stone. He heard Elias's voice, very hoarse and very out of breath, say something in Hungarian, three words, which Grindelwald had taught him in 1943 in a cellar in Budapest, and which meant, more or less, *not this way.*
+
+There was a flash of green light under the door.
+
+It lit up the bottom inch of the cell. It lit the lamp on the floor and the letter beside it and the legs of the one chair and Grindelwald's own bare feet on the stone, quite brightly, for less than a second. Then it was gone.
+
+Something fell on the landing. The stick fell after it, and rolled, and went down two steps, and stopped.
+
+Grindelwald sat on the edge of the bed with his hands on his knees.
+
+He was sorry.
+
+He noticed it with some interest, as a thing he had not entirely expected. He had seen this a great many times, and he had been sorry every time, in a distant way, the way one is sorry about a thing in a book. He found that he was sorry now in a way that was not distant at all. Elias Varga had been twenty-two when he came to him, a thin serious boy from Debrecen who wanted to make the world better and believed every word he said. He had spent fifty years ashamed of having believed it, and carrying letters up these stairs anyway, and keeping a child's shoe in his pocket keyed to a girl's blood, and being afraid. He had run up three hundred and eighty-one steps at nearly ninety to say *not this way* to a man who had already decided which way.
+
+*You fool*, thought Grindelwald. *You good, brave fool.*
+
+That was as far as it went. He was not a sentimental man. He had killed a great many people himself, in his time, for reasons he had believed in and some he had not, and he did not have the right to be more than sorry about one more.
+
+He was sorry, and he let himself be, for the space of four of the footsteps that were still coming up.
+
+Then he put it away, because there was work to do.
+
+* * *
+
+The door of the cell opened.
+
+It did not need to be unlocked. It had not been locked since 1994, when he had told Elias he was too old to go anywhere and the key was a waste of iron. It opened inwards, slowly, and the light from the landing came in, the grey light of a winter dawn through the window on the stair, and a tall man stepped over something on the landing that Grindelwald did not look at, and came into the cell, and stood just inside the door.
+
+Grindelwald looked at him.
+
+He had seen this face a great many times. It was still a shock. Not because it was terrible, though it was. Because it was so young.
+
+He was seventy years old, the man in the doorway. Grindelwald knew that. He had been born on the last day of 1926, in a London workhouse, to a woman who had died before night. He was seventy, and his face was white and smooth and quite without lines, and his eyes were red, and he had no nose to speak of, only two slits, and he stood in the doorway of the cell with the straight easy back of a man of thirty and looked about him with interest, at the stone walls and the slot window and the one chair and the lamp on the floor and the old man sitting at the side of the narrow bed with his bare feet on the stone.
+
+He was whole.
+
+Grindelwald could see that. He did not need to look for it. He had walked a Path for seventy years and he knew what a Walker looked like when he had reached the top of one, and this man had. There was a stillness to him. A completeness. He stood in the doorway the way a mountain stands in a landscape, as though the rest of the room had been arranged around him.
+
+He was holding a wand.
+
+It was long, and pale, and very old, with a pattern along it like knots in wood, like beads on a string.
+
+Grindelwald looked at the wand for a long moment, and the wand, he would have sworn, looked back.
+
+"Good morning," said Lord Voldemort.
+
+His voice was high, and cold, and quite courteous. It was the voice of a man who has been well brought up by somebody who did not love him.
+
+"Good morning," said Grindelwald. "You'll forgive me if I don't get up. There's only the one chair, and I'm told I'm a hundred and fourteen."
+
+"You don't look it."
+
+"I look a hundred and forty. You are being polite. It doesn't suit you." He nodded at the chair by the slot window. "Sit, if you like. It's the best seat in the house. I'm told the view is very fine. I've been looking at it for half a century and I'm no longer a reliable judge."
+
+Voldemort did not sit.
+
+He stood just inside the door and looked down at the old man on the bed, and Grindelwald looked up at him, and for a moment neither of them said anything at all.
+
+Two monsters, thought Grindelwald. Of different vintages. One young and whole and very pleased with itself. One old and tired and sitting on a bed in its nightshirt with cold feet.
+
+He found it extremely funny.
+
+"You know who I am," said Voldemort.
+
+"I know who you are. I've known who you are since you were sixteen. I saw you once, you know, in a corridor, in an hour that never happened, standing in front of a door with a knife, carving two words on it." He smiled. "You spelled them correctly. I remember being surprised."
+
+Something moved in the white face. It was very small. It was gone at once.
+
+"You know why I've come."
+
+"I know why you think you've come." Grindelwald leaned back a little on his hands, on the thin blanket. "You've come about the wand."
+
+* * *
+Voldemort turned the wand over in his long white fingers.
+
+He did it slowly, and with great care, the way a man handles a thing he has paid a great deal for and is beginning to suspect he has been sold. Grindelwald watched him do it. He had seen this too, in a good many of the hours. It was always the same. The fingers turning the wand, and the small line, so faint it was hardly there, between the places where the eyebrows ought to have been.
+
+"It is the most powerful wand ever made," said Voldemort.
+
+"Yes."
+
+"It was made by Death. Or so the children's story says."
+
+"The children's story says a great many things. Most of them are true. That's what makes it so tiresome." Grindelwald shifted on the bed. His feet were very cold. "It was made by a man. A clever, unpleasant man, called Antioch, who wanted to win every duel he ever fought and was prepared to pay for it. Death is what he paid. The story leaves out the arithmetic."
+
+"I took it from Dumbledore."
+
+"I know. I saw you."
+
+"You saw…"
+
+"From here. In June. On a lawn." Grindelwald looked at the slot window, at the snow. "I saw the water go up, and the birds. I saw him lie down. I saw you take it out of his hand. I've seen it eleven times since. It doesn't get better." He looked back. "You took it out of a dead man's hand, Tom. You bent down on the grass and took it out of his fingers, very gently, the way you'd take a toy from a sleeping child. I thought that was rather beautifully done. I've been meaning to tell somebody."
+
+The red eyes did not change.
+
+"It does not answer me," said Voldemort.
+
+"No?"
+
+"It answers. It does everything I ask. It is stronger than any wand I have held. But it answers…" He stopped. He did not like the word he had been going to use. Grindelwald could see him not like it. "Late."
+
+"Ah."
+
+"A fraction. A hair. Nobody else would notice. I notice." Voldemort lifted the wand a little, and looked along it, as a man looks along a gun barrel. "Why?"
+
+Grindelwald began to laugh.
+
+He had not meant to. He had seen this hour so many times that he had thought there was nothing left in it that could surprise him, and he had been quite right, there was not, but it was funny every time, and it was funnier now that he was actually in it, sitting on a bed in his nightshirt with cold feet, with the most frightening man in the world standing in his doorway asking him why his toy did not work properly.
+
+He laughed until he had to put his hand flat on the blanket to keep himself upright.
+
+He laughed until it hurt, and then a little longer, because at a hundred and fourteen one does not get many chances.
+
+Voldemort waited.
+
+He did not move. He did not raise the wand. He stood quite still in the doorway with the grey dawn behind him and waited, with great patience, for an old man to stop laughing, and Grindelwald, wiping his eyes with the back of a hand like a bundle of sticks, thought that the patience was the most frightening thing about him. Tom had never been patient at sixteen. He had been patient since the summer before last. Since the arch.
+
+"Forgive me," said Grindelwald. "Forgive me. It's only that Albus asked me exactly the same thing. In nineteen forty-five. In a field outside Wrocław. He had just taken it from me, and he stood over me with it, and it answered him a hair late, and he looked at it with exactly that face." He shook his head. "You'd have hated each other less if you'd ever compared notes."
+
+"And what did you tell him?"
+
+"Nothing. I was bleeding at the time." He put his hands back on his knees. "Wands are like cats, Tom. They decide who they live with. You can feed them and stroke them and give them the best cushion in the house, and one day they get up and go and sit on somebody else. That wand has a master. It has had one since a spring night on a tower. It is not you. It was not Albus, by the end, either, I think, though I could not see who it was, and I've looked."
+
+"Who?"
+
+"I don't know."
+
+It was true. He let Tom see that it was true. He had looked, many times, and it was a dark place in all the hours, a door he could not open.
+
+"If I did know," said Grindelwald, "I wouldn't tell you. And I would enjoy not telling you a great deal. So it's a pity, really. For both of us."
+
+"Then I will look for myself," said Voldemort.
+
+He raised the wand.
+
+* * *
+
+This was the narrow path.
+
+Grindelwald had walked it four hundred times in the dark since April, and he walked it now, for the last time, with his eyes open.
+
+The first thing was that the man must point the wand at him.
+
+He did. The long pale wand came up and its tip came to rest a foot from Grindelwald's forehead, and Grindelwald looked at the knotted pattern along the wood, at the place halfway down where there was a small dark nick, like a burn, that he had put there himself in 1932 on a bridge in Prague.
+
+The second thing was that he must not be afraid.
+
+He was not. He had been afraid of a great many things in his life. Of being nothing, as a boy. Of being stopped, as a young man. Of being alone, for fifty-two years in a tower, and of losing his grip on the hours, and of dying before the girl came again. He was not afraid of the man in front of him. He had seen him too often.
+
+The third thing was the wand.
+
+A Pinnacle is opened through a wand one has used for years. Every Walker knows that. Every Walker who has ever been taken prisoner knows what it means, and Gellert Grindelwald had known it for half a century, sitting in a tower without one, unable to open his own summit. He had held the Elder Wand for forty-five years. He had stolen it from a wandmaker's workshop in 1899 and carried it across Europe and done terrible things with it and some fine ones, and it had known his hand better than any wand had known any hand in the history of the world. It had been taken from him. It had not forgotten him.
+
+It was a foot from his face.
+
+"*Legilimens*," said Lord Voldemort.
+
+And Grindelwald reached out, not with his hand, along the foot of air between them, and laid hold of the wand from the other end, the way you lay hold of an old friend's arm in a crowd, and opened Every Hour for the last time in his life.
+
+* * *
+
+He had always described it, to the very few people he had described it to, as standing in a room with a thousand doors, all open at once.
+
+It was nothing like that. But it was the nearest he had ever come, and the girl had nodded when he said it and written it down, so he supposed it would do.
+
+He stood in the room.
+
+He felt the man come into his head, cold and fast and sure, the way a knife goes into a loaf. He felt him begin to look. He felt him reach, at once, without hesitation, for the thing he had come for, which was the wand, and the master of the wand, and then, because he was thorough, for anything else he could find.
+
+And Grindelwald, standing in the room with a thousand doors, chose.
+
+He showed him the hours.
+
+Not the true ones. Not the chair by the slot window with a girl in a grey cardigan sitting in it very upright, saying *the Battle of Vinnitsa was in nineteen forty-two, not forty-three, Grandfather, I've checked.* Not a parcel tied with string and a note in a small square hand. Not a gold watch held in his palm while its fine second hand quivered and began, very slowly, to move.
+
+He showed him the others.
+
+There were a great many others. He had been collecting them since April. He had walked into every corner of every hour of his life that he could reach, and found the ones in which there was nobody in the chair. They were all real, in their way. They were hours that might have been, in a world very slightly to the left of this one, in which a woman in a green dress had left him in 1944 and taken nothing with her, no child, no daughter, nobody at all, and he had sat in this tower for fifty-two years with nothing but the snow.
+
+He showed Tom a thousand of them.
+
+He showed him Elias coming up the stairs with a newspaper, and reading it aloud, and going down again. A thousand times. He showed him the chair, empty, with the light from the slot window falling across its seat in winter and in summer and in winter again. He showed him the lamp on the floor and the narrow bed and a man growing old on it, writing letters to nobody and burning them. He showed him every afternoon of fifty-two years in which no one came.
+
+It was the loneliest thing he had ever made.
+
+It was very easy. He found he had a great deal of material.
+
+And he felt Tom look at it, in the room with a thousand doors, and believe it, almost.
+
+Almost.
+
+He felt the cold mind turn, quite slowly, the way a hound turns when it has lost a scent and is not sure it has lost it. He felt it begin to lift its head. Tom was a legilimens of the first rank and a liar of the first rank, and he knew, because he had told so many, that a lie with nothing true in it is a house with no foundation, and it will stand only until somebody leans on it.
+
+He was going to lean.
+
+So Grindelwald gave him something true.
+
+He had known since April that he would have to. It was the thing he did not want to do. He had hoped, every night in the dark, walking the narrow path, that he would find another way, and there had not been one. A lie as large as this needed something under it heavy enough to hold it down. Something the man would want so badly that he would stop looking at anything else.
+
+Grindelwald opened one more door, and let Tom see through it.
+
+It was a hill. It was a graveyard, on a hill, in a village in the west of England, a long time ago, on a summer evening. A young man of eighteen with yellow hair was kneeling in front of a very old headstone, tracing with one finger a mark cut into the stone: a line, inside a circle, inside a triangle. And beside him, on the grass, there was a book open at a page about three brothers, and a drawing, in the margin, in the young man's own hand. A wand. A cloak.
+
+And a stone.
+
+A small, black, uneven stone, the kind you might find on any beach. Set, in the drawing, in a ring.
+
+In the room with a thousand doors, Grindelwald felt the cold mind stop.
+
+He felt it stop looking at the hours. He felt it stop looking at the chair. He felt the whole of it, all at once, turn away from everything else in his head and fasten on the drawing, and then, with a slowness that was almost like a living thing, like a man waking, turn away from the drawing and look down.
+
+At his own right hand.
+
+At the long white finger, the middle one, and the ring on it. A cracked gold ring, very old, with a black stone in it, uneven, the kind you might find on any beach.
+
+He had worn it since April of last year. He had cracked it at the foot of an arch and drawn a piece of himself out of it and put it back on his finger, because it was his grandfather's ring and his grandfather's grandfather's, and because he liked it. He had looked at it a thousand times. He had never once known what it was.
+
+Grindelwald let go.
+
+* * *
+
+He was sitting on the edge of the narrow bed.
+
+His feet were on the cold stone. His hands were on his knees. The wand was a foot from his face, and the man holding it was standing in the doorway of the cell, quite still, with the grey dawn behind him, looking down at his own right hand.
+
+He did not move for a long time.
+
+Grindelwald watched him. He did not try to read him. He had never been able to read people the way the boy could. He had only ever been able to see where they would go. He watched Tom look at the ring, and saw, with great clearness, all the hours that went out from this one, and in none of them, not one, did the man in the doorway think about an empty chair again.
+
+The lie would hold.
+
+It would hold because it was not quite a lie. It would hold because it was sitting on top of the truest thing Grindelwald had ever told anyone, and the man would never look underneath it, because he would be looking at his hand.
+
+He was very tired.
+
+The cost was coming. He could feel it. It came every time, after Every Hour, and every time it was worse, and he knew precisely how much worse it would be this time, because he had seen it. In a moment he would not be able to tell this hour from any other. The snow on the sill would become Paris, and the hill, and Prague, and the field outside Wrocław, and then all of them at once, and he would not know where he was.
+
+He did not mind.
+
+He had arranged it. He had walked the narrow path to the end, and it had been very narrow, and he had done it with his eyes open.
+
+"Two," said Voldemort, very softly.
+
+He was still looking at the ring.
+
+"Two of three," said Grindelwald. "Yes. You'll want the third, now. I never found it. That's true too. You can check, if you like. I looked for it for forty years." He smiled. "I imagine you'll be quicker."
+
+Voldemort looked up.
+
+He looked at the old man on the bed for a long moment, with the wand still raised, and Grindelwald saw in the red eyes, quite clearly, that there was nothing more he wanted from the room. Nothing. He had come for one thing and been given another, much larger, and he was finished here.
+
+"Thank you," said Lord Voldemort.
+
+It was quite sincere.
+
+"Don't mention it," said Gellert Grindelwald.
+
+The snow on the sill had begun to change.
+
+He saw it go. He saw it become a window in the rue Mouffetard, with rain on it, and a woman in a green dress at a table covered in the small brass parts of a watch, laughing at him because he had dropped the escapement wheel on the floor for the third time. He saw her bend down for it. He saw her put it in his palm.
+
+*So you'll never be in only one,* he had said. *World. Hour. One of anything. If you ever need another, wind it backwards.*
+
+*And how will I get back?*
+
+*I'll make sure,* he had said. *I'll always make sure.*
+
+He saw a gold watch, very small, with ivy leaves on the lid, in a girl's hand. A plain girl in a grey cardigan, sitting very upright in the one chair, holding it out to him on her open palm. He saw the fine hand quiver, and begin to move.
+
+He saw her look up at him over it.
+
+*Grandfather,* she was saying, *you've got the date wrong again. It was the seventeenth.*
+
+He opened his mouth to tell her that he had not got it wrong, he had never once got a date wrong in his life, he had simply been testing her.
+
+There was a green light.
+
+* * *
+
+Evelyn wound the watch at eleven minutes past seven on Wednesday the seventeenth of December, which was eleven minutes late.
+
+She had not meant to be late. She had been late on four mornings in the whole of her life, all of them in the hospital wing. She had been awake until twenty past four, lying on her camp bed with her face to the wall and her hand under the pillow, listening for Potter to come up the projection-room stairs, and he had not, and she had not gone to sleep until he did. And then she had slept through the time at which she always woke, which was ten to seven, and woken at nine minutes past with the grey light already in the small square windows over the auditorium, and the others asleep, and Potter on the camp bed by the projectors with his boots still on.
+
+She took the watch out from under the pillow.
+
+She sat up on the camp bed in her cardigan, with her feet on the cold floor, and held it in her left hand, and took the crown between the finger and thumb of her right, and began to wind it.
+
+Forwards. Always forwards. Twelve turns. She had done it every morning since she was eleven. She had done it in the Slytherin dormitory and the hospital wing and Selwyn Hall and the second floor of Grimmauld Place and a carved wooden inn in a valley in Austria, and she had done it every morning here, in a dead cinema in Leeds, at seven o'clock, before anybody else was up.
+
+One turn. Two.
+
+She counted, as she always did. She did not need to. She did it anyway.
+
+Five. Six.
+
+Seven.
+
+The watch stopped.
+
+It stopped under her fingers. She felt it stop. She had felt it go for a very long time, ever since a cell in a tower in Austria three years ago, when an old man had touched the glass and the fine hand had quivered, and it had gone ever since, quietly, under her fingers and in her pocket and under her pillow, the small steady tick she had stopped hearing years ago because it was always there.
+
+It was not there.
+
+She looked at the face.
+
+The hour hand was at seven. The minute hand was at eleven minutes past. The second hand, the ordinary one, was standing quite still at a little before the twelve. And the other hand, the very fine one, the one most people never noticed, which did not seem to move, and which she had seen move exactly once in her life, on the palm of an old man's hand, was standing quite still where it had always stood.
+
+She wound the crown again.
+
+It turned. Nothing caught. It turned and turned under her fingers, loosely, the way it had turned for four months in her third year, before she knew who had made it.
+
+She stopped winding.
+
+She sat on the edge of the camp bed with the watch in her hand, at twelve minutes past seven, and did not do anything at all.
+
+She knew.
+
+She did not know how. She did not know anything about it. She did not know the hour or the way or who. She did not know that there was a letter on a stone floor beside a lamp, three pages long, about the nature of historical guilt, or that there was an old man in a black coat on a landing below it with his stick two steps further down. She did not know any of it, and she would not know any of it for some days, and some of it she would never know.
+
+She knew that the watch had been reset by its maker, and that it had stopped.
+
+That was all. It was enough.
+
+She thought about the chair by the slot window.
+
+She thought about the Battle of Vinnitsa, and the date he had got wrong, which she was almost entirely sure he had got wrong on purpose.
+
+She thought about the book she had sent him in November. *You will dislike the ending.*
+
+She thought that she would never find out whether he had.
+
+She did not cry. She noted, quite distantly, that she did not, and that it was strange, and that she had cried for twenty-two minutes on the floor of a classroom in March after holding something still for four, and that this was very much larger than that, and she was not crying at all. She sat at the side of the camp bed and held the watch, and her hands were perfectly steady, and she was nothing.
+
+Across the projection room, Potter was awake.
+
+She did not know how long he had been. He was lying on the camp bed by the projectors with his boots on and his eyes open, looking at her. He had dark marks under his eyes like bruises. He had slept for two hours and fifty minutes. She had not written it down yet.
+
+He could not read her. He had never been able to.
+
+He did not try.
+
+She saw him not try. She had watched him for six years. She knew what his face did when he reached for somebody and found nothing, the small frown, the slight narrowing, as though he were listening for a sound in another room. It did not do it. He lay on the camp bed and looked at her, and did not reach, and waited.
+
+"My grandfather is dead," said Evelyn.
+
+Four words.
+
+Potter got up. He came across the projection room in his socks and his boots, past the two old projectors standing like iron animals asleep, and sat down on the camp bed beside her. Not close. A few inches. Enough that she could feel he was there.
+
+He did not say anything.
+
+He did not ask how she knew. He did not say he was sorry. He did not put his arm round her, or take her hand, or do any of the things that Hermione would have done, or Sirius, or Ron. He sat beside her on the edge of the camp bed with his hands on his knees, the way she was sitting, and looked at the same patch of floor she was looking at, and was there.
+
+They sat like that until the light in the small square windows had gone from grey to white.
+
+At some point she put the watch down.
+
+She put it on the table between the two camp beds, the folding table where they ate, beside a jar of Marmite and a cold mug of tea and a copy of the *Yorkshire Post* folded open at the crossword, which Potter did every morning and never finished. She put it down very carefully, face up, with the ivy leaves on the lid open.
+
+Seven. Eleven minutes past. The fine hand where it had always been.
+
+It did not tick.
+
+<->
