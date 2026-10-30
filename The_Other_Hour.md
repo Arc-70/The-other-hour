@@ -30118,3 +30118,569 @@ Then he lay down again, and did not go to sleep, and at a quarter to seven, when
 He could not, by then, have said which of the two things he had told himself he believed.
 
 <->
+
+## Chapter 50: Christmas at Grimmauld Place
+
+He did not go down the well again.
+
+He kept to that for four nights. He lay in his four-poster with his hand over his scar and the door standing open, and he did not go through it, and nothing came through it either. It was very quiet. It was so quiet that by the fourth night he had begun to think that the quiet was a kind of answer.
+
+On the fifth night he dreamed he was a snake.
+
+He did not go anywhere. He was simply there, all at once, low to the ground, long and heavy and cool, sliding along a stone floor in the dark. He could feel the floor along the whole length of himself. He could taste the air with his tongue. It was a corridor, very long, with no windows, and a door at the end of it, black and plain, and he knew the corridor. He had run down it once, in another world, at night.
+
+There was a man sitting on the floor by the door.
+
+He was asleep. His chin was on his chest. He had red hair, thinning on top, and glasses pushed up on his forehead, and a cloak over his knees that shone faintly in the dark, silvery, like water.
+
+Harry wanted him.
+
+That was the dreadful part, afterwards. He wanted him the way he had wanted nothing in his life. It was not hunger and it was not hatred. It was something lower and older than either, and it was his, it was in his own body, the long cool body on the stone, and it was pleased.
+
+The man woke. He began to get up. He reached for his wand.
+
+Harry struck.
+
+He struck three times. He felt his fangs go in, and the bones give, and the warm come out, and the man fall back against the wall and slide down it, and the cloak slip off his knees onto the floor.
+
+He was sitting up in his four-poster.
+
+He was shouting. Theo had the curtains open. Theo was holding his shoulder, hard, and saying his name, and somewhere behind Theo, Crabbe was asking what the hell was going on, and Harry could not stop shouting until he heard what he was shouting, and it was *Mr Weasley*.
+
+* * *
+
+He went straight to Dumbledore.
+
+He did not go to Snape, his Head of House, which was the rule. He did not wait for anybody. He went up through the castle in his pyjamas at twenty past one in the morning with Theo running behind him, and he did not take the Cloak, and he passed Filch's cat on the second floor and did not even look at her. At the gargoyle he did not know the password. He stood in front of it and said every sweet he could think of, and on the ninth, which was *Fizzing Whizzbee*, it moved.
+
+Dumbledore was awake.
+
+He was sitting at his desk in a magnificent purple dressing gown, writing, and he looked up when Harry came through the door, and Harry read him.
+
+He was open. He had been open to Harry since June. And he was frightened before Harry had said a word, and the fright was aimed at Harry's face.
+
+"Mr Weasley," said Harry. "In the Ministry. The corridor to the Department of Mysteries. There's a snake. It bit him. Three times. He's on the floor by the black door, he's bleeding, he's…"
+
+"How did you see this?"
+
+"I was the snake."
+
+Dumbledore did not move.
+
+"I was the snake," said Harry. "I was inside it. I didn't go there. I didn't go anywhere. I was asleep. I didn't…" He stopped. "It wasn't me going in. It came out. It came to me."
+
+Dumbledore stood up.
+
+He did not ask anything else. He turned to the wall of portraits behind him, all the old headmasters and headmistresses, most of them pretending to be asleep, and he spoke to two of them by name, and they woke at once and went out of their frames. He spoke to Fawkes, who rose off his perch in a flash of fire and was gone. He spoke, very quietly, into the fire, with a pinch of powder, and somebody answered.
+
+Then he looked at Harry.
+
+He looked at him for the first time since a hospital wing in June, straight in the face, and Harry read him, and the fear was still there, and it had not got smaller. It was aimed at his scar.
+
+"You did well," said Dumbledore. "You came at once. Whatever else is true, you came at once." He paused. "Was it like the other times?"
+
+Harry did not answer.
+
+"The notes," said Dumbledore. "Avery. Bode. Podmore." His voice was very gentle. "Was it like those?"
+
+"No," said Harry. "Those I went and got. This one came and got me."
+
+He read Dumbledore take that in. He read it go all the way down. And at the bottom of the old man, under the fear, he read something close and grey and heavy settle, the way a stone settles in mud.
+
+* * *
+
+Arthur Weasley was found at a quarter to two by a member of the Order who had been sitting further down the same corridor and who had heard nothing at all.
+
+He was alive. He had lost a great deal of blood. He was at St Mungo's by three.
+
+By four, Ron and Ginny and Fred and George were in Dumbledore's office in their dressing gowns, and Harry was there too, and an old kettle on the desk was glowing blue, and Dumbledore said *on the count of three*. It was a Portkey. Harry had not been asked whether he wanted to go. He found he did not mind.
+
+He read the four of them, in the second before the hook behind his navel.
+
+Ron was white and terrified, and the terror was all for his father, and there was nothing else in him. Ginny was the same, but very still with it. Fred and George were frightened, and under the fright, which Harry had never once read in them, they were furious with the world for doing this, and they did not know where to put it.
+
+And all four of them, in that second, without looking at him, had something aimed at Harry. It was the same in all of them. It was small and uncertain and it had come up very fast.
+
+It was gratitude.
+
+Then the kettle went, and the world went, and they were on the floor of the kitchen at Grimmauld Place, in a heap, with Sirius coming down the stairs two at a time.
+
+* * *
+
+Mrs Weasley hugged him on the twentieth of December, in the kitchen, in front of everybody.
+
+She had come back from St Mungo's at seven in the morning, and Arthur was going to live, and she had hugged each of her children in turn, very hard, for a long time. Then she had turned round, and Harry had been standing by the dresser, not quite in the room, and she had come across the kitchen and put her arms round him too.
+
+"If it hadn't been for you, Harry," she said, into his hair. "If it hadn't been for you…"
+
+He read her.
+
+The warmth that was different for every child. The piece in it with his name on, which had been there since the summer. It was larger now. It was much larger. It had grown overnight, the way a river grows in a storm, and it was very plain, and it was aimed at him.
+
+Under it, very faint, there was a question. She did not know how he had seen it. She did not want to know. She had put the question away somewhere and decided not to look at it.
+
+He did not know what to do with any of it.
+
+He put one arm round her, awkwardly, and stood there.
+
+Over her shoulder, Ron was looking at him from the table. Ron's face was grey with no sleep. Harry read him, and the gratitude was still there from the office, small and uncertain, and it had not gone away. It had sat down. It had made itself at home.
+
+* * *
+
+Hermione came on the twenty-second, by the Knight Bus, with a trunk and a great deal of indignation about Professor Umbridge, who had tried to cancel the Hufflepuff-Ravenclaw match for "reasons of security".
+
+She took one look at Ron and sat down beside him and did not say anything about Umbridge for nearly an hour.
+
+Harry read the two of them.
+
+He had read them since the summer, side by side, the floor of each the other. It was still the floor. But on the twenty-second of December, in the kitchen at Grimmauld Place, with Ron's father in St Mungo's and the snow beginning outside, something had come up through it that had not been there in August. It was aimed at Harry. It was in both of them. It was not quite the same in each.
+
+In Ron it was gratitude, and it was a bit embarrassed about being gratitude, and it was going to be gratitude anyway.
+
+In Hermione it was curiosity, very bright, and under the curiosity, something careful, and under the careful thing, at the very bottom, she was worried about him.
+
+She did not know he could read it.
+
+She asked him, that night, in the library, among the seven hundred and four books, how he had seen it. He told her he had dreamed it. She looked at him for some time with her head on one side, and he read her not believe him, and decide to let it go for now, and file it.
+
+"You'd get on with Evelyn," he said.
+
+"You keep saying that."
+
+"I keep meaning it."
+
+* * *
+
+Sirius was happy.
+
+Harry had never read him happy. He had read him glad, enormously glad, on a doorstep in August. He had read him joyful, and furious, and despairing, and loving, and bitter. He had not read this. Sirius went about the house from the twentieth of December onwards with a full house in it, a kitchen full of Weasleys, a library with Hermione in it, a drawing room with a tree in it that he had stolen from the square at two in the morning and that dropped needles on the carpet, and he sang.
+
+He sang carols. He sang them badly and at the top of his voice, and he made up his own words to most of them, and the words were mostly about hippogriffs, and Mrs Weasley told him off and laughed.
+
+Harry read him do it.
+
+The fury was still there. It was always there. But it had gone down, all the way down, under everything, the way a fire goes down in a grate at night. And on the top, filling him, there was something very simple.
+
+He was not alone in this house.
+
+He hung paper chains with Ginny. He taught Ron a card game from the nineteen-seventies that involved a great deal of cheating. He sat up late in the kitchen with Harry, with his feet on the table and a bottle of butterbeer, and talked about James.
+
+Harry did not ask him about the lake.
+
+He had meant to. He had thought about it on the Astronomy Tower in the rain. He had thought about the boy hanging upside down in the air with his robes over his face, and Sirius in the memory, laughing.
+
+He looked at Sirius across the kitchen table, happy, with his feet up, and he did not ask.
+
+* * *
+
+They went to St Mungo's on Christmas morning.
+
+They went by Underground, the Weasleys and Harry and Hermione and Moody and Tonks, who had turned her hair a festive green for the occasion and was wearing a jumper with a reindeer on it whose nose lit up. St Mungo's was behind the window of an old red-brick department store called Purge and Dowse Ltd, closed for refurbishment. There was a dummy in the window in a green nylon pinafore. Tonks said *Wotcher, we're here to see Arthur Weasley*, to the dummy, and it nodded, and they walked through the glass.
+
+Mr Weasley was on the first floor, in a ward called Dai Llewellyn, and he was sitting up in bed eating turkey with his glasses on and was delighted with everything. He was delighted with the turkey, and the ward, and his bandages, which he had tried to have treated with stitches, a Muggle method a Trainee Healer had told him about, which had not worked and which Mrs Weasley had found out about.
+
+Harry left them to it.
+
+He went out into the corridor. The noise in the ward was a family's noise, loud and warm and overlapping, and he had read it for twenty minutes and it was too much. He walked along to the end and up a flight of stairs, and found himself on the fourth floor, outside a pair of double doors that said SPELL DAMAGE, and a ward beyond them called Janus Thickey.
+
+He was not sure, afterwards, why he went in.
+
+* * *
+
+Neville was there.
+
+He was sitting on a chair beside a bed at the far end with his grandmother, a tall, formidable old witch in a hat with a stuffed vulture on it. He saw Harry come in and went bright red.
+
+Harry nearly went out again.
+
+He did not. He did not know why. He walked down the ward, past a woman whose face was covered in fur and a man who was singing very softly to himself in a language Harry did not know, and stopped at the end.
+
+"Hello, Neville," he said.
+
+"Harry." Neville's voice cracked. "This is… this is my gran. And this is…"
+
+He did not finish.
+
+There were two beds. In one of them a man was sitting up, plump and grey and vacant, with his hands folded on the blanket, looking at the wall. In the other, a woman. She was very thin, and her face was gaunt, and her hair was white and wispy and stood out round her head, and her eyes were enormous.
+
+She was looking at Neville.
+
+Harry read her.
+
+He did not mean to. He had turned the ward down when he came in, the way he always turned down hospitals, because they were full of pain. But she was very close, and he read her before he could stop himself, and then he did not want to stop.
+
+There was almost nothing in her.
+
+He had read people who were empty. He had read Pettigrew, who had made his own emptiness. He had read a boy kissed by a Dementor in a hospital wing. She was a house where every room had been emptied out, and the doors taken off, and the windows boarded, a long time ago, by somebody who had done it on purpose and taken their time.
+
+Except one.
+
+There was one room in her with the light on. It was very small. It was right at the centre of her. And there was one thing in it, and it was perfectly clear, and perfectly present, and it was aimed at the round-faced boy in the chair beside her bed.
+
+It was love.
+
+It did not know his name. It did not know he was her son. It did not know anything at all. It was simply there, small and steady and entirely awake, the one thing left in a house where everything else had gone, and it was turned towards him the way a face turns towards a window.
+
+Harry stood very still.
+
+The woman put out her hand. There was something in it. She held it out to Neville, and Neville took it, and looked at it, and put it carefully in his pocket, and said *thank you, Mum*.
+
+"She gives him things," said Neville's grandmother, briskly, to Harry, as though he had asked. "Bits of paper. Wrappers. He keeps them. Don't you, Neville."
+
+"Yes, Gran."
+
+Harry looked at Neville.
+
+He had read the floor of Neville Longbottom since a train in their first year. A room, and two people in it, and they did not know him.
+
+They did not. Neville had been right about that.
+
+But one of them, at the centre of what was left of her, was turned towards him anyway.
+
+Harry did not tell him. He did not know how. He did not know whether Neville wanted to know. He stood at the end of the bed for a while longer, and then Neville's grandmother asked him whether he was the Potter boy, and he said yes, and she said she had heard he had been very sensible about Umbridge, and that Neville had told her, and that she did not believe a word of it.
+
+"Neither do I, Mrs Longbottom," said Harry.
+
+She looked at him with sharp eyes under the vulture. Harry read her, and there was a small dry approval in her, and she did not show it at all.
+
+* * *
+
+He met Lockhart on the stairs going down.
+
+He heard him before he saw him. A voice was coming up from the third-floor landing, loud and warm and delighted with itself, and it was saying *no, no, my dear girl, I can manage perfectly well, I have managed a yeti, I can manage a staircase*, and Harry stopped on the step and stood still.
+
+Lockhart came round the corner.
+
+He was walking with a stick. It was a very fine stick, ebony, with a silver head in the shape of a phoenix, and he was leaning on it heavily, and he was walking, slowly, step by step, up the stairs, with a young Healer hovering behind him with her arms out. His hair was golden and waved. His robes were lilac. His face, which Harry had last seen grey and twisted on a stretcher made from a cubicle door, was pink and smiling.
+
+He looked up and saw Harry.
+
+"*Harry*," said Gilderoy Lockhart. "My dear fellow."
+
+Harry read him.
+
+He had read Lockhart in a Defence classroom, and in a duelling hall, and in a tunnel under the school with the roof coming down. He had read him be vain and warm and brave and kind and so wrapped up in himself that people missed the brave and the kind. He had read him hold up a tunnel with a spell and break his back doing it, and smile.
+
+He read him now.
+
+He was in pain. That was the bottom. It was steady and old and it had been there for two and a half years and it was not going anywhere. Above it, holding it down without any trouble at all, the way you hold down a lid, there was delight.
+
+Lockhart was delighted to see him. He was delighted to be on a staircase. He was delighted, very particularly, about something else, and it was so large and so bright that it lit him up from inside like a lamp in a window.
+
+"You're walking," said Harry.
+
+"I am *walking*," said Lockhart. "Since October. Four months on the third floor, they said I'd never, and I said, my dear Healer, I have walked out of the Himalayas in a snowstorm with a broken ankle and a yeti on my back, and she said, which ankle, and I said, I can't for the life of me remember, and she said, well then." He beamed. "Come here. Shake my hand. Have you still got the coin?"
+
+"Yes."
+
+"*Good* man." Lockhart took his hand and shook it, hard, and then leaned towards him, and dropped his voice, which made it only slightly quieter. "Harry. My dear boy. I have had a visitor."
+
+"Have you?"
+
+"A very strange old wizard with a wooden leg and an eye that goes round," said Lockhart. "Who sat on the end of my bed for two hours in November and asked me questions about the Bandon Banshee, and the Wagga Wagga Werewolf, and my year with the yeti, and how many of the details I had changed in the books, and then about the Chamber, and then about the tunnel, and how long I had held it." His eyes were shining. "And at the end of it he said that a certain Order, which he would not name, had need of a man who was not afraid of anything and could not be made to keep still. And did I know anybody like that."
+
+Harry read him.
+
+The delight. The lamp in the window. It was all aimed at that.
+
+"I said, my dear fellow," said Lockhart, "I have *written a book about him*."
+
+Behind him, the young Healer put her hand over her eyes.
+
+"It's frightfully thrilling," said Lockhart. "I don't suppose you know anything about it?"
+
+"No," said Harry.
+
+He found that he was smiling. He did not try to stop it.
+
+"Of course you don't," said Lockhart, delighted, and tapped the side of his nose with one finger, and went on up the stairs, one step at a time, with the stick, saying over his shoulder to the Healer that he could perfectly well manage another flight, and that he would be dancing by Easter, and that she was to put that in his notes.
+
+* * *
+
+Kreacher came back on Christmas night.
+
+Harry was the only one who saw. It was very late. The house was asleep, full of Weasleys, and there was paper chain on every banister, and the tree in the drawing room had dropped half its needles on the carpet. Harry could not sleep. He had come down to the kitchen for a glass of water, and he was standing at the sink in the dark, and he read Kreacher come in.
+
+He did not see him. He heard nothing. Kreacher came in by no door at all, the way house-elves do, and Harry read him arrive in the hall above, and then go along it, and down the stairs, to the cupboard by the boiler where he slept.
+
+Harry read what was in him.
+
+He had read Kreacher in August. Hatred, grief, and at the bottom, steady and old, devotion aimed outside the house. He had told Sirius. Sirius had laughed.
+
+It was all still there. But on top of all of it, tonight, there was a new thing. It was small and hot and it was bubbling, the way a pan bubbles just before it boils over, and it was very nearly hysterical, and it was glee.
+
+Kreacher was gleeful.
+
+He was more gleeful than Harry had ever read him. He was gleeful the way a child is gleeful who has done something he knows he will be punished for and has not been caught. And under the glee, aimed far away, at the same place outside the house as always, the devotion was larger than it had ever been. It was almost bursting.
+
+He had been somewhere. He had done something. Whoever he had done it for had been pleased.
+
+Harry stood at the sink with his glass of water.
+
+* * *
+
+He told Sirius at breakfast on Boxing Day.
+
+Sirius was making bacon. He had insisted on making it. He was very bad at it.
+
+"He was out," said Harry. "Last night. Late. He came back very pleased with himself. More pleased than I've ever read him."
+
+"He's always pleased with himself on Christmas night," said Sirius. "He goes up to the attic and sits with Mother's old Christmas decorations and talks to them. It's very moving. Pass me that plate."
+
+"He wasn't in the attic. He'd been out of the house."
+
+"Kreacher can't leave the house unless I tell him to. He's bound. It's the one useful thing about him." Sirius turned the bacon. It was black on one side. "Was he talking to himself?"
+
+"No."
+
+"Then he was probably asleep somewhere and dreamed he'd stolen a biscuit." Sirius grinned at him. "Harry. It's Christmas. Have some burnt bacon."
+
+Harry read him.
+
+He was happy. He was so happy, with a full house round him, and the paper chains, and the bacon, that there was no room in him for anything else. Not for Kreacher. Not for anything that might spoil the morning.
+
+Harry thought about pushing.
+
+He thought about what he had read in the night, and how large it had been. He thought about saying *Sirius, listen to me*, and making him listen, the way he could make anybody listen. He did not usually let himself think about that. He thought about it now, for about two seconds.
+
+Then Ron came down the stairs, yawning, and Hermione behind him with a book, and Ginny, and the twins Apparating into their chairs, and Mrs Weasley calling from the landing that if anybody was burning bacon in her kitchen she would have something to say about it, and the kitchen was full of noise all at once.
+
+Sirius laughed at something Fred said.
+
+Harry took the burnt bacon.
+
+He thought about Kreacher, later, a little, in the afternoon. By the evening he did not think about him at all.
+
+* * *
+
+Nurmengard was colder than it had been the year before, and Evelyn noted that the tower had three hundred and eighty-one steps, which it had had the year before too, and that she was eleven seconds faster up them.
+
+She had gone on the twenty-first, from the lay-by on the A49, where Varga had been waiting in the rain with his collar up and the Portkey in his pocket, exactly as before. She had told her mother, by owl, that Luna Lovegood had invited her to stay until the twenty-third, and her mother had written back that she was so glad Evelyn had a friend, and had underlined *friend* twice, which Evelyn had not liked. Luna had agreed to the lie at once. *Of course. Daddy won't mind. He'll put you in the paper. He puts everybody in the paper.* Evelyn had asked her not to. Luna had said she would try.
+
+Potter knew where she was going. She had told him on the train. He had said *give him my regards*, and then, after a moment, *no, don't*, and then, after another moment, *actually, do*. She had not decided yet.
+
+Her grandfather was standing when she came in.
+
+He was always standing when she came in. He was a hundred and twelve, and very thin, and his hair was white and fine as thistledown, and he stood by the narrow window with one long white hand on the stone sill, and when she came through the door he turned, and she watched his face do the thing it did every time.
+
+She could not have said what it was. It was a very small thing. It was gone almost before it began.
+
+"It has begun," he said.
+
+"Yes."
+
+"I read the *Prophet*. Varga brings it. He reads it to me, sometimes, when my eyes are tired, in a voice like a man reading a will." He sat down in the one chair, the way a heron folds itself onto a bank. "Your Minister says nothing has happened. Your newspaper says nothing has happened. Your Ministry has sent a woman in pink to a school to make certain that nothing goes on happening." He looked at her. "Things only need that much denying when they are very loud."
+
+"Yes," said Evelyn.
+
+"Sit," said her grandfather. "Not there. On the floor. In front of the candle."
+
+* * *
+
+There was a candle on the floor. She had not seen it when she came in. It was a plain white household candle in a tin holder, and it was lit, and the flame was moving a little in the draught from the window.
+
+"Last year," said Grindelwald, "I taught you nothing. I asked you questions and listened to you talk. You worked out by your second visit that this was what I was doing. You were quite right. I like listening to you talk." He folded his long hands. "This year I am going to teach you something."
+
+"Why?"
+
+"Because there is a war," said her grandfather. "And because you are walking a Path, and you do not know it, and the people who walk Paths in wars without knowing it do not usually live very long." He nodded at the candle. "Still it."
+
+Evelyn looked at the candle.
+
+"I can't. I haven't got my wand out."
+
+"I did not say *put it out*. I said *still it*. The flame is moving. Make it stop moving."
+
+"How?"
+
+"The same way you close your mind," said Grindelwald. "You have done it every morning since you were five years old. Your grandmother taught you. You think of it as a door. It is not a door. It is a stillness. You make a stillness in yourself, and nothing that moves can get in." He leaned forward a very little. "Now make it outside yourself. Make it round the candle."
+
+Evelyn looked at the candle for eleven minutes.
+
+Nothing happened.
+
+She looked at it for another seven. Her grandfather did not say anything. He sat in the chair with his hands folded and his eyes half closed and he did not move, and the wind came in through the narrow window, and the flame bent and straightened and bent.
+
+At nineteen minutes, she stopped thinking about the candle.
+
+She thought about the morning instead. The morning in her bedroom at the Hall, when she was five, and her grandmother sitting on the end of the bed, and saying *now, my darling, make it quiet*. She thought about how quiet it had always been. How she had never once in her life heard her own mind make a noise it did not mean to.
+
+She thought about putting that quiet round the candle.
+
+She did not decide to. She simply found that she was doing it, the way you find you have been holding a pen.
+
+The flame stopped.
+
+It did not go out. It stood quite straight and still in the tin holder, a small yellow tongue of light, perfectly upright, and the wind came in through the window and went round it, and it did not bend.
+
+Evelyn looked at it.
+
+"Ah," said her grandfather, very softly.
+
+She lost it. The flame bent. She had looked at it too hard, or thought about it too much, or something. It bent and straightened and bent, like any flame.
+
+"Again," said Grindelwald.
+
+* * *
+
+By the second day she could hold the flame for a minute.
+
+By the evening of the second day he dropped a teacup.
+
+He did it without warning. He was holding it, and talking about something else, about Varga's tea, which he said was a crime against the leaf, and he opened his fingers and the cup fell. Evelyn did not think. She put the stillness round it.
+
+It stopped six inches from the floor.
+
+It hung there in the air, upside down, with a drop of tea suspended under its rim like a bead, and did not move.
+
+Her grandfather looked down at it. Then he looked at her.
+
+She had never seen his face do what it did then. She could not have described it. She thought, later, that if he had been anybody else, she would have called it pride, and that it had frightened her a good deal more than his cruelty ever had.
+
+"The Path of Stillness," he said. "Your grandmother walked a little way along it. She never knew. She thought she was simply very good at keeping secrets." He picked up the cup out of the air and turned it over in his long hand. "You are a great deal better at it than she was."
+
+On the third morning, he cast a spell at her.
+
+It was a small spell. A Stinging Hex. He did it from the chair with his wand, which Varga had brought him in a locked box and taken away again each night, and the spell came across the cell at her in a streak of light, and she stilled it.
+
+It stopped in the air two feet from her face. It hung there, a little knot of red light, fizzing, going nowhere.
+
+Then it went out.
+
+"Good," said Grindelwald. He put the wand back in its box. "That is enough. You are tired, and you will be more tired tomorrow, and you will not be able to do it at all for a day or two. It costs. Everything on a Path costs. You will find out how much in time." He folded his hands. "Now. The boy."
+
+He always asked about the boy.
+
+He asked it every time, at the end, the way some people ask about the weather. He asked it lightly. She had stopped believing the lightness a year ago.
+
+She thought about what to tell him.
+
+She thought about the snake, which she knew about from a letter Potter had sent her on the twentieth, two lines long, saying only that he was at Sirius's and that somebody's father was in St Mungo's and that she was not to worry. She did not tell him that.
+
+She thought about the Occlumency lessons, which had stopped. She did not tell him that either.
+
+She told him about the group.
+
+She told him because she wanted to see his face. She did not admit this to herself until she was halfway through. She told him about the Room of Requirement, and the cushions, and twenty-five people from four houses on Tuesday and Friday nights, and Potter at the front in his shirt-sleeves, reading every one of them and teaching to their fear. She told him about Bulstrode as the target. She told him about Longbottom's Shield Charm holding for six seconds, and then twelve, and then, on the last night before Christmas, thirty-one.
+
+She watched him while she said it.
+
+She watched his face.
+
+He was proud. There was no other word for it. He was proud of a boy he had never met, a boy who was in a different country, a boy he had only ever heard about from her and from newspapers, and it was in his face all at once, and he did not know it was there.
+
+Then he did.
+
+She saw him notice. She saw him find it on his own face, the way you find a crumb on your sleeve, and she saw him be annoyed. He was very annoyed. He was a hundred and twelve years old and the most notorious wizard of the century and he had just been proud of a fifteen-year-old Slytherin in a defence club, and he was so annoyed with himself that he looked out of the window for some time and did not say anything.
+
+Evelyn looked at the candle.
+
+She kept her face exactly as it was. She was fairly sure she managed it.
+
+"He sends his regards," she said.
+
+Her grandfather turned his head and looked at her.
+
+"Does he," he said.
+
+"He said *give him my regards*. Then he said *don't*. Then he said *do*." She paused. "I've decided to."
+
+Gellert Grindelwald looked at his granddaughter for a long moment.
+
+Then he laughed, the dry papery laugh that he always tried to catch with his hand, and did not catch it.
+
+* * *
+
+Selwyn Hall stood in a fold of the hills west of Ludlow, and on Boxing Day there were thirteen people to dinner, and Evelyn had counted them twice.
+
+She had come home on the twenty-third, by Floo from the Leaky Cauldron, with a story about the Lovegoods' house that Luna had helped her prepare in the library, and which included a printing press in the kitchen and a great many radishes. Her mother had asked no questions. Her mother had been in the drawing room with a glass, and it had been a quarter to eleven in the morning, and she had kissed Evelyn on the cheek and said *my darling, you look tired*, and Evelyn had said *I am*, which was true.
+
+Christmas had been Christmas. Pinch had made a pudding. Her father had given her a book on the history of the Wizengamot, which she had read in one night. Lucan had given her a scarf from a shop in Diagon Alley that she had seen in the window and not liked, and she had thanked him for it and meant the thanks and not the scarf.
+
+Boxing Day was the dinner.
+
+Thirteen people. Her father, her mother, Lucan, herself. Her uncle Thaddeus, who called her Evie and was very cheerful and talked about the cricket. A man from the Ministry and his wife. Two old men from the Wizengamot whom she knew by face. A woman she did not know at all, with very short grey hair and a very long neck, who looked at everybody at the table, one after another, as though she were adding them up. Three others.
+
+Evelyn counted them twice and then went into the scullery.
+
+She had offered to help Pinch with the glasses. Pinch had been horrified and had let her. It was the only room in the house where nobody would look for her for twenty minutes. It was small and cold and stone-floored, with a deep old sink and a window that looked out on the kitchen garden, and she stood at the draining board with a cloth and dried the glasses that Pinch washed, and Pinch did not say anything, because Pinch never said anything when Evelyn was in the scullery.
+
+Lucan came in at half past seven.
+
+He came in to wash his hands. He had been out to the stables, he said, to look at something, and his hands were dirty. He went to the sink and Pinch moved out of his way, and he turned the tap on, and without thinking about it, the way you do in your own house at your own sink, he unbuttoned his left cuff and rolled his sleeve back to the elbow.
+
+Evelyn was drying a glass.
+
+She saw it.
+
+It was on the inside of his forearm, where Potter had told her it would be, and where she had seen it in a newspaper drawing and in her own imagination. It was black. It was a skull, and a snake coming out of its mouth, and it was raised, as though it were not very old, as though the skin had not finished healing round it. It was a little smaller than she had imagined.
+
+She did not stop drying the glass.
+
+She dried it all the way round. She held it up to the light from the scullery window to look for smears.
+
+Lucan turned off the tap.
+
+He reached for the towel. And as he reached for it, he looked up, and he saw her see.
+
+She watched him see her see. She watched his face. It was a very good face, her brother's. It was handsome and pleasant and well kept, with good white teeth, and he had been practising their father's smile in the looking-glass since he was twelve. She had heard him through the wall.
+
+He did not roll his sleeve down.
+
+He dried his hands, slowly, on the towel. He looked at her across the scullery, over the sink, over Pinch's bent head.
+
+And he smiled.
+
+It was their father's smile. It was the one he had practised. It was pleasant and polished and it did not go anywhere near his eyes, and it said, as clearly as though he had spoken, *well, there we are*.
+
+Evelyn put the glass down on the draining board.
+
+She picked up the next one.
+
+Neither of them said anything. Pinch washed a glass and did not look up. After a moment Lucan rolled his sleeve down and buttoned the cuff, and put the towel back on its hook, and went out of the scullery without a word, and she heard him go along the stone passage to the dining room, and the door open, and a gust of talk and laughter come out, and the door close.
+
+She dried four more glasses.
+
+Then she went in to dinner.
+
+* * *
+
+Her father talked about realism.
+
+He talked about it over the soup and over the goose and over the pudding, which Pinch had set alight with brandy and which her mother had applauded, too loudly. He did not talk about the Dark Lord. Nobody at the table talked about the Dark Lord. He talked about the need to be realistic, about the times, about the way things were going, about the importance, in times like these, of not being sentimental.
+
+He said *realistic* nine times.
+
+He said it to the man from the Ministry, and to the two old men from the Wizengamot, and to the woman with the long neck who was adding everybody up. He said it pleasantly and smoothly, and he did not raise his voice once, and everybody at the table nodded, and Uncle Thaddeus said *hear, hear* and laughed.
+
+He did not say it to Evelyn.
+
+He did not look at her at all, all through dinner, except once. That was over the pudding, when her mother laughed too loudly at something and knocked over her glass. Her father looked down the table, past the spreading stain on the cloth, at Evelyn. It was the look he gave a ledger that did not add up. It lasted perhaps a second.
+
+Then he went back to his guests.
+
+Lucan, across from her, was charming to the woman with the long neck all evening. He did not look at Evelyn either.
+
+She passed the salt when she was asked.
+
+* * *
+
+She woke at a quarter past six the next morning, in her bedroom in the east wing, which had been her grandmother's wing. It was dark. The fire had gone out in the night and the room was very cold.
+
+She sat up in bed and took the watch from the table beside her.
+
+It was small and gold and warm from the room, or from nothing, and there was a worn pattern of ivy leaves on the lid. She opened it. She wound it forwards, twenty turns, the way she had done every morning since she was eleven, except for the months when it would not wind. She listened to it tick.
+
+She looked round the room.
+
+She had slept in it, on and off, for nine years. Her grandmother's books were on the shelves. Her grandmother's chair was by the window. It was the only room in the house she had ever thought of as hers.
+
+She looked at it now, at a quarter past six, with the watch ticking in her hand, and found that she was looking at it the way she looked at rooms in other people's houses. Carefully. Noting the exits. Counting.
+
+Seven steps to the door. Eleven to the window.
+
+She closed the watch.
+
+She got up and dressed and packed her trunk, although term did not start for another nine days, and sat on the end of the bed with it packed, in her coat, until it was light.
+
+<->
