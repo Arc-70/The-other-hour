@@ -27584,3 +27584,687 @@ It was not his.
 It was glee.
 
 <->
+
+## Chapter 46: Little Whinging
+
+The news came on at nine o'clock, and by the second week of July Harry had worked out exactly where to stand for it.
+
+Not in the sitting room. Uncle Vernon was in the sitting room, in his chair, with his feet on the pouffe and a can of beer going warm on the side table, and Uncle Vernon did not want Harry in a room he was in unless there was a reason, and the news was not a reason. Not in the kitchen either, because Aunt Petunia was in the kitchen, wiping down surfaces that were already clean. In the hall. At the foot of the stairs, on the third step, where the sitting room door stood open about eight inches and he could see a slice of the television and hear all of it.
+
+He did not watch for what was on it.
+
+He watched for what was not.
+
+The Prime Minister had won something on the fourth of July. Harry gathered that he had told everybody who did not like him to put up or shut up, and enough of them had shut up. There was a hosepipe ban in Yorkshire. Reservoirs were being photographed from the air, very low, with dry mud cracked at their edges like old paint. The weathermen stood in front of maps covered in small yellow suns and said it was the hottest summer for twenty years, and on the eleventh of July one of them said it might be the hottest since records began, and Uncle Vernon said that was what they always said.
+
+There were no strange deaths. There were no families found in their beds with nothing wrong with them. There were no bridges coming down in the night, and no gas explosions that were not gas.
+
+Harry sat on the third step every night at nine and listened, and every night it was nothing, and every night he went upstairs after the weather and lay on his bed and did not know whether nothing was good.
+
+* * *
+
+The *Daily Prophet* was worse, because it was not nothing.
+
+It came every morning with a brown owl who had stopped expecting to be thanked, and Harry paid her and unrolled it on the bed and read it from the front page to the crossword.
+
+Voldemort was not in it.
+
+That was the first thing. He was not in it anywhere. Not in the news, not on the letters page, not in the small grey paragraphs at the bottom of page nine where the *Prophet* put the things it did not want to print and could not quite leave out. A wizard in Norfolk had gone missing on the eighteenth of July, and on the twentieth he was found, and on the twenty-first the *Prophet* said he had gone to visit his sister and forgotten to tell anyone. A Muggle family in Cumbria had been found asleep in their kitchen at eleven in the morning and could not be woken, and the Obliviators had been called, and the *Prophet* said a faulty boiler.
+
+Harry was in it a great deal.
+
+He was in it the way weather is in a newspaper. Never on the front page. Never in a headline. Just there, every few days, in passing. *A tall story worthy of Harry Potter.* *Let's hope he doesn't have a scar that needs looking at.* A short piece about a boy in Wigtown who had seen a dragon in his grandmother's coal shed, which ended: *Perhaps, like a certain famous Hogwarts student, he simply enjoys the attention.*
+
+Rita Skeeter's name was not on any of them.
+
+Harry read them all twice. He read them for the shape of the sentences, the way Evelyn read things, and on the second reading he could hear her. Rita's jar had been opened at the end of June. She was free. And the *Prophet* had been told what to say about him by somebody else, and she had taken the job of saying it in a way that nobody could ever point to.
+
+He cut nothing out. He did not keep them.
+
+He thought about Cedric's father on the pitch, with no word for what he was.
+
+He thought about the Ministry, a long way away, deciding.
+
+* * *
+
+Evelyn's first letter came on the tenth of July, eleven days after the train.
+
+It was a page and a half in her small square hand, and it was about the weather.
+
+*It has not rained in Shropshire since the eighth of June. I know this because Pinch keeps a book. She writes in it every evening at six what the sky has done, and has done so, she says, since 1911, though she will not show me the early volumes. The yew walk is the only green thing on the estate. The lawn is the colour of a digestive biscuit. My father says it is good for the moles. I do not know what he means by this and I have not asked.*
+
+*I am reading The Tiger in the Smoke, by Margery Allingham. It is about a fog in London, and a man who has got out of prison and come back to the city, and everyone who knew him before is quite certain he cannot possibly be as bad as they remember. They are wrong. It is a very good book. I have read it twice. My father saw it on the hall table and asked whether it was any good, and I said it was about people who would rather not know things, and he said that sounded tedious, and went in to his study.*
+
+*Lucan is at home a great deal this summer. He has stopped going in to the office. He says the Ministry is very quiet just now and he is not needed. He is very pleasant to me. He brought me a sugar mouse from Ludlow on Tuesday, which he has not done since I was nine.*
+
+*My mother is well. She is drinking less. She is drinking it earlier.*
+
+*I hope your aunt's lawn is suffering. E.S.*
+
+Harry read it four times.
+
+He read it the first time for what it said, and the second time for what it did not, and the third time for the sentence about the sugar mouse, and the fourth time because he wanted to. Then he folded it twice and put it in the back of his Charms book with the others, and lay on his bed with the window open and the dead hot air of Privet Drive not moving in it at all.
+
+Owls could be read. Everybody knew that. Evelyn knew it better than anyone, and so she wrote about the weather and a book, and Harry read between the lines, and between the lines was a big easy uncle who had knelt in a churchyard, and a father who did not want to know things, and a brother who had stopped going to work.
+
+He wrote back about the hosepipe ban.
+
+He wrote that the house next door had been seen watering its roses after dark by Aunt Petunia, who had been watching from behind the landing curtain at half past eleven at night with the lights off, and was now considering what to do about it. He wrote that he was reading nothing, because there was nothing in the house to read except the *Radio Times* and a book about kitchens. He wrote that the news was very quiet.
+
+He did not write that it was too quiet.
+
+She would know.
+
+* * *
+
+Dumbledore's note came on the fourteenth.
+
+It was four lines long, in thin, slanting violet ink, on a scrap of parchment that had been torn from the bottom of something larger.
+
+*Harry. Not yet, I am afraid. There are a great many things to put in place, and there are people watching the places I would ordinarily go. Stay where you are. It matters more than I can say in a letter. Forgive me. A.D.*
+
+Harry read it once.
+
+He did not put it in the Charms book.
+
+He thought about a round office at two in the morning, and an old man pulling a chair round so that he could sit closer, and saying *in the summer, when you are rested*, and then waiting. He had been waited for. He had said yes. And now it was the middle of July, and he was in the small bedroom with the window open and the Dursleys' fear coming up through the floor like heat off a road, and it was *not yet*.
+
+He was not angry.
+
+He looked at that for a while, lying on the bed, because he had expected to be. He had a ledger with eight lines in it, and every line was a time Dumbledore had decided something for him without asking, and this was one more. And he was not angry. He was something else.
+
+He was lonely.
+
+It was a plain thing to find. He did not do anything about it. He lay on the bed until the light went orange and then grey, and at nine o'clock he went down and sat on the third step and listened to the news, and it was nothing again.
+
+* * *
+
+Dudley had taken up boxing.
+
+He had done it the summer before, apparently, while Harry was at school, and had boxed for Smeltings, and won something with a belt, and was now a different shape from the shape Harry remembered. He was not smaller. He was the same size or larger. But the size had moved. It had gone from his middle up into his shoulders and his neck, and he walked differently, with his arms held away from his sides, and he went out every evening after tea and did not come back until gone ten.
+
+Aunt Petunia said he was at the Polkisses'.
+
+Harry did not think he was at the Polkisses'.
+
+He saw them on the twenty-second of July, on his way back from walking nowhere in particular, which was the only thing there was to do in Little Whinging in a heatwave. Dudley and four others, on the swings in the play park at the end of Magnolia Road. Not swinging. Sitting on them, the way you sit on a wall, with their feet on the dry ground and the chains creaking. Piers Polkiss, thin and ratty, with a cigarette he was not smoking properly. A boy Harry did not know, with a shaved head. Two others behind him, kicking at the bark under the roundabout.
+
+They had a younger boy against the railings.
+
+He was about ten. He had a bicycle, a red Raleigh with a basket on the front, and the basket was on the ground, and so was the bicycle, and the boy was standing with his back to the railings and his hands at his sides, and nobody was touching him.
+
+Nobody needed to.
+
+Harry stopped by the gate and read them.
+
+The boy by the railings was terrified, which was ordinary, and very quiet, which was worse. He had gone quiet the way an animal goes quiet when it has decided not to be noticed.
+
+Piers was excited, a small mean excitement, a little too bright, aimed at the boy and also, sideways, at Dudley, to see whether Dudley was pleased with him. The shaved boy was bored. The two by the roundabout were nothing much, a kind of drift, the feeling of people who are there because the others are there.
+
+And Dudley was bored.
+
+That was on the top. Dudley was bored and he was cruel, and the cruelty was not hot. It was something he did because it was something to do. He was looking at the boy against the railings the way he had once looked at a television he had already watched twice.
+
+And under that, a long way down, there was something else.
+
+Harry had not felt it in him before. He looked at it carefully, from the gate, with the heat coming up off the pavement and somebody's radio playing *Boombastic* from an open window across the road.
+
+Dudley was afraid.
+
+Not of the boy. Not of Piers, or the shaved boy, or anything in the play park. It was aimed at nothing outside him at all. It was aimed inwards. It was the feeling of somebody who had hit something in a ring, with gloves on, and found out how easy it was, and had liked it, and had not been able to stop thinking about how much he had liked it.
+
+Dudley was afraid of himself.
+
+He did not know it. That was quite clear. It was very quiet and very far down, under the boredom, under the cruelty, and Dudley had never once looked at it. But it was there, and it was growing. Harry could tell that it was growing the way you can tell a tree has grown when you have not seen it for a year.
+
+"Oi," said Piers, who had seen him. "Big D. It's your cousin."
+
+Dudley looked round.
+
+The boy by the railings picked up his bicycle in one movement, put the basket on the front without looking at it, and was through the gate and gone before any of them turned back. Harry did not move aside for him. He did not need to. The gate was wide.
+
+"Get lost," said Dudley.
+
+"I'm going," said Harry.
+
+He went. He walked home down Magnolia Road with his hands in his pockets, and the heat came up off the pavement, and he did not look back.
+
+He thought, on the way, about the thing underneath his cousin.
+
+He thought that he could reach down into it, if he wanted to. He knew how. He had done it once, to a man in a room under the school, and the man had died. He had promised himself, lying awake in the hospital wing at eleven years old, that he would not do it again, and he had kept the promise for a long time, and then not kept it, and every time since it had been a little easier.
+
+He could take the small quiet fear down in Dudley and make it larger.
+
+Dudley would never touch a boy on a bicycle again.
+
+Harry walked up the path of number four and let himself in by the back door, and went upstairs, and lay on the bed, and did not do it.
+
+He was not sure, afterwards, whether that was because it was wrong or because it was Dudley.
+
+* * *
+His birthday was a Monday.
+
+He was fifteen. Hedwig came back at six in the morning with a parcel from Theo (a chess set the size of a matchbox, with pieces that sulked when they were taken, and a card that said *for the train, if you ever learn*), and a brown owl came at seven with a cake from Hagrid that had been squashed flat in transit and was still, Harry judged, edible in parts. Millicent sent a pair of Beater's gloves, very old, very large, with a note: *Mine are new. These were my dad's. Don't say anything.*
+
+He did not say anything.
+
+Sirius sent a letter by a tropical bird that was clearly not used to English weather, and stood on the windowsill looking offended by the heat. It said happy birthday three times and *be careful* four times and nothing else that could be used against anybody.
+
+Evelyn's letter came on the thirty-first itself, which was not on the eleventh day. It was on the tenth.
+
+It said: *I have miscounted. It happens. Many happy returns. The fog in the book lifts in the end, in case you were worried. E.S.*
+
+Harry read it on the bed with the cake on his knee.
+
+Evelyn did not miscount.
+
+He put the letter in the Charms book and ate a piece of the squashed cake that had not touched the string, and found that he was smiling, and did not know why, and then did.
+
+* * *
+
+On the evening of the second of August, at twenty past nine, it went cold.
+
+He was walking back from the play park. He had gone there at eight because it was the only place in Little Whinging with any shade, and had sat on the roundabout reading nothing until the sun went behind the houses on Magnolia Crescent, and then started home the long way. He was in the alley that ran between Magnolia Crescent and Wisteria Walk, a narrow passage between two high garage walls with a strip of dry weeds down the middle and a lamp at each end that had not come on yet.
+
+Dudley was ahead of him.
+
+Harry had caught him up at the top of Magnolia Crescent, by accident, and they had walked twenty yards apart for two streets without speaking, Dudley in front with his arms held out from his sides, Harry behind with his hands in his pockets. At the mouth of the alley Dudley had stopped and turned round and said something about Harry talking in his sleep. About a name. *Cedric.* He had said it in a high voice, a mimicking voice, a voice that went up at the end.
+
+Harry had read him.
+
+Dudley was enjoying himself, and under the enjoyment, a little nearer the top than it had been on the twenty-second of July, he was afraid of what he was doing. He did not know why he had said it. He was saying it again anyway.
+
+"*Cedric*," said Dudley. "*Help me, Cedric.* Who's Cedric? Your boyfriend?"
+
+Harry looked at him.
+
+He did not answer. He was deciding something, standing in the mouth of the alley in the last of the light. He was deciding how much of what he could do to Dudley he was going to do. And he had very nearly decided, which was a thing he would think about later, when the light went.
+
+It went all at once.
+
+Not dusk. Not the sun going down behind a roof. The light did not fade. It went, the way it goes when a hand is put over a lamp, and the stars above the alley went with it, and the lamps at each end of the alley, which had not been on, were now somehow further away than they had been.
+
+And the cold came.
+
+It came up the alley from the Wisteria Walk end like water coming into a lock. The dry heat that had sat on Little Whinging for nine weeks did not lift. It was taken. Harry's breath came out of him white. The weeds down the middle of the alley went grey and stiff, and the brick of the garage wall beside his hand, which had been warm as bread a second ago, was cold enough to hurt.
+
+"What're you doing?" said Dudley. His voice had gone up. "Stop it. Stop it!"
+
+"I'm not doing anything."
+
+"You are! Stop it!"
+
+"Dudley, shut up and don't move."
+
+He could not see anything. He reached out instead.
+
+He knew what it was before he found it. He had felt it on a train when he was thirteen, and on a lake shore with a hundred and fifty of them coming over the water, and he had never forgotten it, because there was nothing to remember. There was no feeling in it. There was nothing in it that had ever been a person. There was only appetite.
+
+Two of them.
+
+They were in the alley. They were coming up it from the Wisteria Walk end, not quickly. They did not need to be quick. He could feel the two appetites as clearly as he had ever felt anything, two great cold pulls, aimed at the alley, aimed at the two warm living things in it, and they were not angry, or cruel, or pleased. They were hungry. That was all. They were the hungriest things he had ever been near, and they had found something to eat.
+
+"Dudley," he said. "Stay behind me."
+
+Dudley ran.
+
+He ran the wrong way. He ran straight up the alley, towards the Wisteria Walk end, with his arms out in the dark, and Harry heard him hit something and heard him make a sound Harry had never heard come out of his cousin, a thin, high, breathless sound, and then heard him go down.
+
+Harry had his wand out.
+
+He did not remember taking it out. It was in his hand, and his hand was cold, and the first one was coming down the alley towards him, and he could not see it, but he could feel it. He could feel exactly where it was, the way you can feel exactly where a fire is in a dark room. Six yards. Five.
+
+His mother began to beg.
+
+She was a long way off. She was always a long way off, and very clear, and she said what she always said, and Harry stood in the alley between Magnolia Crescent and Wisteria Walk with his wand out and let her say it, because there was no way to stop her, and he had learned that two years ago. You did not stop her. You did something else while she was talking.
+
+He reached for the other Sirius.
+
+He had kept it. A man in a goat-smelling room above a bar, in another world, loving a boy who was not this Harry with a love so loud it had filled the room. Harry had read it and kept it, the way you keep a coin in a pocket, and had used it on a lake shore, and it had not been used up.
+
+He reached for it, and it was there, and it was not enough.
+
+The cold was too close. His mother was too loud. He had the love in his hands and he could not lift it.
+
+So he let it go, and reached for something smaller.
+
+A flat rock on the far side of the lake. The sun going down behind it. A plain girl in a grey cardigan, with her face not changing at all, saying *I signed for it*. And his own laugh coming up out of him all at once, after a week of nothing, going across the water and coming back off the castle walls, and the squid moving one long arm in the shallows and going back to sleep.
+
+It was not loud. It was not much.
+
+It was his.
+
+"*Expecto Patronum*," said Harry.
+
+The stag came out of the end of his wand at a gallop.
+
+This was no great silver thing the size of a tree, like the one at the lake. This one was the size of a real stag, and it was very bright, and it lowered its head as it ran and went straight up the alley into the dark, and the dark got out of its way. Harry felt the first appetite turn. It was not frightened. It did not have anything in it that could be frightened. It turned the way a moth turns from a candle that is too hot, and it went up, and away, over the garage roofs and into the sky over Wisteria Walk, and it was gone.
+
+The stag went on up the alley.
+
+Harry ran after it.
+
+The second Dementor was crouched over Dudley. Harry could see it now, in the stag's light, a tall black ragged shape bent over a large boy on the ground with its scabbed grey hands on either side of his head, and its hood was lowering. Dudley was not moving. His arms were flat out on the dry weeds. His face was turned up to the thing above him, and his mouth was open, and Harry reached into him and found that Dudley was not frightened any more.
+
+He was not anything any more. He was going.
+
+The stag hit the Dementor at full gallop.
+
+It hit it the way a train hits a fog. The black shape was lifted off the ground and flung back and up, end over end, and it went over the garage wall and was gone, and the appetite went with it, faster and faster, until it was so far away that Harry could not feel it at all.
+
+The lamps came on.
+
+Both of them. All at once, at either end of the alley, orange and ordinary, and the stars came back, and the heat came back, sliding down the alley from both ends like water closing over a stone.
+
+The stag stood in the middle of the alley and looked at him.
+
+Then it was gone too.
+
+* * *
+
+Dudley was on his side in the weeds.
+
+He was shaking. He was shaking all over, in long hard shudders that went through the whole of him from his shoulders to his feet, and he had his arms wrapped round his own head, and he was being sick. Harry knelt down beside him, not too close, and waited until he had finished.
+
+Then he read him.
+
+Dudley was terrified.
+
+It was all of him. It was enormous and very simple, and it did not have an object any more, because the thing it had been aimed at was gone. It was just terror, filling Dudley the way water fills a bucket, right up to the brim. He did not know what had happened to him. He did not know what he had seen. He had seen, Harry thought, nothing. He had felt a cold come up the alley and had run straight into it, and then everything good he had ever had had begun to go out of him like air out of a tyre, and he had not known why, and nobody had ever told him a thing like that could happen.
+
+And under the terror, very small, very new, there was something else.
+
+It was aimed at Harry.
+
+Harry looked at it for a long time, kneeling in the dry weeds with the lamps on at both ends of the alley and his cousin shaking beside him.
+
+It was gratitude.
+
+Dudley did not know what to do with it. That was the plainest thing about it. The gratitude sat in the bottom of him, very small, beside the fear of himself that had been there since the spring, and it was not like anything else in there. It was not like anything Dudley had ever felt for Harry in fifteen years. He did not know what it was. He was turning it over and over without looking at it, the way you turn a key you have found in a coat that is not yours.
+
+"Can you stand up?" said Harry.
+
+Dudley did not answer.
+
+"Dudley. Can you stand up."
+
+"What," said Dudley. His teeth were going. "What was. What did you."
+
+"It's gone. They're gone. Can you stand up?"
+
+Dudley's teeth went on chattering.
+
+"Was it you?" he said. "Did you. Was that you?"
+
+"No."
+
+"It was cold. It was all cold. I couldn't…" He stopped. "I thought I was."
+
+"I know," said Harry. "It's gone now."
+
+"Where's it gone?"
+
+"Away. A long way. I sent it."
+
+Dudley looked at him then. In the orange light from the far lamp his face was grey and wet and very young, younger than Harry had seen it since they were both small, and he did not look away.
+
+"You *sent* it," he said.
+
+"Yes."
+
+"How?"
+
+Harry did not answer that.
+
+Footsteps were coming down the alley from the Magnolia Crescent end. Quick, shuffling, uneven, in slippers.
+
+Harry was on his feet with his wand up before he knew he had stood.
+
+"Don't put it away, you silly boy!" said a voice.
+
+It was Mrs Figg.
+
+She came down the alley in a hairnet and a pair of tartan carpet slippers, with a string bag of cat food tins swinging from one wrist, and she was very old and very cross and quite out of breath, and Harry read her and found that she was frightened out of her wits and furious, and that the fury was not aimed at him.
+
+He had read Mrs Figg since he was four.
+
+He had sat in her front room, which smelt of cabbage and cat, every time the Dursleys went anywhere they did not want to take him, and looked at photographs of Tibbles and Snowy and Mr Paws and Tufty, and he had read her the whole time. She had been lonely. She had been fond of him in a way she did not show. And under the fondness there had always been something he had not understood and had put down to nosiness, a steady watchfulness, aimed at him, every minute he was in her house.
+
+He understood it now.
+
+"You know what they were," he said.
+
+"Of course I know what they were. Dementors. In Little Whinging. Dementors." She was looking up and down the alley as though there might be more of them behind the bins. "Mundungus Fletcher was supposed to be watching you. Supposed to be. He went off. He went off about a cauldron. I'll skin him. I'll *skin* him." She looked at Harry. "I'm a Squib. Before you ask. Dumbledore asked me to keep an eye. I've been keeping it for fourteen years and I've never had to *do* anything, and now look."
+
+"You're…"
+
+"Help me with your cousin. We need to get you home. And don't put that wand away. They might come back."
+
+* * *
+
+It took both of them to get Dudley up the alley and along Wisteria Walk and round the corner into Privet Drive.
+
+He did not speak the whole way. He walked with one arm over Harry's shoulders and Mrs Figg pushing at his back with her free hand, and his feet went where they were told, and his head hung, and every few yards he shuddered from top to bottom as though somebody had walked over his grave. He was very heavy. Harry had never been this close to his cousin for so long without being hit.
+
+At the gate of number four Mrs Figg let go.
+
+"I'll not come in," she said. "Your uncle and I have never seen eye to eye about the hedge. You'll be hearing from somebody. Stay in the house. Do you understand me? Stay in the house. Whatever they say."
+
+"Whatever who says?"
+
+But she was already shuffling away up Privet Drive with her cat food, muttering about cauldrons.
+
+Harry got Dudley up the path and rang the bell.
+
+* * *
+It was ten to ten by the clock on the kitchen wall when Uncle Vernon finished shouting.
+
+He had begun in the hall, the moment Aunt Petunia opened the door and saw her son with his arm over Harry's shoulders and sick down his shirt. He had gone on in the kitchen, where Dudley was put in a chair at the table with a blanket round him in a heatwave and his mother holding his face in both her hands. And he had not stopped. He had gone purple, and then a darker colour that Harry had seen only twice before, and he had stood with his back to the cooker and his fists on his hips and shouted at Harry for eleven minutes without very much of it making sense.
+
+Harry stood by the back door and read him.
+
+Uncle Vernon was angry. That was very loud, and very ordinary, and aimed at Harry the way it always had been. Under the anger he was frightened, which was ordinary too, by now. And under the fear there was something Harry had not felt in him before, something that had come in tonight, through the front door, with Dudley.
+
+Uncle Vernon was helpless.
+
+Something had happened to his son, and he could not see it, and he could not hit it, and he could not ring anybody about it. That was the thing he was shouting at. Harry was simply where the shouting landed.
+
+"…and I want to know, I want to know *now*, what you did to him…"
+
+"I didn't do anything to him."
+
+"Don't you lie to me, boy!"
+
+"I'm not lying." Harry kept his voice quiet. He had learned that a long time ago. The louder Uncle Vernon got, the quieter you went, and in the end he had to stop to hear you. "We were attacked. Both of us. In the alley by Wisteria Walk. I stopped it."
+
+"*Attacked*. By what? By *what*? By some of your lot?"
+
+"No. Not exactly."
+
+"Then *what*?"
+
+"Dementors," said Aunt Petunia.
+
+The kitchen was very quiet.
+
+She had not looked up. She was still kneeling beside Dudley's chair with her hands on either side of his face, holding it as though it might fall off, and she said it into his hair, quite clearly, in a flat, small voice that Harry had never heard her use. Then she seemed to hear what she had said. Her hands stayed where they were. The rest of her went still.
+
+Uncle Vernon stared at her.
+
+"Dementors," he said. "What's… what are… how do *you*…"
+
+"They guard the wizard prison," said Aunt Petunia. "Azkaban." She still had not looked up. "They take everything good out of you. Everything happy. I heard… that awful boy. Telling her about them. Years ago."
+
+Harry read her.
+
+He had been reading Aunt Petunia for as long as he had been reading anyone. He had read her across this kitchen when he was four, and five, and nine, and twelve, and every time he had found the same thing on the top, and it had always been disgust. Disgust and envy, aimed at him, at his clothes and his hair and his scar and the letters that came for him, and under them a thing he had never had a word for. It had always been there. It had always been very far down and very quiet, and very old, like water at the bottom of a well, and he had never once been able to see what it was.
+
+He could see it now.
+
+She was grieving.
+
+It was grief. Plain, old, unfinished grief, for a girl with red hair who had been her sister, and it had been in her the whole of Harry's life. It had come into this house with him in a basket on the doorstep fourteen years ago, and it had never once gone out. And it was aimed at him. It always had been. Not because of anything he had done, but because he had come out of the basket with her sister's eyes in his face, and every morning for fourteen years Aunt Petunia had come downstairs and put the kettle on and found her sister looking at her across the kitchen table.
+
+The disgust was on top of it. The disgust was what she had built to stand on.
+
+Harry did not say anything.
+
+Aunt Petunia looked up.
+
+She looked at him, across the kitchen, for the first time that night. Her face was quite white and quite closed. She did not know what he could do. Nobody in this house had ever known. But she looked at him for a long moment, from the floor by her son's chair, and Harry thought that perhaps she knew that he had seen something, without knowing what.
+
+She did not say anything either.
+
+She looked down again, at Dudley.
+
+An owl came in through the kitchen window.
+
+It came in so fast that it took the net curtain with it, and dropped a letter on the table in front of Harry, and turned in the air above the sink, and went out again the way it had come. Uncle Vernon made a sound like a kettle. Aunt Petunia did not move.
+
+Harry opened the letter.
+
+*Dear Mr Potter,*
+
+*We have received intelligence that you performed the Patronus Charm at twenty-three minutes past nine this evening in a residential area and in the presence of a Muggle.*
+
+*The severity of this breach of the Decree for the Reasonable Restriction of Underage Sorcery has resulted in your expulsion from Hogwarts School of Witchcraft and Wizardry. Ministry representatives will be calling at your place of residence shortly to destroy your wand.*
+
+*As you have already received an official warning for a previous offence under Section 13 of the International Confederation of Warlocks' Statute of Secrecy, we regret to inform you that your presence is also required at a disciplinary hearing at the Ministry of Magic.*
+
+*Hoping you are well,*
+
+*Yours sincerely,*
+
+*Mafalda Hopkirk*
+
+*Improper Use of Magic Office*
+
+*Ministry of Magic*
+
+Harry read it twice.
+
+He thought about the hover charm in this kitchen three summers ago, which he had not done. He thought about a house-elf called Dobby and a pudding on the ceiling. He thought, very clearly and without any heat at all, about the people who had decided what the *Prophet* would say about him all summer, and that this was the next thing they had decided.
+
+*Hoping you are well*.
+
+He found that he wanted to laugh, and did not.
+
+"What is it?" said Uncle Vernon. "What does it say? Is it about *this*? Are they coming? Are they coming *here*?"
+
+"They've expelled me," said Harry.
+
+Uncle Vernon's face did something complicated.
+
+Harry read it. Uncle Vernon was glad. It came up through the fear and the anger and the helplessness like a fish coming up through weed, a pure, simple, uncomplicated gladness, and Harry watched him feel it and then watched him not know what to do with it, because his son was sitting at the kitchen table in a blanket and shaking.
+
+The second owl came at four minutes past ten.
+
+It was a larger owl, a barn owl, and it came in through the gap the first one had made in the net curtain and landed on the back of a kitchen chair and held out its leg with great dignity. Harry took the letter. It was on the same Ministry parchment, in the same purple ink, in a different hand.
+
+*Dear Mr Potter,*
+
+*Further to our letter of approximately twenty-two minutes ago, the Ministry of Magic has revised its decision to destroy your wand forthwith. You may retain your wand until your disciplinary hearing on the twelfth of August, at which an official decision will be taken.*
+
+*Following discussions with the Headmaster of Hogwarts School of Witchcraft and Wizardry, the Ministry has agreed that the question of your expulsion will also be decided at that time. You should consider yourself suspended from school pending further inquiries.*
+
+*With best wishes,*
+
+*Yours sincerely,*
+
+*Mafalda Hopkirk*
+
+Harry put it on the table beside the first one.
+
+*Discussions with the Headmaster*. Twenty-two minutes. Dumbledore, who was watched, who could not come, who had written *not yet* on a torn scrap of parchment, had found out in twenty-two minutes and had done something about it.
+
+Harry did not know what he felt about that. He put it with the other things.
+
+"Well?" said Uncle Vernon. "Well?"
+
+"I'm not expelled yet," said Harry. "I've got a trial."
+
+"*Yet*."
+
+"Yet."
+
+Uncle Vernon looked at the window, at the torn net curtain hanging off its wire, at the two letters on the table, and at his son. Then he sat down, quite suddenly, in the chair nearest the cooker. He did not say anything else for a long time.
+
+Dudley spoke.
+
+It was the first thing he had said since the alley. He said it to the table, through the blanket, without lifting his head, in a hoarse voice that did not sound like his.
+
+"He did a light," said Dudley.
+
+Everybody looked at him.
+
+"In the alley. It went all dark and cold and. And it was like. Like everything was going." He swallowed. "And then he did a light. A big light. Like an animal. And it stopped."
+
+He did not look at Harry. He did not look at anyone. He sat at the kitchen table with his mother's hands still on either side of his face, and the small new thing in the bottom of him turned over again, and he still did not know what it was.
+
+Harry went upstairs.
+
+Nobody stopped him.
+
+* * *
+
+They came for him four nights later.
+
+He had spent those four nights in the small bedroom with the door shut. He had written to Sirius, and to Evelyn, and to Dumbledore, and had heard from two of them. Sirius's reply had said *stay in the house* and nothing else, underlined three times so hard the quill had gone through. Evelyn's had come on the fourth, on the eleventh day of her new count, and had said: *My father says there was a Ministry owl about you in his post this morning. He read it at breakfast. He looked pleased. I have finished the Allingham and started Josephine Tey. It is about a girl accused of something she did not do. The trial is in the middle of the book. Everyone in it is very stupid except the solicitor. E.S.*
+
+Dumbledore had not written.
+
+On the evening of the sixth of August the Dursleys went out.
+
+They went to a dinner. Uncle Vernon had received a letter that morning, on thick cream paper, inviting him and Mrs Dursley and their son to a dinner for the regional sales directors of Grunnings at the Angel Hotel in Guildford, in recognition of an outstanding year. Uncle Vernon had read it three times at breakfast and gone pink. He had not had an outstanding year. Harry could read that too. But he went upstairs at six and put on his good suit, and Aunt Petunia put on her pearls, and Dudley, who had not been out of the house since the alley, was put into a jacket.
+
+At the bottom of the stairs Dudley stopped.
+
+He looked up. Harry was sitting on the top step, where he could hear the front door. Dudley looked at him for perhaps two seconds, with his jacket on and his hair brushed flat, and Harry read the same small new thing in him, still unopened.
+
+Then Uncle Vernon said *Dudley* from the door, and he went.
+
+At twenty to ten somebody knocked on the kitchen door from inside the house.
+
+Harry was in his room. He heard it quite clearly. Three knocks, on the door between the hall and the kitchen, as though the person knocking were in the kitchen and was being polite about coming through.
+
+He went down the stairs with his wand out.
+
+He reached ahead of him as he went. He found five of them in the kitchen. He read them before he saw them, standing on the bottom stair in the dark hall, and he stopped.
+
+One was frightened and pleased and very excited and trying not to show any of it, and it was nearly all of her. One was kind, and tired, and fond of Harry with a fondness that had been in a battered case in a classroom two years ago. One was calm. It was a deep calm, like a big slow river, and Harry liked it at once.
+
+One was a man Harry had felt every day for a year.
+
+Except that he had not.
+
+The thing in the kitchen was gruff and rough and suspicious of everything in the room, the cooker and the fridge and the window and the clock and the four other people in there with it. It was suspicious of Harry, on the stairs, in the dark. It was the loudest suspicion Harry had ever felt in a person. It went round and round the kitchen like a searchlight that had never once been switched off.
+
+And under it, at the bottom, there was no devotion at all.
+
+None. Nothing aimed at Harry, blazing and pleased, the way you look at a parcel you have wrapped very carefully. There was only a plain, stubborn, rather grudging decency, the kind that does not much like you and will get between you and a curse anyway. It was so different from what Harry had felt in that face for nine months that he stood on the bottom stair for a full five seconds and did not move.
+
+"Well, come in, Potter," said Alastor Moody's voice. "We haven't got all night. And put your wand down before you have somebody's eye out. I've only got the one left that works properly."
+
+Harry went into the kitchen.
+
+He was a large, scarred, grizzled man with a wooden leg and a magical eye that swivelled to Harry and stayed there. He was the same man. He was a completely different man. He was leaning on a stick by the back door, with his normal eye on the garden and his blue one on Harry, and he looked thinner than Harry remembered, and older, and like someone who had spent a long time at the bottom of a trunk.
+
+"Professor Moody."
+
+"Not your professor. Never was. I'm told I taught you quite well. Lupin, ask him something."
+
+"Harry," said Professor Lupin. He was standing by the fridge. He looked tired and shabby and very glad, and Harry felt the gladness and the old fondness under it, and found he was glad as well. "What form does your Patronus take?"
+
+"A stag," said Harry. "You asked me that in your office. You said my father would have been proud."
+
+"That's him," said Lupin.
+
+"That's what somebody'd say if they'd read his file," said Moody.
+
+"Alastor."
+
+"I'm only saying."
+
+The calm one was a tall black wizard with a gold hoop in one ear and a voice like the bottom of a cello. He nodded to Harry and said his name was Kingsley Shacklebolt, and that was all he said. He was looking out of the window above the sink at the back gardens of Privet Drive, and his calm was not at all the calm of somebody with nothing to worry about. It was the calm of somebody who had decided worrying was something to do later.
+
+And the fifth one was a young witch, standing beside the kitchen bin.
+
+She had a heart-shaped face and dark twinkling eyes and short, spiky hair of a violent bubblegum pink. She was looking at Harry with enormous interest. She took one step forward to shake his hand, and caught her foot on the pedal of Aunt Petunia's swing-top kitchen bin, and the bin went over.
+
+It went over with a great deal of noise. Potato peelings went across the lino. Two empty tins went under the table. A teabag landed on Moody's wooden foot.
+
+"Wotcher," said the witch, from the floor. "Sorry. Tonks. Don't call me Nymphadora."
+
+"I wasn't going to," said Harry.
+
+"Good. Everybody does, eventually. You've got a sort of Nymphadora face." She got up, brushing potato peel off her knees, and looked round the kitchen with great satisfaction. "Merlin, it's clean, isn't it? Is it always this clean? It's unnatural. You could do surgery on that draining board."
+
+"Tonks," said Lupin.
+
+"I'm *picking it up*."
+
+Harry read her.
+
+She was delighted. That was nearly all of it. She was delighted with the kitchen and with the bin and with Harry and with being here at all, and it was a loud, warm, uncomplicated thing, aimed at everything at once. Under it, a long way down and held very carefully, she was nervous. It was the nervousness of somebody very young who has been given a proper job for the first time by people she admires and does not want them to see her hands shake.
+
+Harry liked her a great deal, very quickly. He did not know why. He suspected it was the bin.
+
+"We're taking you away from here," said Moody. "Tonight. By broom. Dumbledore's orders. Got your broom? Good. Get your trunk. You've got ten minutes."
+
+"Where?"
+
+"Somewhere safe."
+
+"Where's safe?"
+
+"Nowhere," said Moody, with something like satisfaction. "Somewhere safer than this, though. Your aunt and uncle'll be home at midnight, when they've worked out there's no such dinner. You won't be here. Ten minutes. Go."
+
+* * *
+
+They flew over London at a quarter past eleven.
+
+There were nine of them in the end. Four more were waiting in the dark in the back garden of number four when Harry came out with his trunk and Hedwig's cage, people he did not know, who nodded to him and did not say much, and Moody arranged them round Harry in the air like a guard round a coach. Harry flew in the middle. Tonks flew on his right, a little in front, because Moody said she was the best on a broom of all of them and Harry might as well have somebody to follow.
+
+She talked the whole way.
+
+She talked as they went up over the roofs of Little Whinging, and over the dark fields towards the M25, and over the long orange chains of the motorway lights. She talked about the Auror training, which she had finished the year before, and nearly failed Stealth and Tracking because she kept falling over things. She talked about her mother, who had been a Black and had been blasted off the family tree on the drawing-room wall for marrying a Muggle-born, and about her father, who was the Muggle-born, and made very good scrambled eggs.
+
+"You should see the family tree," she said, over the wind. "No, you will see it. You're going to see it. Anyway. There's a little burnt hole where Mum ought to be. I used to think it was the most romantic thing in the world. Now I think it's just rude."
+
+"Tonks," said Moody, from behind. "*Concentrate*."
+
+"I *am* concentrating. I can concentrate and talk. It's called being a woman, Mad-Eye."
+
+"It's called getting shot down."
+
+They went north. Then, for no reason Harry could see, west. Then south again for some minutes, over a great dark patch of Surrey that Harry thought might be Richmond Park, and then east, and Moody shouted orders from behind about altitude and cloud cover and turning back once to check they were not followed.
+
+London came up under them.
+
+Harry had never seen it from the air at night. It went on and on, in every direction, as far as he could see, a great flat spill of orange and white lights like something tipped out of a jar, with the river laid through the middle of it black and shining and bent like a dropped ribbon. He could see the bridges. He could see the lights moving on the bridges. He could see, very small, the dome of St Paul's, lit up white, and the long straight line of the Mall.
+
+He could feel it.
+
+That was the thing he had not expected. He was a long way up. He was above the clouds some of the time and below them some of the time, and London was very large, and he had never in his life been above so many people at once. And he could feel all of them. Not one at a time. Not even as a crowd. As a kind of low, wide, endless hum, coming up off the city the way the heat came up off it, millions of small feelings all running into one another, tired and pleased and bored and lonely and in love and drunk and frightened and asleep.
+
+It was the loudest quiet thing he had ever felt.
+
+He did not turn it down. He flew through it with the wind in his face and Tonks talking on his right, and listened.
+
+"You've gone quiet," said Tonks, after a while. "You've been quiet all along, actually. But you've gone quieter."
+
+"I'm listening."
+
+"To me? That's a first." She banked a little closer. "Can I ask you something?"
+
+"Yes."
+
+"Dumbledore says you can make people see things. He told Mad-Eye, and Mad-Eye told Kingsley, and Kingsley told me, because Kingsley is a terrible gossip once you get past the voice." She grinned at him across a yard of dark air. "I can change my face. I've always been able to. Is it like that? What you do?"
+
+Harry thought about it.
+
+"No," he said. "You change your face. I don't. I change what's in their heads when they look at mine."
+
+Tonks was quiet for nearly ten seconds, which Harry suspected was a record.
+
+"Oh, that's *much* better," she said. "That's not fair at all. I'll have to think of something to teach you so we're even."
+
+"Tonks," said Moody. "*Descending*."
+
+They came down over a square of tall, grubby, dark-windowed houses, in a part of London Harry did not know, where the street lamps were the old sort and two of them were out. The grass in the middle of the square was dead. Somebody had left a rusty bicycle against the railings. They landed on the cracked pavement one after another, very quietly, and Moody limped up to Harry with his wand out and his blue eye going round and round, and put a slip of parchment in his hand.
+
+"Read it," said Moody. "Memorise it. Quick."
+
+The writing on the parchment was thin and slanting. Harry had last seen it on a torn scrap that said *not yet*.
+
+*The Headquarters of the Order of the Phoenix may be found at number twelve, Grimmauld Place, London.*
+
+"Now look," said Moody, and set fire to the parchment with the end of his wand.
+
+Harry looked.
+
+There was number eleven, with its grimy windows and its dustbins. There was number thirteen, with a broken bell and a milk bottle on the step. They stood side by side, wall against wall, with nothing between them.
+
+And then, while he watched, something began to push them apart.
+
+<->
