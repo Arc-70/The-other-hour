@@ -33462,3 +33462,455 @@ His hair was white. His beard was white. His face was the face of a man of a hun
 He sat there in the wet, very old, and looked at the water.
 
 <->
+
+## Chapter 56: What Was Left
+
+The gargoyle moved for Dumbledore on the Thursday morning as though it had never stopped, and at four o'clock that afternoon he sent for Harry.
+
+Harry went up alone.
+
+The office was the same. The silver instruments puffing on their spindly tables. The portraits on the walls, all of them awake today, and none of them pretending otherwise. Fawkes on his perch by the door. The Sorting Hat on its shelf. The Pensieve in its black cabinet, the door shut.
+
+Dumbledore was sitting behind the desk.
+
+He did not get up when Harry came in. He had always got up. Harry noticed it, and noticed that Dumbledore saw him notice, and neither of them said anything about it.
+
+His hair was white. Harry had known it would be. He had watched it go, on a gold floor, in the rain. But he had not seen it since, and it was different in this room, in the ordinary light from the windows, with the sun on the desk. It was very white and very fine and there was less of it. His face was thinner and more lined, and the skin of it had gone soft and loose under the eyes, and the long hands folded on the blotter were spotted and corded and very still.
+
+"Sit down, Harry," said Dumbledore.
+
+Harry sat.
+
+"I am old," said Dumbledore. "I was old before. I am older now. Ten years, I should think. Perhaps a little more. Poppy has been very rude about it." He said it the way a man says the weather is turning. "I tell you so that you need not look at me wondering whether to mention it. It has been mentioned."
+
+"Does it hurt?"
+
+"My knees," said Dumbledore. "Quite a lot. Otherwise, no." He looked at Harry over the half-moon spectacles. "It was a price. I knew it when I paid it. I would pay it again. I would rather not have to, quite so soon."
+
+Harry read him.
+
+Tired. Very tired, the tiredness of a man who has climbed a long way up something and has sat down at the top. Under the tiredness, the respect from a courtroom, still there, steady. Under that, the grief from the Atrium. It was not held any more. It sat at the bottom of him, in the open, where the door had been. It was aimed at Harry.
+
+"You knew," said Harry.
+
+"Yes."
+
+"From the beginning."
+
+"From very near it," said Dumbledore. "Not certainly. I suspected. Since the night your mother died." He unfolded his hands and folded them again. "There was a scar on your forehead that was not like any curse scar I had seen. You could speak to snakes. You were a child who knew things about people that no child should know, and I told myself for a long time that it was the same thing, that it was one gift, that it was yours." He paused. "And then you brought me a diary with a hole in it, in your second year, and I stopped being able to tell myself that."
+
+"You didn't tell me."
+
+"No."
+
+"In my second year. My third. My fourth. In your office, in June, when I told you everything. When you said you'd teach me instead of protecting me." Harry kept his voice quite level. "In February, when I stood here and told you something in me had gone towards a tiara, and asked you if you knew what it was."
+
+"No," said Dumbledore. "I did not tell you then either."
+
+"Why?"
+
+* * *
+
+Dumbledore was quiet for a long moment.
+
+Harry read him decide. He read him decide not to say something wise, or something kind, or something that would sound like an answer and not be one. He read him put all of those down, one after another, the way a man empties his pockets onto a table.
+
+"Because I was afraid of what it would do to you," said Dumbledore. "To know."
+
+Harry waited.
+
+"You are a boy who has spent his life knowing what is inside other people," said Dumbledore. "You have known it since you were small. You have never once, in all that time, been able to know what is inside yourself. I have watched you. I have watched you read a room and walk into it and give everybody in it exactly what they needed, and I have watched you go up to bed afterwards and not know what you felt about any of it." He looked down at his hands. "And I thought: if I tell this boy that there is a piece of the darkest wizard alive inside him, that he cannot see and cannot feel and cannot be rid of, what will he do with it? He will go looking for it. He will go down into himself the way he goes down into everybody else, floor by floor, looking for the cold thing. And he will find it everywhere. In his ambition. In his cleverness. In the way he lies, which is beautifully. In the way people like him." Dumbledore raised his eyes. "And he will decide that all of it is Tom's. That none of it was ever his."
+
+Harry did not say anything.
+
+He thought about the top step of a pit. Blood in his eyes. *It had never been his.* All of it. The zoo and the sink and the door.
+
+He had thought it. For about forty steps. Then he had checked.
+
+"I did not want you to spend your life wondering which parts of you were you," said Dumbledore quietly. "So I said nothing. I told myself I would tell you when you were older. When you were stronger. When it was necessary." He was silent for a moment. "And then it was necessary, and I was in Yorkshire."
+
+* * *
+
+"I said to you once," said Dumbledore, "in this room, in June, that I would apologise once. For the Stone, and the hut, and the Goblet, and the four years." He looked at Harry. "I find I have to do it again. I will do it once more. I am sorry, Harry. For this. For the fifteen years. I was wrong, and I was afraid, and you paid for it in a stone room in front of everybody you care about."
+
+Harry read him say it.
+
+He read every word go down, all the way, and he read that it was true at every floor. There was nothing under it that was not sorry.
+
+He was angry.
+
+He had not known he would be. He had walked up the stairs thinking he would be tired, or sad, or nothing. He was angry. It came up in him the way it had come up in this office a year ago, in June, with a dog on the floor, and it did not get louder. It got quieter. He sat in the chair across the desk from the old man and it went all the way through him, very quiet, very cold, and he let it.
+
+He understood.
+
+That was the worst of it. He understood every word. He had sat on the top step of the pit and thought *it had never been his*, and for forty steps he had believed it, and he knew exactly what fifteen years of that would have done to him. He knew it better than Dumbledore did.
+
+He understood, and he was angry, and neither one made the other go away.
+
+"All right," said Harry.
+
+Dumbledore looked at him.
+
+"I'm still angry," said Harry. "I'll be angry for a while. I don't know how long. I don't think it'll stop because I understand. I think I'll just have both."
+
+"Yes," said Dumbledore. "I think you will." He was quiet. "I would be very surprised if you did not."
+
+"Is that all right?"
+
+"It is a great deal more than I deserve," said Dumbledore, "and a great deal less than I feared. I will take it." He paused. "May I ask you something, in return?"
+
+"Yes."
+
+"Tell me the rest of it. The other world. All of it. Not the parts you told me in June. All of it. From the night the watch went backwards to the night it brought you home." He looked at Harry. "I have been told a great many things about the future in my life, by a great many people who were wrong. I should like, for once, to be told about it by somebody who was there."
+
+So Harry told him.
+
+It took two hours. He told him about two Hufflepuff faces held on like doors in a wind. A boy with his face in red and gold. A girl at the last desk by the wall, with the same watch. A barman who had sent for his brother. He told him about a statue in an Atrium and an arch with a curtain, and where a man had been standing, and how he had fallen.
+
+Dumbledore listened to all of it.
+
+When Harry told him about the barman, and *he uses everyone he loves*, Dumbledore closed his eyes for a moment, and did not open them for some time.
+
+* * *
+
+Moaning Myrtle's bathroom was out of order, as it always had been, and it was empty, as it always was.
+
+Harry went there on the Friday night, alone, at eleven. He did not take the Cloak. He did not tell anybody, not even Evelyn.
+
+The sinks stood in their circle in the middle of the room. He went to the one he knew. It looked like the others. It had always looked like the others. There was a tiny snake scratched on the side of one copper tap, so small that you would never see it unless you were looking.
+
+He looked at it.
+
+He had stood here when he was twelve, with Lockhart behind him and a girl dying under the school, and he had spoken to it. He had stood here when he was thirteen, a dozen times, a hundred, on his way down to a round room with a shelf and a lamp. He had never once had to think about how. He had looked at the little snake and said *open*, and it had opened.
+
+He said *open*.
+
+It came out of his mouth in English. One plain English word, in a girls' bathroom, at eleven o'clock at night.
+
+Nothing happened.
+
+He tried again. He tried to make it hiss. He tried to remember how it had felt, the shape of it in his mouth, the soft dry sound, and he could not. He could remember that it had been there. He could not remember what it was, the way you cannot remember a dream an hour after waking, only that there was one.
+
+*Open*.
+
+The sink stood there. The tap dripped.
+
+He tried four more times. Then he stopped trying, and sat down on the floor with his back against the sink and his knees drawn up, on the wet tiles, in the dim green light from the window.
+
+The Chamber was down there. The pipes, and the tunnel, and the great round door with its stone serpents. The statue with its feet. The door behind the feet. The round room behind the door, with the shelf, and the lamp that lit for one sort of person, and the desk of black stone, and the small black book on it, which told the next of them that they need not be as long alone.
+
+He would never see any of it again.
+
+Nobody would. He had been the only one who could open it, in a thousand years, and it had never been him.
+
+He sat there for a long time.
+
+Myrtle came up out of the U-bend of the next sink at some point, and looked at him, and he read her: a single thin grey note, held, the way ghosts were. She hung in the air over the sink and looked at him sitting on her floor.
+
+"What are you doing?" she said.
+
+"Nothing."
+
+"You used to talk to that sink."
+
+"Yes."
+
+"You don't any more?"
+
+"I can't," said Harry.
+
+Myrtle looked at him for a while longer.
+
+"Oh," she said. "Well. I'm sorry." She seemed surprised to have said it. The grey note did something, very slightly, he could not tell what. "Nobody talks to me either," she said. "You get used to it."
+
+She went back down the U-bend.
+
+Harry sat on the floor until his trousers were wet through. Then he got up and went back to the dungeons, and he did not go into Myrtle's bathroom again.
+
+* * *
+
+The *Prophet* on the Saturday morning had Sirius's face on the front of it.
+
+It was not the face from three years ago, from the posters, the wild one with the matted hair. It was a new photograph, taken in the Ministry, by somebody in a hurry: a thin, handsome, haunted man in clean robes, looking at the camera with an expression of total disbelief. Over it, in letters three inches high, there was one word.
+
+INNOCENT.
+
+Underneath: MINISTRY ADMITS BLACK WRONGLY IMPRISONED. PETTIGREW ALIVE. YOU-KNOW-WHO RETURNS.
+
+And underneath that, smaller, a column about the Minister for Magic, who had made a statement on the Friday afternoon on the steps of the Ministry, very pale, with his bowler hat in his hands, confirming that He Who Must Not Be Named had returned to the country and was active once more, and that the Ministry had been, the column said, regrettably slow to recognise the gravity of the situation.
+
+Harry read it at the Slytherin table.
+
+He read the room read it. It was the same as January, the fear going up across the Hall like rain across a field. But it was not only fear this time. Under the fear, all over the Hall, there was something else. It was relief. It was the relief of four hundred people who had been told for a year that what they felt was not real, and had just been told that it was.
+
+He read Draco.
+
+Draco was at the far end of the table, with the paper flat in front of him, and he was not reading the front page. He had turned it over. He was reading page four, a short list of the names of Death Eaters taken in the Atrium, eleven of them, now in Azkaban, and he was reading it for the second time, and Harry did not need to read him to know which name he was looking for.
+
+It was not there.
+
+Lucius Malfoy had got away in the dark of the Hall of Prophecy, with Nott, and Thaddeus Selwyn, and a dozen others, while the rest went up the stairs. Harry had read Draco find that out on the Wednesday night, from a letter. He read him now.
+
+Relief. Huge, and private, and ashamed of nothing. And under the relief, very deep, something else, cold and new, and it was aimed at Harry.
+
+Draco looked up.
+
+He looked at Harry down the length of the table. Harry read him. He read him wonder, for the first time, quite plainly, whether Harry was reading him. And he read him decide, quite plainly, not to do anything about it either way.
+
+Draco went back to page four.
+
+* * *
+
+Tonks was buried on Monday the twenty-fourth of June, in the churchyard of a small grey church on the edge of a village in Devon, under a sky with no clouds in it at all.
+
+It was very hot. It was the most beautiful day of the year. The churchyard was full of long grass, and somebody had mown a path through it to the grave, and the grass on either side of the path was full of buttercups, and there were bees in them, and a cuckoo somewhere a long way off, calling, over and over, the same two notes.
+
+There were not many people.
+
+Her parents. Her father was a big, fair, cheerful-looking man with a round face, and he was not cheerful. Harry read him, and there was nothing in him but a large plain grief that did not know where to go, so it went everywhere. Her mother was a tall, thin, straight-backed woman with heavy-lidded eyes and long thick brown hair, and Harry looked at her once and understood, with a jolt, whose sister she was, and did not look at her face again.
+
+The Order. Moody, standing a little apart, his magical eye fixed on the coffin and not moving at all, which Harry had never seen. Kingsley. Mrs Weasley, crying quietly into a handkerchief. Mr Weasley, beside her, with his arm round her and a bandage still on his neck.
+
+Ron and Hermione. Hermione was very pale, and had walked from the car on Ron's arm, and was still not supposed to be out of St Mungo's.
+
+Evelyn, who had come down from Shropshire on the train that morning, alone, and stood at the back by the lychgate.
+
+Lupin.
+
+Harry read him.
+
+He did not need to. Anybody could have read Remus Lupin that morning. A Muggle walking past the churchyard wall with a dog could have read him. He was standing at the foot of the grave in an old suit that was too big for him, and he was not crying, and his face was not doing anything at all, and he looked like a man whose life had stopped.
+
+Harry read him anyway.
+
+There was nothing moving in him. That was what Harry found. It was not emptiness. Lupin was not empty, the way Pettigrew was empty. It was all still in there, all of it, the kindness and the old guilt and the tiredness and the thing that had come up in him every time Tonks walked into a room, which Harry had read in a kitchen at Grimmauld Place and had not known, then, what it was.
+
+All of it was still there.
+
+None of it was going anywhere. It was all standing still, every floor of him, the way a clock stands still when somebody has stopped the pendulum with a finger.
+
+* * *
+
+Sirius stood beside the grave.
+
+He stood very straight. He was in black, new black robes that the Ministry had paid for, along with a letter of apology and a sum of money that he had not opened. He stood at the head of the grave with his hands at his sides and his chin up, the way a man stands who has been told to stand still and has decided to do it properly.
+
+He had not looked at Harry all morning.
+
+Harry read him.
+
+The grief was there, enormous, plain, for his cousin's daughter, who had been eight when he went to Azkaban, whom he had met for the first time a year ago in a dark kitchen, who had knocked over the umbrella stand on her first night and said *sorry, sorry, sorry*. It filled him up. It was the top of him.
+
+Under the grief, there was something else.
+
+Harry had read it on the dais. He had read it come into Sirius after the red light went past him and through the veil, and he had not had a name for it, and he had not found one since.
+
+He found one now. In the hot churchyard, with the bees in the buttercups and the cuckoo calling.
+
+Sirius was alive, and he did not know why.
+
+He did not know why the curse had missed. He had been standing exactly where he was standing. He had seen the light come, and he had known, the way you know, that it was going to hit him. And it had gone one step to the right, through empty air, through the veil, and he was standing in a churchyard in Devon in new black robes, and his cousin's daughter, who had been standing one step behind his left shoulder, was in a box in the ground.
+
+He was wondering.
+
+He was standing beside the grave, very straight, wondering, and he did not know that Harry knew, and Harry had not told him.
+
+Harry did not tell him.
+
+He stood at the edge of the long grass and read Sirius not know, and he thought about telling him. He thought about it all through the service, while a thin old vicar read something about the grass of the field, and while Tonks's father put a handful of earth on the coffin and then stood there with his hand still open, as though he had forgotten what to do with it.
+
+He did not know what telling him would do.
+
+He did not know whether Sirius would be glad. He did not know whether Sirius would look at the grave, and then at Harry, and think *one step*. He did not know whether he himself thought *one step*, every hour of every day, or only some of them.
+
+He did not tell him.
+
+After the service, at the lychgate, Sirius stopped beside him. He did not say anything. He put his hand on the back of Harry's neck, briefly, the way he had in the hall at Grimmauld Place in August, and left it there for about two seconds.
+
+Then he went to find Lupin.
+
+* * *
+
+The Astronomy Tower was empty on the last night of term, and it was very warm, and Evelyn was already there when he came up.
+
+She was sitting on the floor with her back to the parapet and a book on her knee that she was not reading. She had her watch out. She was holding it in her hand, closed.
+
+He sat down beside her.
+
+Neither of them said anything for some time.
+
+The sky over the forest was dark blue going to black, and there were stars coming out in it, one at a time, the way they always did, as though somebody were going round lighting them. The lake was very still. There was a light on in Hagrid's hut.
+
+Harry read the castle.
+
+He did it without meaning to, the way he always had. He read it all the way down, the whole building, floor by floor, with effort, the way he had learned. Four hundred people packing trunks. Excitement, mostly, and sadness under it, and fear under that, the new fear, the public one. He read McGonagall in her office, tired and fierce. He read Hagrid in his hut, crying over something, quite happily. He read Theo in the dormitory, sitting on his bed with the chessboard in front of him, waiting, and the white king's pawn still two squares forward, where he had left it.
+
+He read the girl beside him and got nothing.
+
+The silence was exactly where it had always been. Exactly her shape. A hole in the noise of the whole castle, sitting on the floor of the Astronomy Tower with her back to the stone and her watch in her hand.
+
+He did not say anything about it.
+
+She did not say anything about it either.
+
+She had been beside him on the stairs. She had had her hand on his arm, all the way up from the pit, forty steps and more, and she had known, he thought, the moment he noticed. She always knew. He did not know how. He had never known how.
+
+She did not ask. He did not tell her.
+
+The stars came out over the forest.
+
+"You'll get an Outstanding in Defence," said Evelyn.
+
+"Will I?"
+
+"Marchbanks wrote for a whole minute after your Patronus. I timed it. Professor Tofty, at the next table, stopped examining Parkinson to watch. Parkinson's Shield Charm was very poor anyway." She turned the watch over in her hand. "You'll get an Outstanding in Charms and an Exceeds Expectations in Transfiguration, because McGonagall's marking scheme is harsh about vanishing. You'll get an Outstanding in Potions, because you're good at it and Snape isn't marking it, and that'll make him very unhappy."
+
+"And History of Magic?"
+
+"You left halfway through the paper," said Evelyn, "having fallen off your chair in front of three hundred people, and the second half of the paper was worth sixty per cent." She paused. "Troll. Possibly Dreadful, if the examiner liked your paragraph on the gnomes. I gather you wrote it twice."
+
+Harry looked at her.
+
+"How do you know I wrote it twice?"
+
+"Granger told me," said Evelyn. "She was sitting behind you. She said it was a very good paragraph. She said it was better the second time."
+
+Harry laughed.
+
+It came out of him short and surprised, the way it did, and it went out over the parapet into the warm dark, towards the forest, and the stars.
+
+Evelyn did not laugh. She opened the watch, and looked at it, and closed it again.
+
+"Twenty past ten," she said.
+
+* * *
+
+He went back down to the dormitory at eleven.
+
+Theo was still sitting on his bed with the chessboard. He had not moved. He looked up when Harry came through the curtain.
+
+"You came back," said Theo.
+
+"I said I would."
+
+"You didn't, actually. You didn't say anything. You got off the bed and went out." Theo looked at the board. "I've been sitting here for a week."
+
+"You haven't."
+
+"No. I've been to classes and meals and Herbology. But I came back here every night and sat here." Theo did not look up. "My father got away."
+
+"I know."
+
+"Did you see him?"
+
+Harry thought about the Hall of Prophecy, a dozen men in masks in the dark between the shelves, and the pit, and the masks on the far tiers.
+
+"I don't know," he said. "I didn't know which one he was. I didn't look."
+
+Theo was quiet for a moment.
+
+Harry read him. The calm, settled sadness at the bottom, the water in the well. The boy at the edge of the drop. And something else, very small, that had come up while Harry said *I didn't look*, and it was gratitude, and it was so plain that Harry could not look at it either.
+
+He sat down on the end of the bed.
+
+He looked at the board. The white king's pawn two squares forward. He reached out and moved the black king's pawn two squares forward, to meet it.
+
+Theo looked at the board for a long time.
+
+Then he moved his knight.
+
+* * *
+
+Dumbledore told him on the last morning, in the entrance hall, by the doors, in front of everybody, because there was no other time.
+
+"Sirius has asked," said Dumbledore, "whether you would like to live with him. At Grimmauld Place. For the summer, and after." He leaned on his stick. He had a stick now. It was an ordinary one, plain wood, with a rubber foot. "I have said that I think it would be a very good idea."
+
+Harry looked at him.
+
+"Privet Drive," he said. "My aunt. You said, every year, that I had to go back. That it was the only safe place. Her blood. My mother's blood."
+
+"I did."
+
+"What's changed?"
+
+Dumbledore was quiet for a moment.
+
+"He has your blood," he said. "He took it in a churchyard a year ago, to make his body. Your mother's protection lives in you, and it lives in that house because your mother's sister lives there, and for fourteen years that was the strongest thing I could put round you. But he has it now as well. In his veins. It will not keep him out of anywhere, any more." He looked at Harry. "And he has taken back what was his. He has no reason to want you dead that he did not have before, and a great many new reasons to be interested in you alive." He paused. "I think you will be safer with a man who would walk into the Department of Mysteries after you, than in a house where they lock your broomstick in a cupboard."
+
+Harry read him say it.
+
+He read the reasons. They were all true. He read the care in them, and the respect, and under those something else, quite small, and it was not a reason.
+
+It cost Dumbledore something to say this.
+
+Harry could not see exactly what. He went down looking for it and found the shape and not the inside. It was something about the house in Privet Drive. Something about a decision made on a doorstep fifteen years ago, on a cold night in November, with a baby in a blanket. Something Dumbledore had built very carefully and leaned on for fifteen years, and had just watched fall down, and was letting go of now, in the entrance hall, leaning on a stick, without complaint.
+
+"Thank you," said Harry.
+
+"Don't," said Dumbledore. "It was Sirius's idea. It was Sirius's idea a year ago. I said no." He smiled very slightly. "I was wrong about that too. You will find, I think, that I am wrong about a great many things. I am trying to get better at saying so. At my age it is like learning the violin."
+
+* * *
+
+The *Prophet* the morning they went home had Sirius on page three, not the front, in a short article about the Ministry's compensation board. Three weeks later, in the middle of July, it would have him on the front page again, under a photograph of him in the Atrium beside the empty basin, shaking hands with the Minister for Magic, and over the photograph there would be one word, three inches high.
+
+HERO.
+
+Sirius would cut that one out and pin it to the kitchen wall at Grimmauld Place, next to his mother's portrait, where she could see it every time somebody opened the curtains.
+
+But that was three weeks later.
+
+* * *
+
+Sirius was on the platform at King's Cross.
+
+He was standing in plain sight, in the middle of platform nine and three-quarters, in the crowd of parents, with the steam from the train blowing round him. He was not a dog. He was not in disguise. He was wearing a coat Harry had never seen before, which was long and purple and had a fur collar and was, quite possibly, the worst coat Harry had ever seen on a human being, and he was waving.
+
+He was waving with both arms.
+
+People were looking at him. A great many people. Mothers, fathers, little brothers and sisters. Some of them had seen the *Prophet*. Some of them had seen the posters, three years ago, the wild face. They looked at him, and they looked away, and they looked back.
+
+Sirius did not care. Harry read him not care, all the way down. He was waving.
+
+Harry got off the train with his trunk and Hedwig's cage.
+
+He read the platform. He read the whole platform, the crowd and the steam and the noise, the way he had read it at eleven, finding a red-haired mother sending her children through a wall. He read Mrs Weasley, and her warmth with his name in it. He read Ron and Hermione, behind him, getting off the train together. He read Neville's grandmother, and Luna's father, a vague, kind, white-haired man in a coat almost as bad as Sirius's. He read Millicent's mother. He read Theo, walking away down the platform alone to a house-elf who was waiting for him, and he read Theo look back once.
+
+He read Evelyn get off the train behind him.
+
+She had her bag over her shoulder and her hand in her right-hand cardigan pocket, where the watch was. She stood on the platform beside him and looked at Sirius in the purple coat.
+
+"That's a very bad coat," said Evelyn.
+
+"Yes."
+
+"He knows."
+
+"Yes."
+
+"He's wearing it so that everybody looks at him," said Evelyn. "So that they have to. So that they get used to it." She looked at it a while longer. "That's quite clever."
+
+"Every eleven days?" said Harry.
+
+"Every eleven days," said Evelyn. "If you're late I'll know something's wrong."
+
+She went off through the barrier, alone, towards the place where nobody from Shropshire was waiting for her, and did not look back.
+
+Sirius had stopped waving. He was coming through the crowd towards Harry, very fast, in the coat, and people were getting out of his way, and he was grinning, the way he had grinned in a hall in August, at full volume.
+
+Harry went to meet him.
+
+* * *
+
+The owl came at a quarter past seven the next morning, to the kitchen window at Grimmauld Place.
+
+It was a school owl. Harry knew it. It had sat on the end of his bed in Privet Drive all last summer and looked at him with contempt until he gave it a biscuit. It looked at him with contempt now, from the kitchen windowsill, and held out its leg.
+
+It was the first letter. Evelyn had never once in five years sent a letter the morning after the train. The first one always came on the eleventh day.
+
+He untied it.
+
+It was a small square of paper, folded twice. He unfolded it. There was one line on it, in her hand, with the short tails on the *g* and the *y*, neat, very neat, the way she wrote when she meant it.
+
+*Lucan has stopped rolling his sleeves down, and Father has accepted a position. E.S.*
+
+<->
