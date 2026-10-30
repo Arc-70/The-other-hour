@@ -29612,3 +29612,509 @@ It was aimed at the door. It was aimed at the boy on the other side of the door.
 Harry knocked.
 
 <->
+
+## Chapter 49: Snape's Worst Memory
+
+"Sit down," said Snape.
+
+Harry sat down.
+
+The office was the one he had always known, from outside the door, and from detentions, and from the night in his third year when he had walked out of a flooded dungeon into Snape with Evelyn dripping beside him. Shelves of jars with things floating in them. A desk with nothing on it. A fire that did not seem to give out any heat. And on a side table, in a shallow stone basin, something silver and moving that Harry had last seen in a black cabinet in Dumbledore's office.
+
+Snape saw him see it.
+
+"The Headmaster has lent it to me," he said. "There are things in my head that I do not wish you to see. I have removed them." He did not explain further. "Do you know what Occlumency is, Potter?"
+
+"The magical defence of the mind against external penetration," said Harry. "It's an obscure branch of magic, but highly useful."
+
+He had read that sentence in a book in the library in his second year. Snape's mouth went thin.
+
+"And Legilimency?"
+
+"The ability to extract feelings and memories from another person's mind."
+
+"You are aware," said Snape, "that you have been doing it, crudely and without permission, to everybody you have met, since you could walk."
+
+"Yes, sir."
+
+"To me."
+
+"Yes, sir."
+
+Snape looked at him for a long time.
+
+Harry read him. He tried. Snape was closed, the way he always was, smooth and complete, like a stone that has been in a river for a hundred years. There was the dread round the rim, which had been there since June. There was the anticipation, cold and very patient, which had been there since the door.
+
+And under them both, under everything, where Harry had never once been able to reach, there was a shape. He could not see what it was. He could only see that it was there, in the way you know there is furniture in a dark room by where the light does not go.
+
+"The Headmaster," said Snape, "seems to believe that you are a natural. That you have been reading minds since infancy and have taught yourself the rudiments of Legilimency out of a book." His lip curled. "He also believes that this makes you a good candidate for learning to close your own. I do not share his optimism. A boy who has spent his whole life walking into other people's houses without knocking is very rarely any good at locking his own door."
+
+"I'll try, sir."
+
+"You will do more than try." Snape stood up. He took out his wand. "Stand up. Take out your wand. You may use it however you wish to defend yourself. I am going to attempt to break into your mind. We shall see how you resist."
+
+Harry stood up.
+
+"Clear your mind," said Snape. "Empty yourself of emotion."
+
+"I can't read myself," said Harry. "I don't know what's in it."
+
+"Then you will find out," said Snape. "*Legilimens.*"
+
+* * *
+
+It was like being knocked down by a door.
+
+He had never been read. He had read everybody he had ever met and nobody had ever read him, not properly, not even Dumbledore in his office with the dog on the floor, because that had been Harry pushing outwards and Dumbledore letting him. This was the other way. This was somebody coming in.
+
+He felt it go through him like a draught through a house.
+
+Things came up. Not because he had chosen them. Because Snape had reached in and pulled, and they came. He was five, in the cupboard, listening to the house be angry. He was eight, at the top of the school drainpipe. He was eleven, in a room with a mirror in it, and he was looking at his family. He was in a churchyard. He was on the grass. There was a hand on a gravestone, and a voice saying *kill the spare*, and a green light…
+
+*No.*
+
+He did not decide to do it. It happened the way your hand comes up when somebody throws something at your face.
+
+He pushed back.
+
+He did not push Snape out. He did not know how. He pushed *into* him, along the line Snape had come in on, the way you follow a rope back to whoever is holding it. He felt the line go taut. He felt Snape on the other end of it, very close, and he felt Snape realise what was happening a fraction of a second too late.
+
+For a moment he was in.
+
+He saw a corridor. Grey stone, very long, and doors. He saw a pair of hands, long, sallow, holding a jar up to a light. He felt cold, the deep familiar cold of a mind that has been closed for thirty years. He felt…
+
+He was on the floor.
+
+He had been thrown. Not with a spell. With the inside of Snape's head, all at once, like a door slammed on a hand. He was lying on his back on the cold flagstones of the office, and his wand had rolled under the desk, and his nose was bleeding.
+
+Snape was standing over him with his wand out, breathing hard.
+
+Harry read him.
+
+He could, for a second. Snape was still open at the edge, where Harry had been, the way a wound is open before it closes. And what was in the opening was not anger. It was shock. It was the pure, white, total shock of a man who has been an Occlumens for thirty years and has just had a fifteen-year-old come up the line into his house.
+
+Then it closed.
+
+"Get up," said Snape. His voice was perfectly level. "Again."
+
+* * *
+
+That was the first lesson.
+
+The second was worse. Snape came in harder, and Harry was ready, and he did not fall. He held on to the line and pushed, and for nearly four seconds the two of them stood in the middle of the office with their wands up, not moving, and Harry could feel the line between them pulled tight as a bowstring, and Snape at the other end of it, very cold, very strong, and furious.
+
+Neither of them got in.
+
+When it broke they were both on their knees. Harry's nose was bleeding again. There was sweat on Snape's forehead.
+
+"You are not," said Snape, "*defending*."
+
+"I am, sir."
+
+"You are attacking. That is not what you are here to learn."
+
+"It's the only way I know how to stop you."
+
+Snape got up off his knees. He did it slowly. He looked at Harry with his black eyes, and his face did nothing at all, and Harry read the rim of him, and the dread was larger than it had been.
+
+"Then you will learn another way," said Snape. "Or the Dark Lord will walk into your head as easily as I do, and he will not stop at the door. Again."
+
+* * *
+
+The third lesson was in the second week of November, on the night the Ministry made Professor Umbridge High Inquisitor of Hogwarts.
+
+It was on the noticeboard in the common room when Harry came back from dinner. Educational Decree Number Twenty-Three. He had read it in draft on a Friday afternoon a fortnight before, in a pink office, with a cup of tea in his hand and two sugars, and had told her it sounded very sensible.
+
+He had told Hermione the wording on the Saturday.
+
+He went down to the dungeons at six and Snape was waiting, and they did it again, and it was the same. Snape came in. Harry went back up the line. For seconds at a time neither of them gave, and then one of them did, and it was not always Harry.
+
+He saw more, each time.
+
+He saw a dark kitchen, very small, with a man shouting in it. He saw a boy, thin and sallow and too big for his clothes, sitting on a narrow bed in a narrow room with his hands over his ears. He saw a girl's hand, very pale, holding a flower that was opening and closing its petals on her palm.
+
+He did not stay long enough to read any of it.
+
+Snape threw him out every time. Every time it was a little faster, and every time there was less of the shock, and more of something else, very cold, that Harry had not felt in Snape before.
+
+He walked back to the common room at half past seven with blood on his sleeve.
+
+Evelyn was in the corner by the fire, reading. She looked at the sleeve.
+
+"Again?"
+
+"Yes."
+
+"Is it working?"
+
+"No," said Harry. "I'm not learning to close it. He's learning to close his." He sat down across from her. "He's getting faster. Every week. I think he's practising."
+
+"On whom?"
+
+"I don't know. On nobody. On himself." He looked at the fire. "I can nearly get in. I nearly got in tonight. There was a girl. A girl's hand, with a flower in it."
+
+Evelyn put her book down.
+
+"Potter," she said.
+
+"What?"
+
+"You're not supposed to be getting in."
+
+"I know."
+
+"You're supposed to be keeping him out."
+
+"I know."
+
+She looked at him for some time.
+
+"You want to know what it is," she said. "Under him. You've wanted to know since you were eleven. You told me about it in the first year, in the library. You said there was something under him that hurt."
+
+Harry did not say anything.
+
+"I'm not telling you not to," said Evelyn. "I'm telling you that you're going to. And I'm telling you that he knows it." She picked up her book again. "That's all. I just wanted it noted."
+
+"It's noted," said Harry.
+
+* * *
+
+He got in on the fourth lesson.
+
+It was the twenty-second of November, a Wednesday, and it was raining. He could hear it on the high slit windows of the dungeon corridor. He went in at six and Snape did not say *sit down* or *stand up*. He said *Legilimens* before Harry had shut the door.
+
+Harry was ready.
+
+He had been ready for a week. He did not push back along the line this time. He let Snape come in. He let him come all the way in, into the cupboard and the drainpipe and the mirror, and he held very still while Snape went through him, the way you hold still when somebody is searching your pockets.
+
+And then, when Snape was deepest in, furthest from his own door, Harry went the other way.
+
+He did not follow the line. He went round it.
+
+He had never done it before. He had read about it, in a small black book in a round study, in the margin, in a hand nearly a thousand years old: *When one comes into thy house, his own stands open behind him.* He had not understood it. He understood it now. Snape was in his house. Snape's own house was standing open, with nobody in it, for perhaps a second and a half.
+
+Harry walked in.
+
+* * *
+
+A playground.
+
+It was summer, and it was very hot, and there were two little girls on the swings, going higher and higher. Harry was behind a bush. No. Somebody was behind a bush, and Harry was inside him, inside his eyes, inside the hot small shape of a boy of nine or ten in a man's coat that came down past his knees and a pair of trousers too short for him.
+
+The boy was watching the younger girl on the swing.
+
+She had dark red hair. She let go of the swing at the very top and flew, and laughed, and landed, much too lightly, as though the air had held her for a moment longer than it should have. The older girl screamed at her that she was not allowed, that Mummy had said.
+
+Harry knew the older girl.
+
+He knew her voice. He had heard it every day of his life, through a cupboard door. It was younger and higher, and it was frightened, and it was Aunt Petunia's.
+
+He did not have time to think about it.
+
+Because he was reading the boy.
+
+He had read memories before. In a Pensieve, in a courtroom, beside a young Dumbledore. He had read them faintly, like smoke, like something seen through a window with the curtains drawn.
+
+This was the inside. He was not reading the boy from outside, across a room, the way he read everybody. He was the boy. He was inside him, inside the memory, inside the feeling, and the feeling was not smoke. It was the whole of him.
+
+The boy was looking at the girl with red hair, and what he felt was so plain and so total and so entirely without anything else in it that Harry, who had read ten thousand people and never this, did not at first know what it was.
+
+It was nothing a nine-year-old has a word for. It was the feeling of a boy who has lived his whole life in a small dark house full of shouting, and who has looked over a hedge and seen, for the first time, somebody who is exactly like him, and who is laughing.
+
+It was hope.
+
+No. That was the top of it. Harry went down. He went down through it, floor after floor, the way he had learned to in a round study, and it went down a very long way, further than anything he had ever read in a child, and at the bottom of it, at the floor, there was one thing.
+
+*Her.*
+
+Not a word. Not a name. Just the whole of him, turned towards her, the way a plant in a cellar turns towards a crack of light.
+
+* * *
+
+The memory changed.
+
+A dark kitchen, small, with a man shouting in it, and a woman crying. A riverbank, and the boy older, eleven, telling the girl about a school. A train. A hat on a stool, and the girl going one way and the boy the other.
+
+A lake.
+
+It was Hogwarts. It was the lake, in summer, under a beech tree, the same beech Harry had sat under with Evelyn on a flat rock in June. And there were four boys by the water, and one of them had untidy black hair and glasses and was turning a Snitch over in his fingers, and Harry knew him from a hundred photographs and from a mirror.
+
+The boy Harry was inside was older now. Fifteen. Sallow and thin, with lank black hair, sitting alone on the grass with his head bent over an exam paper.
+
+James Potter stood up.
+
+Harry did not want to see this.
+
+He saw it anyway. He saw it from inside, which was worse than seeing it from anywhere else. He felt the boy look up and see them coming. He felt the hex hit him. He felt himself hang upside down in the air with his robes falling over his face, and everybody on the lawn turning round to look, and somebody laughing, and James Potter's voice, bored and pleased, asking the lawn what it would like him to do next.
+
+He read the boy's humiliation. It was enormous. It filled him from wall to wall, and it was hot and black and it had nowhere to go.
+
+And then the girl was there.
+
+She had red hair, and she was older, and she was furious, and she was shouting at James Potter to put him down. And the boy was upside down in the air, in front of everybody, and the one person in the world he had ever wanted to see him was seeing him like this.
+
+James let him down.
+
+The girl said something to him. Something kind, or nearly. Something that had pity in it.
+
+And the boy, on the ground, with his robes over his head and the whole lawn watching, said the word.
+
+The one Draco Malfoy had said on a Quidditch pitch to Hermione Granger when Harry stood still. He said it to her. He said it loudly, so that everybody could hear, because she had pitied him, and he could bear anything in the world except that.
+
+Harry read him say it.
+
+He read what was under the word. He read it from inside, the whole of it, all the way down.
+
+It was shame. It was so much shame that it did not have edges. It went out of the boy in every direction at once, the way water goes out of a burst pipe. And under the shame, holding it up, the floor under everything, there was the thing from the playground. The plant in the cellar. *Her.* It had not changed at all. It had not got any smaller. It was still the whole of him, turned towards her, and he had just said that word to her face in front of the whole school, and he knew, in the moment of saying it, that he had lost her.
+
+It was the purest thing Harry had ever read in anyone.
+
+And it was a wound. It was a wound that had been open for twenty years and had never once closed, and Harry had been reading the edge of it every Friday morning in a Potions dungeon since he was eleven, the old hurting thing, aimed at Harry and also past him, at someone standing just behind him, with green eyes.
+
+He understood, standing inside a fifteen-year-old boy on a lawn twenty years ago, who had been standing behind him.
+
+* * *
+
+He was in the corridor.
+
+He did not know how he had got there. He was lying on the flagstones outside Snape's office, on his side, and the door had slammed so hard behind him that the sound was still going down the dungeon passages, and there was blood on his face and on his hands and on the floor.
+
+He got up on one elbow.
+
+The door opened.
+
+Snape was in it. He was white. He was so white that his skin looked like the skin of something that had been kept in one of the jars on his shelves. His hand on the doorframe was shaking, and he did not seem to know.
+
+Harry read him.
+
+He could read all of him. Snape was not closed. He had not had time. He was standing in his doorway with every door in him open, and everything came out at once, all of it, at full volume.
+
+Shame. The same shame as on the lawn, twenty years old, as large as it had ever been.
+
+Hatred. Aimed at Harry, at Harry's face, at the boy in the glasses by the lake, at both of them, so that Harry could not tell where one stopped.
+
+And a third thing. It was new. It had not been there in four years. It was aimed at Harry, and only at Harry, and it was very cold and very clean and it went all the way down to the floor.
+
+Snape had been felt.
+
+He had spent twenty years and every ounce of his skill making sure that nobody alive would ever know what was at the bottom of him. Not Dumbledore. Not the Dark Lord. Not anybody. And a boy with James Potter's face and Lily's eyes had walked into the bottom of him and stood there and *felt it*. Felt it from inside. Felt what it had been like to be him, on the grass, with the word in his mouth.
+
+Harry read Snape understand that he would never forgive it.
+
+He read it set, the way water sets into ice, not slowly, all at once.
+
+"Get out," said Snape.
+
+His voice was so quiet that Harry nearly did not hear it.
+
+"Sir, I didn't…"
+
+"*Get out.* The lessons are over. Tell the Headmaster whatever you like. Tell him I could not teach you. Tell him you could not be taught. Tell him the truth, if you know what it is." His hand on the doorframe had gone white at the knuckles. "If you ever come into my head again, Potter, for any reason, I will kill you. Do you understand me?"
+
+Harry looked at him.
+
+He read him say it. He read whether he meant it.
+
+He did.
+
+"Yes, sir," said Harry.
+
+The door shut.
+
+* * *
+
+He did not go back to the common room.
+
+He went up. He went up all the stairs there were, past the Great Hall and the first floor and the second and the seventh, to the top of the Astronomy Tower, where it was raining and nobody was, and he stood in the rain at the parapet with his hands on the cold wet stone and the blood washing off them.
+
+He thought about the playground.
+
+He thought about Aunt Petunia's voice, at eleven or twelve, screaming at her sister that she was not allowed. He thought about Aunt Petunia at the sink in August, and what was under her.
+
+He thought about a boy in a coat that was too big for him, behind a bush, watching a girl fly.
+
+He thought about James Potter, bored and pleased, with a Snitch.
+
+He did not know what to do with that one. He had made a stag out of that man. He had made it twice, on a lake shore and in an alley, out of a story about antlers in a dormitory curtain, and it had driven the Dementors off, and it was the best thing he had ever made.
+
+He stood in the rain for a long time.
+
+He thought: Sirius was there. Sirius was by the lake. Sirius was laughing.
+
+He did not know what to do with that either.
+
+He went down at ten and Evelyn was in the corner by the fire, as though she had not moved, and she looked at him, and at his face, and at his hands, and she did not ask him anything at all.
+
+She moved her bag off the chair beside her.
+
+He sat in it.
+
+* * *
+
+He wrote to Dumbledore the next morning. He wrote: *Professor Snape has stopped the lessons. It was my fault. I went somewhere I shouldn't have. I'm sorry. H.*
+
+Dumbledore did not write back.
+
+At breakfast on the Friday, Harry read him at the staff table. He read the respect, still there. The man on the wall. And something new, beside it, aimed at the far end of the table where Snape sat not eating, and it was sorrow, and under the sorrow, very small, the thing Harry had found in an office in June and noted.
+
+He looked at the far end of the table himself.
+
+Snape was closed. Smooth and complete. Harry could not find the rim any more. He could not find the dread. He could not find anything. It was as though somebody had built a second wall round the first, in a week, and painted it the same colour.
+
+Harry did not try to get past it.
+
+He did not want to. That was what surprised him. He had wanted to know what was under Severus Snape since he was eleven. Now he knew. He would have given a good deal not to.
+
+* * *
+
+He did not close the door.
+
+That was the thing he did not tell Dumbledore, or Evelyn, or anybody. Dumbledore had asked him to learn to close it, and he had gone to the lessons, and the lessons had stopped. And he lay in his four-poster at night, in the green dark, with the curtains drawn, and the door in his forehead stood open.
+
+At first things came through on their own. The way they had in the summer. A feeling, late at night, when he was nearly asleep. Impatience. Satisfaction. Once, very strong, anger, at somebody who had failed, and then something that Harry did not want to name, and a scream, very far away, that was not in his ears.
+
+He lay still and let them come.
+
+Then, one night in the last week of November, he went to meet one.
+
+He did not plan it. He was lying awake at two in the morning, and something came through the scar, small and cold and pleased, and he thought: *I know how to do this.* He had followed a line back to Snape. He had followed it round. This was a line. It was the oldest line he had.
+
+He followed it.
+
+* * *
+
+It was a long way.
+
+He did not know how far. It was like going down a well in the dark with no rope. Then it was not dark. He was in a room he did not know, a large old room with a high ceiling and dust sheets over the furniture and a fire in a grate, and he was sitting in a chair, and he was very tall, and his hands on the arms of the chair were long and white and had no nails to speak of.
+
+He did not look at them for long.
+
+He was not in charge of where he looked. He was a passenger. He was inside somebody, the way he had been inside the boy in the playground, only this was happening now. He could feel the fire on one side of a face that was not his.
+
+There was a man kneeling on the hearthrug.
+
+"…the Department of Mysteries, my Lord," the man was saying. He was thin and anxious and kept his eyes on the rug. "Bode cannot touch it. It will not let him. It must be the one it is about. Or one of them."
+
+"I know that, Avery."
+
+The voice came out of Harry's mouth. It was high and cold and patient, and he had heard it in a churchyard.
+
+He read the man on the hearthrug. Fear, and ambition, and under both, a hope of being forgiven for something. He read the room. There were others in it, in the shadows by the walls, and he read them too, the way he read everybody, and it was easy, it was easier than it had ever been, because he was reading them from the top of the room. From the chair.
+
+They were all afraid.
+
+He could feel the person he was sitting inside feel them be afraid. And he could feel what that person felt about it.
+
+Nothing. Satisfaction, a little. The way you feel about a fire that is drawing well.
+
+He stayed for four minutes. Then something moved in the chair, a thought turning over, and he felt it begin to turn towards him, the way a head begins to turn when somebody has said its name in another room, and he went back up the well as fast as he had ever done anything.
+
+He woke in his four-poster with his scar burning and the sheets wet.
+
+He lay there and he was not frightened.
+
+He was something else, and he knew what it was, because he had felt it in Draco Malfoy and in Cornelius Fudge and in Lucius Malfoy at the World Cup and in a great many other people, and he had never once felt it in himself, and he felt it now.
+
+It was triumph.
+
+* * *
+
+He did it eleven times in three weeks.
+
+He learned names. Avery, who was afraid. Bode, an Unspeakable, who had been made to reach for something in the Department of Mysteries and could not touch it. Sturgis Podmore, who was in the Order and who was going to be sent to a door in the Ministry at one in the morning by somebody who had been in his head first.
+
+He learned that there were Dementors who no longer went back to Azkaban.
+
+He learned that something was being planned for the prison itself, for after Christmas, and that there were people inside it who were going to be let out.
+
+He told Dumbledore some of it.
+
+He wrote it down on scraps of parchment and left them on the desk in the empty Transfiguration classroom on the first floor, where Dumbledore had told him in his first year that a note would always find him. He did not sign them. He wrote *Avery* and *Bode* and *something at the Department of Mysteries that only the person it is about can touch*. He wrote *Podmore. A door. One in the morning. He won't know he's doing it.*
+
+He wrote *I dreamed this.*
+
+That was a lie. He did not dream it. He went and got it. But a dream was something that happened to you, and going and getting it was something you did, and he did not want to think about the difference, so he did not.
+
+Sturgis Podmore was arrested on the thirtieth of November at one o'clock in the morning, trying to get through a door in the Department of Mysteries. It was in the *Prophet*. Six months in Azkaban.
+
+Harry read Dumbledore at breakfast that morning.
+
+Grief. Alarm. And aimed at Harry, not hidden at all, not even trying, a fear so large and so plain that Harry looked away from it.
+
+That evening, in the Transfiguration classroom on the first floor, there was a scrap of parchment on the desk, in thin sloping green ink.
+
+*Close the door, Harry. Please. A.D.*
+
+He folded it twice and put it in his pocket.
+
+He did not close the door.
+
+* * *
+
+He did not tell anybody else. Not Evelyn.
+
+He thought about telling her. He thought about it every morning, at breakfast, across the table, while she ate her egg and her toast in four and her tea last. He thought about the way she had said *you're going to, and he knows it*, about Snape. He thought about what she would say about this.
+
+He knew what she would say. That was why he did not tell her.
+
+He went on running the group on Tuesdays and Fridays. He went on drinking tea in the pink office on Friday afternoons, and telling Professor Umbridge that the students were mostly very sensible, and that he had heard nothing at all about any associations, and she went on believing him, warm and patient and pleased. He read Draco Malfoy watch him across the common room every evening, with fury, and with something else under the fury now, something that had started to think.
+
+He did not notice that. Not properly. He noticed it the way you notice a clock ticking in another room.
+
+He was thinking about the well.
+
+* * *
+
+The twelfth time was the fourteenth of December.
+
+It was a Thursday. It was very cold, and the lake had a skin of ice at the edges, and the green light through the common-room windows had gone grey. He went to bed at eleven. At ten past two he followed the line down.
+
+It was the same room. The dust sheets. The fire. The long white hands on the arms of the chair. There was nobody kneeling on the hearthrug tonight. There was nobody in the room at all. The person he was sitting inside was alone, and still, and looking at the fire, and Harry could feel him thinking, slowly, the way a large animal thinks in its sleep.
+
+Harry waited.
+
+He liked this part. He liked the waiting. He liked being inside the most dangerous mind in the world and being so quiet that it did not know he was there.
+
+Then the thinking stopped.
+
+It did not turn. It did not move. It simply stopped, all at once, the way a man stops talking in the middle of a sentence when he hears a floorboard creak upstairs.
+
+Harry did not breathe.
+
+He felt something. It came from inside the mind he was sitting in, from all round him, from the walls. It was not anger. It was not surprise. It was not anything Harry had ever felt in anybody before, and he had felt nearly everything.
+
+It was attention.
+
+It turned. Not the head. Not the eyes in the fire. Something much further back than eyes, something that had been facing outward for fifty years, turned round, slowly, on itself, and looked inward.
+
+And found him.
+
+Harry ran.
+
+He went up the well. He went up it as fast as he had ever done anything, faster than he had gone after the Snitch, faster than he had gone across a lawn towards a dragon. And for a moment, for one moment, as he went, he felt something going with him.
+
+Not chasing. Riding. The way he rode in other people.
+
+He felt it look round, inside his own head, curiously, at what was there.
+
+He felt it find a shelf.
+
+A shelf of books, in a small round room. A lamp that was cold, that lit for one sort of person and not another. A desk of black stone, with a small black book on it, open at one of its last pages, and a line there in a larger, sloping hand, in bad Latin, that Evelyn had once read aloud to him by the light of that lamp, and that neither of them had understood.
+
+He felt it read the line.
+
+Then he was in his four-poster, sitting bolt upright, with the curtains drawn and the sheets on the floor and his scar so hot that he put his hand over it and took the hand away and looked at it, as though there might be something on it.
+
+There was nothing on it.
+
+He sat in the green dark and listened to the lake.
+
+He had imagined it. He told himself that, quite firmly. He had been tired, and frightened, and he had run too fast, and a frightened mind does things to itself. He had felt the attention turn and he had fled, and the rest of it had been his own head, throwing up the round study because the round study was where he went when he was afraid. That was all. He had imagined the riding. He had imagined the shelf.
+
+He told himself that several times, in several ways, until it sounded true.
+
+Then he lay down again, and did not go to sleep, and at a quarter to seven, when the dormitory began to stir, he was still lying on his back in the green dark with his hand over his scar.
+
+He could not, by then, have said which of the two things he had told himself he believed.
+
+<->
